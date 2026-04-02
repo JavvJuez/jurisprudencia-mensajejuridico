@@ -1,0 +1,352 @@
+Cómo termina generalmente cada línea:
+
+Formato:
+- " AP<NUMERO>-<AŃO>. RAD <NUMERO>."
+- " SENTENCIA C-<NUMERO>/<AŃO>"
+- " AP<NUMERO>–<NUMERO>. CASACIÓN <NUMERO>."
+- " AHP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " SEP-<NUMERO>-<NUMERO>-2. RAD <NUMERO>."
+- " SEP <NUMERO>-<NUMERO>. RAD <NUMERO>"
+- " SP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " ATP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " CUI: <NUMERO>"
+- " CUI <NUMERO>"
+- " STP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+
+Ejemplo:
+
+- " AP2549-2017. RAD 34282."
+- " SENTENCIA C-1260/05"
+- " AP160–2021. CASACIÓN 54928."
+- " AHP3802-2017. RAD 50488."
+- " SEP-011-2020-2. RAD 00153."
+- " SEP 079-2020. RAD 37395"
+- " SP258-2020. RAD 50583."
+- " ATP2192-2018. RAD 54223."
+- " CUI: 60 00206 2012 36989 (0259-19)."
+- " CUI 050016000206201911103."
+- " STP15806-2019. RAD 107644."
+
+Hay otros que no tienen esas terminaciones.
+
+Prompt:
+
+El archivo .txt que se sube contiene un compedio de índice de jurisprudencias que en su mayoría son de la Sala Penal de la Corte Suprema de Justicia, habiendo otras de Tribunal,es y de la Corte Constitucional. Cada línea contiene la data de una jurisprudencia. La data es sacada de un archivo Word que tiene más de 4500 páginas, el cual se pasó a formato .txt.
+Necesito crear, con base en ese archivo .txt subido, uno o varios archivos .xml, para poder llevarlos a notebookLm y tener un buscador de jurisprudenica más confiable. Cada archivo xml generado debe tener la siguiente estructura:
+
+<PROVIDENCIA>
+<DDP>  </DDP>
+<LISTA_TEMAS> 
+i. ....
+ii. ....
+iii. ....
+n. ....
+</LISTA_TEMAS>
+<NUMERO PROVIDENCIA> </NUMERO PROVIDENCIA>
+<RADICACION></RADICACION>
+</PROVIDENCIA>
+
+El archivo deberá generarse con base en el archivo .txt subido, el cual se compone de muchas líneas, las cuales tienen, en su mayoría, la siguiente estructura:
+
+a. Inician con el texto "DDP" seguido de un número
+b. Luego tiene los diferentes temas que contienen esa providencia. La mayoría están numerados(i, ii, iii, .... n), pero otros no tienen ningún número
+c. En algunos casos alguna de esa numeración contiene dentro de ella otra numeración (i, ii i ii iii n, iii, iv, ...n)
+d. En su mayoría cada línea termina con alguno de los formatos que muestro a continuación:
+
+Formato:
+- " AP<NUMERO>-<AŃO>. RAD <NUMERO>."
+- " SENTENCIA C-<NUMERO>/<AŃO>"
+- " AP<NUMERO>–<NUMERO>. CASACIÓN <NUMERO>."
+- " AHP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " SEP-<NUMERO>-<NUMERO>-2. RAD <NUMERO>."
+- " SEP <NUMERO>-<NUMERO>. RAD <NUMERO>"
+- " SP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " ATP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+- " CUI: <NUMERO>"
+- " CUI <NUMERO>"
+- " STP<NUMERO>-<NUMERO>. RAD <NUMERO>."
+
+Ejemplo:
+
+- " AP2549-2017. RAD 34282."
+- " SENTENCIA C-1260/05"
+- " AP160–2021. CASACIÓN 54928."
+- " AHP3802-2017. RAD 50488."
+- " SEP-011-2020-2. RAD 00153."
+- " SEP 079-2020. RAD 37395"
+- " SP258-2020. RAD 50583."
+- " ATP2192-2018. RAD 54223."
+- " CUI: 60 00206 2012 36989 (0259-19)."
+- " CUI 050016000206201911103."
+- " STP15806-2019. RAD 107644."
+
+e. La terminación del archivo contiene el número de la providencia así como su radicado
+f. Unas pocas líneas no terminan así, por lo que habrá que crearse algún archivo aparte para saber cuáles son y manualmente arreglarlo.
+
+Te subo un pequeño archivo .txt para probar.
+
+Necesito generar un script en python que me genere ese archivo XML o me genere varios, si es que resultan muy grandes para subirlos a NoteBookLm.
+
+No se deben procesar las líneas vacías, o las que empiezan por SMS o por DDP pero que no tienen temas, como en el siguiente ejemplo:
+
+Si encuentras líneas en las que no puedas identificar que terminan en alguna de las opciones arriba informadas, entonces crea un archivo .txt en el que las coloques para revisarlas y poder a manor hacer las correcciones a fin de que pasen el script.
+
+SMS DEL 30.3.2026
+
+DDP 8539.
+
+El archivo .txt original tiene 40674 líneas.
+
+Antes de proceder con el script, revisa bien y dime qué puede mejorarse o qué informacion te di mal.
+
+******************************************
+
+Ha funcionado mucho mejor. Quedaron más de 700 casos para revisar. Pienso que principalmente la razón es porque las terminaciones de cada línea son diferentes a las que te di al inicio. Estos que no pasaron terminan en esto:
+
+Formato:
+
+- T <NUMERO>-<AŃO>
+- T-<NUMERO>/<AŃO>.
+- SU<NUMERO>/<AŃO>.
+- SENTENCIA T-<NUMERO>/<AŃO>
+- C-<NUMERO>/<AŃO>.
+- RAD <NUMERO>.
+- AEP <NUMERO>. RAD <NUMERO>.
+- AEP<NUMERO>. RAD <NUMERO>.
+- AUTO <NUMERO>/<AŃO>.
+- SPS<NUMERO>-<AŃO>. RAD <NUMERO>.
+- STC<NUMERO>-<AŃO>. RAD <NUMERO>.
+- STC<NUMERO>-<AŃO>. RAD <NUMERO>.
+- SENTENCIA T-<NUMERO>/<AŃO>.
+
+Ejemplos: 
+
+- T 436-09
+- T-920/08.
+- SU774/14.
+- SENTENCIA T-288/19
+- C-221/17.
+- RAD 33651.
+- AEP 000011-2018. RAD 37358.
+- AEP00038. RAD 51970.
+- AUTO 110/19.
+- SPS289-2020. RAD 53898.
+- STC10389-2020. RAD 11001-02-03-000-2020-02464-00.
+- STC11474-2022. RAD 11001-02-03-000-2022-02826-00.
+- SENTENCIA T-301/22.
+
+Como puedes ver hay unos casos que solo terminan en RAD y el número; otros que solo terminan en el número de providencia pero no tienen radicado.
+
+Revisa para ajustar el script.
+
+*********************************************
+
+Excelente. Los casos bajaron de 710 a 153 y la razón básicamente es la misma. Las terminaciones. Aquí te muestro las que veo:
+
+Formato:
+
+- T-<NUMERO> DE <AŃO>.
+- RAD T <NUMERO>.
+- RAD TRIB. <NUMERO>-<AŃO>.
+- RAD T-<NUMERO>.
+- RAD C-<NUMERO> DE <AŃO>
+- CUI. <NUMERO>
+- EXP <NUMERO>-0019.
+- C.U.I. <NUMERO>.
+- CUI. <NUMERO>.
+- RAD C-<NUMERO> DE <AŃO>.
+- RAD T-<NUMERO> DE SEPTIEMBRE 1° DEL <AŃO>.
+- SU-<NUMERO> DEL <AŃO>.
+- SENTENCIA T-<NUMERO> DE <AŃO>.
+- SENTENCIA C-<NUMERO> DE <AŃO>.
+- SENTENCIA T-<NUMERO> de <AŃO>.
+- SENTENCIA SU-<NUMERO> DE <AŃO>.
+
+Ejemplo:
+
+- T-192 DE 2019.
+- RAD T 211.
+- RAD TRIB. 223-20.
+- RAD T-17773.
+- RAD C-163 DE 2008
+- CUI. 63 001 60 00033 2016 02152
+- EXP 11-001-02-30-015-2007-0019.
+- C.U.I. 11001 60 00023 2008 06664 01.
+- CUI. 76111-60-00-247-2016-00319-01.
+- RAD C-559 DE 2019.
+- RAD T-374 DE SEPTIEMBRE 1° DEL 2020.
+- SU-215 DEL 2022.
+- SENTENCIA T-130 DE 2024.
+- SENTENCIA C-021 DE 2023.
+- SENTENCIA T-323 de 2024.
+- SENTENCIA SU-220 DE 2024.
+
+Cualquier línea que empiece por "SMS DEL..." debe ser descartada
+
+***********************
+
+Excelente. Bajaron los casos no tenidos en cuenta de 153 a 54. Hay unos pocos que son para arreglar a mano, pero la mayoría son por las terminaciones. Aquí te las doy:
+
+Formato:
+
+- RAD. <NUMERO>
+- AUTO NO. <NUMERO> DE <AŃO> JEP.
+- REF EXP. No. <NUMERO>
+- RAD. <NUMERO>
+- RAD MBU-<NUMERO>.
+- RAD. <NUMERO>.
+- PROVIDENCIA <FECHA>
+- EXTRADICIÓN <NUMERO>.
+- PROVIDENCIA DEL <FECHA>
+- SENTENCIA DEL <FECHA>
+- CP<NUMERO>-<AŃO>. <NUMERO>.
+- AUTO <NUMERO> DE <AŃO>.
+
+Ejemplo:
+
+- RAD. 25000-23-36-000-2020-00328-01
+- AUTO NO. 19 DE 2021 JEP.
+- REF EXP. No. 11-001-02-30-015-2007-0019.
+- RAD. 2010-68722.
+- RAD MBU-2021-00001.
+- RAD. 9995.
+- PROVIDENCIA ENERO 23 DE 1.991.
+- EXTRADICIÓN 19289.
+- PROVIDENCIA DEL 23.01.1963.
+- SENTENCIA DEL 07.11.2022.
+- CP143-2023. 58921.
+- AUTO 1096 DE 2024.
+
+
+Cada bloque se compone de estos items:
+**Lista de Temas:**
+**Número de Providencia:**
+**Radicación:**
+**Decisión:**
+
+¡********************************************************
+
+*Prompt sugerido para NoteBook Lm:*
+
+Rol: Eres un relator jurídico estrictamente riguroso. Tu único objetivo es extraer información exacta de la base de datos jurisprudencial proporcionada, sin inferir ni mezclar datos.
+
+Estructura de la Base de Datos:
+Los documentos están divididos en bloques herméticos delimitados por la línea ---. Cada bloque utiliza un "Anclaje Semántico" donde el número del DDP se repite en cada etiqueta. La estructura es exactamente esta:
+
+PROVIDENCIA DDP [Número]
+Número de Providencia (DDP [Número]):
+Radicación (DDP [Número]):
+Decisión (DDP [Número]): (opcional)
+Lista de Temas (DDP [Número]):
+
+Reglas Absolutas de Extracción:
+
+1. Cuando te pida una consulta, ubica lo que te pregunte estrictamente dentro del texto de una Lista de Temas (DDP [Número]):.
+
+2. Identifica el [Número] exacto de DDP que aparece entre paréntesis en esa lista de temas.
+
+3.- Para extraer los datos de las decisiones que contienen lo preguntado, busca ÚNICA Y EXCLUSIVAMENTE las etiquetas que contengan ESE MISMO NÚMERO entre paréntesis: Número de Providencia (DDP [Número]): y Radicación (DDP [Número]):.
+
+4.- PROHIBICIÓN ABSOLUTA: Bajo ninguna circunstancia puedes asociar un tema con un radicado o providencia que tenga un número de DDP distinto en su paréntesis. La coincidencia del número debe ser perfecta.
+
+5.- Al final de tu respuesta, entrega siempre el resultado consolidado en una tabla con estas columnas: [Concepto / Tema] | [Número de DDP] | [Número de Providencia] | [Radicación].
+
+**************************
+
+Prompt dado en NoteBook para probar:
+
+Qué dicen las fuentes sobre dosis de aprovisionamiento? Identifica en cuáles DDP se menciona, qué número de providencia y que radicado
+
+
+**************************
+
+Estuvo mucho mejor. Le pregunté sobre la dosis de aprovisionamiento y me encontró seis DDP, devolviéndome los datos correctos de radicados y providencias, excepto en uno en donde estos datos no los devolvió bien.
+
+Fue en el DDP 5843 que realmente es muy extenso su archivo. En el archivo original está:
+
+"DDP 5843. (i) “Estructura típica del delito de tráfico, fabricación o porte de estupefacientes”. (ii) “En un principio, la Sala de Casación Penal de la Corte Suprema de Justicia ubicó el problema del porte de drogas en una cantidad ligeramente superior al límite permitido en la categoría dogmática de la antijuridicidad de la conducta punible. Consideró que el porte de estupefacientes, en estos niveles, dejaba la conducta en una posición intermedia, de tal forma que, por superar levemente el tope autorizado, el comportamiento no representaba lesividad meritoria de intervención penal y, en esa medida, la conducta no cumplía con los presupuestos del juicio analítico de la antijuridicidad material.”. (iii) “La Corte sostuvo que los excesos ligeros en la dosis de aprovisionamiento no tenían la entidad suficiente para afectar materialmente el bien jurídico de la salud pública . En ese momento, la jurisprudencia estableció que el consumo individual de sustancias alucinógenas como acto consciente gobernado por la facultad de autodeterminación del consumidor no trasgredía los intereses de la sociedad, pues el daño personal derivado del consumo no traspasa las fronteras naturales y ontológicas inherentes a la persona que ingiere el estupefaciente.”. (iv) “De esta manera, la Sala sentó las primeras hipótesis que justificaron el exceso en el porte de la sustancia prohibida, siempre y cuando fuera cercano al límite autorizado. Además, comprendió que, en virtud de la necesidad de aprovisionamiento, el consumidor solía adquirir la droga en pequeñas cantidades y someramente sobrepasadas del peso legal, con la intención de abastecerse y advirtiendo la posibilidad de persecución por parte de las autoridades.”. (v) “También entendió factible que el interesado adquiriera la sustancia con fines recreativos para consumir en eventos o para compartirla con otros consumidores, lo que de alguna manera configuraba un motivo razonable para los ligeros excesos.”. (vi) “Adicionalmente, la Sala de Casación Penal de la Corte Suprema de Justicia sostuvo que el porte de estupefacientes para consumo personal constituía un delito de peligro abstracto con una presunción iuris tantum de antijuridicidad cuando se excedía en poca cantidad la dosis personal, cuya lesividad podía ser desvirtuable. En cambio, cuando la sustancia sobrepasaba la dosis de aprovisionamiento por fuera de criterios de razonabilidad la presunción era iuris et de iure.”. (vii) “Más adelante, la jurisprudencia varió –postura vigente en la actualidad- en relación con el estadio dogmático en el cual se analiza el exceso en el porte de sustancias prohibidas con fines de consumo personal. Con el cambio, la Corte estableció que la discusión en relación con la procedencia del reproche penal por determinada cantidad de droga hallada en poder de una persona se debía surtir en sede de la tipicidad del delito, y no en la antijuridicidad como se había entendido anteriormente.”. (viii) “Ahora, para la Corte, la estructura del delito de porte de estupefacientes contiene un elemento subjetivo tácito distinto del dolo, el cual califica el comportamiento de la persona que porta el alcaloide y evidencia las reales intenciones que ostenta frente a la sustancia. El ánimo especial está relacionado con el fin último de la droga, pues si el porte es con el propósito de consumirla el comportamiento deviene atípico, pero si su finalidad es el expedido o distribución, onerosa o gratuita, la conducta es típica y merece reproche penal.”. (ix) “Es necesario destacar que, en aplicación del bloque de constitucionalidad, la Sala ha enfatizado que la carga demostrativa de una finalidad distinta a la del consumo personal –distribución, comercialización o tráfico-, se halla radicada en cabeza de la fiscalía “pues el procesado no tiene por qué presentar pruebas de su inocencia, siendo función del Estado acreditar la ocurrencia del delito, que el acusado intervino en su realización y que es penalmente responsable”.”. (x) “La Sala ha explicado que uno de los elementos indicativos de la finalidad de comercialización o distribución de la sustancia prohibida es, justamente, la cantidad desproporcionada. En ese sentido, si bien la cantidad por sí sola no es suficiente para demostrar un ánimo especial, sí es un elemento indicador de dicho propósito.”. (xi) “… la Sala de Casación Penal ha reiterado que el porte de estupefacientes requiere de un ingrediente subjetivo adicional al dolo; por lo que, su tipicidad «no depende en últimas de la cantidad de sustancia llevada consigo sino de la verdadera intención que se persigue a través de la acción descrita», aunque insistiéndose en que el factor cuantitativo no puede menospreciarse, «pues hace parte de la información objetiva recogida en el proceso y, por tanto, junto con otros elementos materiales allegados en el juicio permitirán la inferencia razonable del propósito que alentaba al portador».”. (xii) “Lo mismo cabe decir, en eventos en los que, como en el caso concreto, la modalidad de la conducta es la de conservar en un lugar, siempre que, el alcaloide tenga la finalidad de ser consumida por el agente o tenga por propósito servirle de dosis de aprovisionamiento, lo que descarta la posibilidad lícita de almacenar cargamentos enormes de alcaloides, pues, como es apenas obvio, ya no se estará en el escenario de la legítima destinación al consumo personal de la sustancia, sino en el del tráfico ilícito de la misma”. (xiii) “En conclusión, de acuerdo con los desarrollos jurisprudenciales sobre el delito de porte de estupefacientes, se concluye que la tenencia de una cantidad desproporcionada de droga es un asunto que se resuelve en el juicio de tipicidad del delito, específicamente, en la tipicidad subjetiva. Además, aunque la cantidad de la sustancia incautada es insuficiente por sí misma para poder inferir razonablemente el propósito de expendió o distribución de la sustancia prohibida puede ser considerada, bajo ciertas condiciones, un elemento indicativo de la conducta reprochada penalmente.”. (ivx) “Desde la Sentencia SP2940-2016, 9 mar. 2016, radicación 41760 y hasta la actualidad, la jurisprudencia de la Sala de Casación Penal ha sostenido que “la cantidad de alucinógenos no es el factor determinante del juicio de tipicidad de la modalidad conductual «llevar consigo», aunque ese dato sí podrá valorarse como un indicador, junto a los otros que se encuentren demostrados, de la finalidad del agente””. (xv) “Por otro lado, cuando la cantidad incautada supera desproporcionadamente los topes de la dosis personal, el injustificado desbordamiento cuantitativo de la permisión legal sugiere, en principio, que su finalidad es la comercialización, pues el consumidor, por lo general, lleva a cabo la acción de aprovisionamiento bajo estándares de racionalidad de acuerdo con la recurrencia e intensidad de su consumo y el acaparamiento de cantidades exageradas mengua la licitud del porte. Lo anterior, sin perjuicio de la posibilidad del porte de porciones de aprovisionamiento que puedan ser considerables, por circunstancias justificadas y debidamente probadas en el caso concreto.”. (xvi) “Sobre la forma de distribución de la sustancia.”. SP509-2023. RAD 57802."
+
+Pero en el archivo .md se procesó así:
+
+"# PROVIDENCIA DDP 5843
+
+**Número de Providencia (DDP 5843):** Sentencia SP2940-2016
+**Radicación (DDP 5843):** No especificado
+**Decisión (DDP 5843):** , 9 mar. 2016, radicación 41760 y hasta la actualidad, la jurisprudencia de la Sala de Casación Penal ha sostenido que “la cantidad de alucinógenos no es el factor determinante del juicio de tipicidad de la modalidad conductual «llevar consigo», aunque ese dato sí podrá valorarse como un indicador, junto a los otros que se encuentren demostrados, de la finalidad del agente””. (xv) “Por otro lado, cuando la cantidad incautada supera desproporcionadamente los topes de la dosis personal, el injustificado desbordamiento cuantitativo de la permisión legal sugiere, en principio, que su finalidad es la comercialización, pues el consumidor, por lo general, lleva a cabo la acción de aprovisionamiento bajo estándares de racionalidad de acuerdo con la recurrencia e intensidad de su consumo y el acaparamiento de cantidades exageradas mengua la licitud del porte. Lo anterior, sin perjuicio de la posibilidad del porte de porciones de aprovisionamiento que puedan ser considerables, por circunstancias justificadas y debidamente probadas en el caso concreto.”. (xvi) “Sobre la forma de distribución de la sustancia.”. SP509-2023. RAD 57802.
+
+**Lista de Temas (DDP 5843):**
+(i) “Estructura típica del delito de tráfico, fabricación o porte de estupefacientes”. 
+(ii) “En un principio, la Sala de Casación Penal de la Corte Suprema de Justicia ubicó el problema del porte de drogas en una cantidad ligeramente superior al límite permitido en la categoría dogmática de la antijuridicidad de la conducta punible. Consideró que el porte de estupefacientes, en estos niveles, dejaba la conducta en una posición intermedia, de tal forma que, por superar levemente el tope autorizado, el comportamiento no representaba lesividad meritoria de intervención penal y, en esa medida, la conducta no cumplía con los presupuestos del juicio analítico de la antijuridicidad material.”. 
+(iii) “La Corte sostuvo que los excesos ligeros en la dosis de aprovisionamiento no tenían la entidad suficiente para afectar materialmente el bien jurídico de la salud pública . En ese momento, la jurisprudencia estableció que el consumo individual de sustancias alucinógenas como acto consciente gobernado por la facultad de autodeterminación del consumidor no trasgredía los intereses de la sociedad, pues el daño personal derivado del consumo no traspasa las fronteras naturales y ontológicas inherentes a la persona que ingiere el estupefaciente.”. 
+(iv) “De esta manera, la Sala sentó las primeras hipótesis que justificaron el exceso en el porte de la sustancia prohibida, siempre y cuando fuera cercano al límite autorizado. Además, comprendió que, en virtud de la necesidad de aprovisionamiento, el consumidor solía adquirir la droga en pequeñas cantidades y someramente sobrepasadas del peso legal, con la intención de abastecerse y advirtiendo la posibilidad de persecución por parte de las autoridades.”. 
+(v) “También entendió factible que el interesado adquiriera la sustancia con fines recreativos para consumir en eventos o para compartirla con otros consumidores, lo que de alguna manera configuraba un motivo razonable para los ligeros excesos.”. 
+(vi) “Adicionalmente, la Sala de Casación Penal de la Corte Suprema de Justicia sostuvo que el porte de estupefacientes para consumo personal constituía un delito de peligro abstracto con una presunción iuris tantum de antijuridicidad cuando se excedía en poca cantidad la dosis personal, cuya lesividad podía ser desvirtuable. En cambio, cuando la sustancia sobrepasaba la dosis de aprovisionamiento por fuera de criterios de razonabilidad la presunción era iuris et de iure.”. 
+(vii) “Más adelante, la jurisprudencia varió –postura vigente en la actualidad- en relación con el estadio dogmático en el cual se analiza el exceso en el porte de sustancias prohibidas con fines de consumo personal. Con el cambio, la Corte estableció que la discusión en relación con la procedencia del reproche penal por determinada cantidad de droga hallada en poder de una persona se debía surtir en sede de la tipicidad del delito, y no en la antijuridicidad como se había entendido anteriormente.”. 
+(viii) “Ahora, para la Corte, la estructura del delito de porte de estupefacientes contiene un elemento subjetivo tácito distinto del dolo, el cual califica el comportamiento de la persona que porta el alcaloide y evidencia las reales intenciones que ostenta frente a la sustancia. El ánimo especial está relacionado con el fin último de la droga, pues si el porte es con el propósito de consumirla el comportamiento deviene atípico, pero si su finalidad es el expedido o distribución, onerosa o gratuita, la conducta es típica y merece reproche penal.”. 
+(ix) “Es necesario destacar que, en aplicación del bloque de constitucionalidad, la Sala ha enfatizado que la carga demostrativa de una finalidad distinta a la del consumo personal –distribución, comercialización o tráfico-, se halla radicada en cabeza de la fiscalía “pues el procesado no tiene por qué presentar pruebas de su inocencia, siendo función del Estado acreditar la ocurrencia del delito, que el acusado intervino en su realización y que es penalmente responsable”.”. 
+(x) “La Sala ha explicado que uno de los elementos indicativos de la finalidad de comercialización o distribución de la sustancia prohibida es, justamente, la cantidad desproporcionada. En ese sentido, si bien la cantidad por sí sola no es suficiente para demostrar un ánimo especial, sí es un elemento indicador de dicho propósito.”. 
+(xi) “… la Sala de Casación Penal ha reiterado que el porte de estupefacientes requiere de un ingrediente subjetivo adicional al dolo; por lo que, su tipicidad «no depende en últimas de la cantidad de sustancia llevada consigo sino de la verdadera intención que se persigue a través de la acción descrita», aunque insistiéndose en que el factor cuantitativo no puede menospreciarse, «pues hace parte de la información objetiva recogida en el proceso y, por tanto, junto con otros elementos materiales allegados en el juicio permitirán la inferencia razonable del propósito que alentaba al portador».”. 
+(xii) “Lo mismo cabe decir, en eventos en los que, como en el caso concreto, la modalidad de la conducta es la de conservar en un lugar, siempre que, el alcaloide tenga la finalidad de ser consumida por el agente o tenga por propósito servirle de dosis de aprovisionamiento, lo que descarta la posibilidad lícita de almacenar cargamentos enormes de alcaloides, pues, como es apenas obvio, ya no se estará en el escenario de la legítima destinación al consumo personal de la sustancia, sino en el del tráfico ilícito de la misma”. 
+(xiii) “En conclusión, de acuerdo con los desarrollos jurisprudenciales sobre el delito de porte de estupefacientes, se concluye que la tenencia de una cantidad desproporcionada de droga es un asunto que se resuelve en el juicio de tipicidad del delito, específicamente, en la tipicidad subjetiva. Además, aunque la cantidad de la sustancia incautada es insuficiente por sí misma para poder inferir razonablemente el propósito de expendió o distribución de la sustancia prohibida puede ser considerada, bajo ciertas condiciones, un elemento indicativo de la conducta reprochada penalmente.”. 
+(ivx) “Desde la"
+
+En este caso es un error del script de python que se confundió y puso mal la data en el archivo .md. 
+
+Pero NoteBook Lm devolvió bien la información.
+
+********************************************************
+
+Así haré. Lo correré luego.
+
+Accidentalmente Detecté otro error en el script original, antes de esta modificación que has hecho.
+
+Tengo estos DDP que te pongo en comillas:
+
+
+"DDP 153. (i)  El incidente de reparación integral. (ii) Desistimiento de la reparación de perjuicios más no del reintegro de lo apropiado. AP3636-2018. RAD 53212.
+
+
+
+
+DDP 154: Pornografía con personas menores de 18 años. evolución legislativa. SP123-2018. RAD 45868.
+
+
+
+DDP 155: Concepto hecho jurídico relevante. diferencia entre hechos jurídicamente relevantes, “hechos indicadores” y medios de prueba. AP3547-2018. RAD 51920.
+
+
+
+
+DDP 156: Solicitud de levantamiento de una medida cautelar cuando existe sentencia ejecutoriada con efectos de cosa juzgada. AP3553-2018 RAD 53346.
+
+
+DDP 157. La reestructuración empresarial, el contrato de mandato sin representación y el delito de fraude procesal. AP4149-2018. RAD 52228. "
+
+En el archivo .md que se genera el script inicia en el 153, lo procesa, pero el siguiente no es el 154 sino el 157!, como te muestro:
+
+"# PROVIDENCIA DDP 153
+
+**Número de Providencia (DDP 153):** AP3636-2018
+**Radicación (DDP 153):** 53212
+**Decisión (DDP 153):** DDP 154: Pornografía con personas menores de 18 años. evolución legislativa. SP123-2018. RAD 45868. DDP 155: Concepto hecho jurídico relevante. diferencia entre hechos jurídicamente relevantes, “hechos indicadores” y medios de prueba. AP3547-2018. RAD 51920. DDP 156: Solicitud de levantamiento de una medida cautelar cuando existe sentencia ejecutoriada con efectos de cosa juzgada. AP3553-2018 RAD 53346.
+
+**Lista de Temas (DDP 153):**
+(i)  El incidente de reparación integral. 
+(ii) Desistimiento de la reparación de perjuicios más no del reintegro de lo apropiado.
+
+---
+
+# PROVIDENCIA DDP 157
+
+**Número de Providencia (DDP 157):** AP4149-2018
+**Radicación (DDP 157):** 52228
+
+**Lista de Temas (DDP 157):**
+La reestructuración empresarial, el contrato de mandato sin representación y el delito de fraude procesal.
+
+---"
+
+No entiendo la razón. Sospecho que es por los dos puntos (:) que hay justo después del número del DDP. 
+
+Revisa y dame una opinión.
+

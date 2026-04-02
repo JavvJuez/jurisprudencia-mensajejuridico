@@ -1,0 +1,5940 @@
+# PROVIDENCIA DDP 1511
+
+**Número de Providencia (DDP 1511):** No especificado
+**Radicación (DDP 1511):** CUI 50001 31 07 001 2017 00315 01
+
+**Lista de Temas (DDP 1511):**
+(i) LA LIBERTAD CONDICIONAL. 
+(ii) LA FAVORABILIDAD Y EL ARTÍCULO 30 DE LA LEY 1709 DE 2014. 
+(iii) LA VALORACIÓN DE LA CONDUCTA PUNIBLE.
+
+---
+
+# PROVIDENCIA DDP 1512
+
+**Número de Providencia (DDP 1512):** SP4514-2020
+**Radicación (DDP 1512):** 55345
+
+**Lista de Temas (DDP 1512):**
+(i) EL PRINCIPIO DE CONFIANZA. 
+(ii) EL TIPO PENAL DOLOSO. 
+(iii) EL DOLO EN EL FINALISMO Y EN EL CAUSALISMO. 
+(iv) LA DELEGACIÓN. 
+(v). EL DETERMINADOR Y LA CONDICIÓN ESPECIAL DEL SUJETO AGENTE. 
+(vi) LA COMPULSA DE COPIAS Y LA PROHIBICIÓN DE REFORMA EN PERJUICIO.
+
+---
+
+# PROVIDENCIA DDP 1513
+
+**Número de Providencia (DDP 1513):** AP4164-2016
+**Radicación (DDP 1513):** 45120
+
+**Lista de Temas (DDP 1513):**
+(i) LA PRUEBA SOBREVINIENTE. 
+(ii) LA PRUEBA DE REFUTACIÓN. 
+(iii) EL NO DECRETO DE LA PRUEBA SOBREVINIENTE Y LOS RECURSOS PROCEDENTES.
+
+---
+
+# PROVIDENCIA DDP 1514
+
+**Número de Providencia (DDP 1514):** SP4769-2020
+**Radicación (DDP 1514):** 56603
+
+**Lista de Temas (DDP 1514):**
+(i) “LA AFECTACIÓN AL PRINCIPIO DE CONGRUENCIA”. 
+(ii) EL DELITO DE CONCUSIÓN. 
+(iii) “LOS VERBOS RECTORES ALTERNATIVOS QUE MATERIALIZAN LA CONDUCTA CONCUSIVA”. 
+(iv) LA DUDA. LA CORTE REVOCA LA CONDENA Y ABSUELVE A UN FISCAL ESPECIALIZADO.
+
+---
+
+# PROVIDENCIA DDP 1515
+
+**Número de Providencia (DDP 1515):** AP3307-2020
+**Radicación (DDP 1515):** 58395
+
+**Lista de Temas (DDP 1515):**
+(i) EL CONTROL A LA ACUSACIÓN, COMO ACTUACIÓN DE PARTE Y EL CONTROL DE LA ACUSACIÓN, COMO PRETENSIÓN. 
+(ii) IMPROCEDENCIA DE UN RECURSO Y LA DILACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1516
+
+**Número de Providencia (DDP 1516):** AEP 118-2020
+**Radicación (DDP 1516):** 00235
+
+**Lista de Temas (DDP 1516):**
+(i) UNA SOLICITUD DE PRECLUSIÓN ESTANDO EN LA FASE DE INDAGACIÓN. 
+(ii) EL PREVARICATO ACTIVO. 
+(iii) LA EXISTENCIA DE UNA CAUSAL EXCLUYENTE DE RESPONSABILIDAD. 
+(iv) LA TIPICIDAD SUBJETIVA. 
+(v) EL ERROR.
+
+---
+
+# PROVIDENCIA DDP 1517
+
+**Número de Providencia (DDP 1517):** AP3314–2020
+**Radicación (DDP 1517):** No especificado
+**Decisión (DDP 1517):** REVISIÓN 54908.
+
+**Lista de Temas (DDP 1517):**
+(i) Los conceptos de hecho nuevo y prueba nueva en sede de revisión. 
+(i) No por ser prueba nueva, lo dicho allí resulta pertinente y novedoso para el caso cuya cosa juzgada se pretende remover.
+
+---
+
+# PROVIDENCIA DDP 1518
+
+**Número de Providencia (DDP 1518):** AP3292–2020
+**Radicación (DDP 1518):** No especificado
+**Decisión (DDP 1518):** DEFINICIÓN DE COMPETENCIA. 58501.
+
+**Lista de Temas (DDP 1518):**
+(i) LOS JUECES DE CONTROL DE GARANTÍAS Y EL FACTOR TERRITORIAL. 
+(ii) “LA RAZONABILIDAD DE ACUDIR A UN FUNCIONARIO DISTINTO AL QUE DETERMINA EL FACTOR TERRITORIAL FRENTE A SITUACIONES EXCEPCIONALES”. 
+(iii) NO “ES DADO PREGONAR QUE LAS AUDIENCIAS CONCENTRADAS DE LEGALIZACIÓN DE CAPTURA, FORMULACIÓN DE IMPUTACIÓN Y SOLICITUD DE MEDIDA DE ASEGURAMIENTO DEBEN CELEBRARSE INEXORABLEMENTE SIN SOLUCIÓN DE CONTINUIDAD”.
+
+---
+
+# PROVIDENCIA DDP 1519
+
+**Número de Providencia (DDP 1519):** AHP4005-2018
+**Radicación (DDP 1519):** 53752
+
+**Lista de Temas (DDP 1519):**
+(i) EL TÉRMINO PARA IMPUTAR Y SOLICITAR LA IMPOSICIÓN DE ASEGURATIVA UNA VEZ CUMPLIDA LA LEGALIZACIÓN DE CAPTURA. 
+(ii) EL PLAZO RAZONABLE.
+
+---
+
+# PROVIDENCIA DDP 1520
+
+**Número de Providencia (DDP 1520):** AP3263-2020
+**Radicación (DDP 1520):** 50290
+
+**Lista de Temas (DDP 1520):**
+(i) LA IMPUGNACIÓN DE LA PRIMERA CONDENA. 
+(ii) PAUTAS PARA ACCEDER A ESTA IMPUGNACIÓN. 
+(iii) LA INADMISIÓN DE LA CASACIÓN Y LA DOBLE CONFORMIDAD.
+
+---
+
+# PROVIDENCIA DDP 1521
+
+**Número de Providencia (DDP 1521):** SENTENCIA CONDENATORIA. AP3265-2020
+**Radicación (DDP 1521):** 42104
+
+**Lista de Temas (DDP 1521):**
+LA DOBLE CONFORMIDAD Y LA TEMPORALIDAD DE LA
+
+---
+
+# PROVIDENCIA DDP 1522
+
+**Número de Providencia (DDP 1522):** STP10770–2020
+**Radicación (DDP 1522):** 112653
+
+**Lista de Temas (DDP 1522):**
+(i) LA LIBERTAD DEL ARTÍCULO 317.5 DEL C.P.P. 
+(ii) LOS APLAZAMIENTOS Y EL DEBER DE ASUMIR SUS CARGAS.
+
+---
+
+# PROVIDENCIA DDP 1523
+
+**Número de Providencia (DDP 1523):** SP17024-2016
+**Radicación (DDP 1523):** 44562
+
+**Lista de Temas (DDP 1523):**
+(i) LA PRISIÓN DOMICILIARIA. 
+(ii) LOS PREACUERDOS. 
+(iii) LAS PENAS ACCESORIAS. 
+(iv) LAS MANIFESTACIONES DE CULPABILIDAD PREACORDADAS (SALVAMENTO DE VOTO).
+
+---
+
+# PROVIDENCIA DDP 1524
+
+**Número de Providencia (DDP 1524):** No especificado
+**Radicación (DDP 1524):** CUI 05-001-60-00206-2016-34096
+
+**Lista de Temas (DDP 1524):**
+(i) LÍMITE TEMPORAL DE LOS PREACUERDOS. 
+(ii) LOS PREACUERDOS DESPUÉS DE RADICADO EL ESCRITO DE ACUSACIÓN. (TESIS DE LA CORTE SUPREMA DE JUSTICIA Y DEL TRIBUNAL DE MEDELLÍN EN CONTRA DE LO EXPUESTO POR SU SUPERIOR).
+
+---
+
+# PROVIDENCIA DDP 1525
+
+**Número de Providencia (DDP 1525):** SP4770-2020
+**Radicación (DDP 1525):** 55365
+
+**Lista de Temas (DDP 1525):**
+(i) LÍNEA JURISPRUDENCIAL RESPECTO A LA ADMISIBILIDAD DE LA PRUEBA DE REFERENCIA. 
+(ii) LA CONCUSIÓN.
+
+---
+
+# PROVIDENCIA DDP 1526
+
+**Número de Providencia (DDP 1526):** SP4768-2020
+**Radicación (DDP 1526):** 54920
+
+**Lista de Temas (DDP 1526):**
+(i) ELEMENTOS ESTRUCTURALES DEL DELITO DE INASISTENCIA ALIMENTARIA. 
+(ii) EL FALSO JUICIO DE IDENTIDAD. 
+(iii) LA OMISIÓN INJUSTIFICADA.
+
+---
+
+# PROVIDENCIA DDP 1527
+
+**Número de Providencia (DDP 1527):** STP11017-2020
+**Radicación (DDP 1527):** 112846
+
+**Lista de Temas (DDP 1527):**
+(i) “LA EVENTUAL PROCEDENCIA DE LA ACCIÓN DE TUTELA CONTRA SENTENCIAS JUDICIALES Y OTRAS PROVIDENCIAS QUE PONGAN FIN AL PROCESO”. 
+(ii) LA CONSECUENCIA DE NO APLEAR LA SENTENCIA DE PRIMER NIVEL. 
+(iii) LA DOBLE CONFORMIDAD NO OPERA OFICIOSAMENTE.
+
+---
+
+# PROVIDENCIA DDP 1528
+
+**Número de Providencia (DDP 1528):** AP3268-2020
+**Radicación (DDP 1528):** 58475
+
+**Lista de Temas (DDP 1528):**
+(i) LA COMPETENCIA POR CONEXIDAD. 
+(ii) LA COMPETENCIA RESIDUAL. 
+(iii) LA COMPETENCIA TERRITORIAL Y EL DELITO MÁS GRAVE. 
+(iv) MOMENTO CONSUMATIVO DE LA ESTAFA.
+
+---
+
+# PROVIDENCIA DDP 1529
+
+**Número de Providencia (DDP 1529):** AP3269-2020
+**Radicación (DDP 1529):** 58430
+
+**Lista de Temas (DDP 1529):**
+(i) RECURSO DE QUEJA POR NEGAR LA DOBLE CONFORMIDAD. 
+(ii) LA DOBLE CONFORMIDAD EN PROCESO DE LA LEY 600 DE 2000.
+
+---
+
+# PROVIDENCIA DDP 1530
+
+**Número de Providencia (DDP 1530):** AP3273-2020
+**Radicación (DDP 1530):** 58060
+
+**Lista de Temas (DDP 1530):**
+(i) IMPEDIMENTO POR HABER MANIFESTADO SU OPINIÓN SOBRE EL ASUNTO MATERIA DEL PROCESO. 
+(ii) LO DICHO AL RESOLVER UNA IMPUGNACIÓN DE COMPETENCIA. 
+(iii) LA OPINIÓN EMITIDA EN EJERCICIO DE LAS FUNCIONES.
+
+---
+
+# PROVIDENCIA DDP 1531
+
+**Número de Providencia (DDP 1531):** AP3306-2020
+**Radicación (DDP 1531):** 46227
+
+**Lista de Temas (DDP 1531):**
+(i) RECUENTO DE LO ATINENTE A LA DOBLE CONFORMIDAD. 
+(ii) LA DOBLE CONFORMIDAD DESPUÉS DE LA CASACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1532
+
+**Número de Providencia (DDP 1532):** AP3315-2020
+**Radicación (DDP 1532):** 57930
+
+**Lista de Temas (DDP 1532):**
+(i) EXIGENCIAS PARA LA DECLARATORIA DE NULIDAD. 
+(ii) RAZONES PARA ELEGIR LA LEY 600 DE 2000 O LA LEY 906 DE 2004 COMO PROCEDIMIENTO APLICABLE (LA TESIS DE LA RAZÓN OBJETIVA). 
+(iii) LA CONEXIDAD.
+
+---
+
+# PROVIDENCIA DDP 1533
+
+**Número de Providencia (DDP 1533):** AP3318-2020
+**Radicación (DDP 1533):** 58428
+
+**Lista de Temas (DDP 1533):**
+(i) LA COMPETENCIA POR CONEXIDAD. 
+(ii) LA COMPETENCIA FUNCIONAL. 
+(iii) LA COMPETENCIA TERRITORIAL. 
+(iv) EL CAMBIO DE RADICACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1534
+
+**Número de Providencia (DDP 1534):** SP4646-2020
+**Radicación (DDP 1534):** 57915
+
+**Lista de Temas (DDP 1534):**
+(i) LA SEGUNDA INSTANCIA EN EJECUCCIÓN DE PENAS POR HABER ACTUADO COMO JUEZ DE CONOCIMIENTO. 
+(ii) LA EXTINCIÓN DE LA PENA. 
+(iii) FINALIZACIÓN DEL PERÍODO DE PRUEBA Y EL INCUMPLIMIENTO DE LOS COMPROMISOS ADQUIRIDOS.
+
+---
+
+# PROVIDENCIA DDP 1535
+
+**Número de Providencia (DDP 1535):** SP4649-2020
+**Radicación (DDP 1535):** 56451
+
+**Lista de Temas (DDP 1535):**
+(i) LA PRESCRIPCIÓN Y EL ARTÍCULO 189 DE LA LEY 906 DE 2004. 
+(ii) LA DISCUSIÓN DE LA SENTENCIA DE SEGUNDO GRADO Y SU PUBLICIDAD. 
+(iii) LA COAUTORÍA. 
+(iv) LA RIÑA.
+
+---
+
+# PROVIDENCIA DDP 1536
+
+**Número de Providencia (DDP 1536):** STP9219-2019
+**Radicación (DDP 1536):** 105310
+
+**Lista de Temas (DDP 1536):**
+(i) LA ACCIÓN DE TUTELA POR PRETERMITIR “ETAPAS SUSTANCIALES DEL PROCEDIMIENTO ESTABLECIDO, VULNERANDO EL DERECHO DE DEFENSA Y CONTRADICCIÓN DE UNA DE LAS PARTES”. 
+(ii) LA NOTIFICACIÓN DE LAS PROVIDENCIAS. 
+(iii) LA INDEBIDA NOTIFICACIÓN DE UNA AUDIENCIA.
+
+---
+
+# PROVIDENCIA DDP 1538
+
+**Número de Providencia (DDP 1538):** STP10636-2020
+**Radicación (DDP 1538):** 113173
+
+**Lista de Temas (DDP 1538):**
+LOS INDÍGENAS Y LA PENA PRIVATIVA DE LA LIBERTAD.
+
+---
+
+# PROVIDENCIA DDP 1539
+
+**Número de Providencia (DDP 1539):** ATP1202-2020
+**Radicación (DDP 1539):** 114076
+
+**Lista de Temas (DDP 1539):**
+(i) CONFLICTO NEGATIVO DE COMPETENCIA PARA CONOCER DE UNA TUTELA. 
+(ii) LA COMPETENCIA A PREVENCIÓN. 
+(iii) EL “LUGAR DONDE SE PODRÍAN PROYECTAR LOS EFECTOS DE LA ALEGADA VULNERACIÓN.”.
+
+---
+
+# PROVIDENCIA DDP 1540
+
+**Número de Providencia (DDP 1540):** AP3388–2020
+**Radicación (DDP 1540):** No especificado
+**Decisión (DDP 1540):** SEGUNDA INSTANCIA 46688.
+
+**Lista de Temas (DDP 1540):**
+LA IMPUGNACIÓN ESPECIAL EN UN CASO DONDE LA SALA PENAL DE LA CORTE CONDENA, POR PRIMERA VEZ, ACTUANDO COMO SEGUNDA INSTANCIA.
+
+---
+
+# PROVIDENCIA DDP 1541
+
+**Número de Providencia (DDP 1541):** No especificado
+**Radicación (DDP 1541):** 52594
+
+**Lista de Temas (DDP 1541):**
+LA IMPUGNACIÓN ESPECIAL NO PROCEDE CUANDO EL INTERESADO HA RENUNCIADO AL DERECHO DE RECURRIR LA SENTENCIA. AP3393–2020.
+
+---
+
+# PROVIDENCIA DDP 1542
+
+**Número de Providencia (DDP 1542):** STP11059-2020
+**Radicación (DDP 1542):** 113851
+
+**Lista de Temas (DDP 1542):**
+(i) UNA CONSTANCIA SECRETARIAL ERRADA Y LA VULNERACIÓN DEL DEBIDO PROCESO. 
+(ii) EL DEBER DE CORREGIR LOS ACTOS IRREGULARES.
+
+---
+
+# PROVIDENCIA DDP 1543
+
+**Número de Providencia (DDP 1543):** STP11002-2020
+**Radicación (DDP 1543):** 113895
+
+**Lista de Temas (DDP 1543):**
+“EL ARTÍCULO 199 DE LA LEY 1098 DE 2006 NO FUE DEROGADO TÁCITAMENTE POR EL ARTÍCULO 32 DE LA LEY 1709 DE 2014”.
+
+---
+
+# PROVIDENCIA DDP 1544
+
+**Número de Providencia (DDP 1544):** STP10997-2020
+**Radicación (DDP 1544):** 113758
+
+**Lista de Temas (DDP 1544):**
+(i) EL SUBROGADO DE LA LIBERTAD CONDICIONAL. 
+(ii) LA VALORACIÓN DE LA CONDUCTA PUNIBLE. 
+(iii) LA RESOCIALIZACIÓN Y REINSERCIÓN SOCIAL.
+
+---
+
+# PROVIDENCIA DDP 1545
+
+**Número de Providencia (DDP 1545):** No especificado
+**Radicación (DDP 1545):** CUI 63-001-60-00-033-2015-03635
+
+**Lista de Temas (DDP 1545):**
+(i) EL ESTADO DE IRA O INTENSO DOLOR. 
+(ii) LOS ACTOS DE PROVOCACIÓN PARA QUE SE RECONOZCA EL ESTADO DE IRA O INTENSO DOLOR.
+
+---
+
+# PROVIDENCIA DDP 1546
+
+**Número de Providencia (DDP 1546):** No especificado
+**Radicación (DDP 1546):** 33377
+
+**Lista de Temas (DDP 1546):**
+LA COMPETENCIA TERRITORIAL PARA EL HABEAS CORPUS.
+
+---
+
+# PROVIDENCIA DDP 1547
+
+**Número de Providencia (DDP 1547):** No especificado
+**Radicación (DDP 1547):** CUI 66001-22-13-000-2018-00945-00
+
+**Lista de Temas (DDP 1547):**
+EL HABEAS CORPUS Y LA COMPETENCIA TERRITORIAL.
+
+---
+
+# PROVIDENCIA DDP 1548
+
+**Número de Providencia (DDP 1548):** No especificado
+**Radicación (DDP 1548):** 2020-00046
+
+**Lista de Temas (DDP 1548):**
+LA ACCIÓN DE HABEAS CORPUS Y EL TERRITORIO.
+
+---
+
+# PROVIDENCIA DDP 1549
+
+**Número de Providencia (DDP 1549):** SP4896-2018
+**Radicación (DDP 1549):** 53606
+**Decisión (DDP 1549):** ．
+
+**Lista de Temas (DDP 1549):**
+COMPETENCIA TERRITORIAL PARA CONOCER DE UN HABEAS CORPUS.
+
+---
+
+# PROVIDENCIA DDP 1550
+
+**Número de Providencia (DDP 1550):** AUTO 125/18
+**Radicación (DDP 1550):** No especificado
+
+**Lista de Temas (DDP 1550):**
+LA COMPETENCIA TERRITORIAL PARA ASUMIR EL CONOCIMIENTO DE UN HABEAS CORPUS. RAD:
+
+---
+
+# PROVIDENCIA DDP 1551
+
+**Número de Providencia (DDP 1551):** AHP3319-2020
+**Radicación (DDP 1551):** 58599
+
+**Lista de Temas (DDP 1551):**
+EL HABEAS CORPUS CORRECTIVO.
+
+---
+
+# PROVIDENCIA DDP 1552
+
+**Número de Providencia (DDP 1552):** SP4758-2020
+**Radicación (DDP 1552):** 57228
+
+**Lista de Temas (DDP 1552):**
+(i) COMPETENCIA DE LA JUSTICIA PENAL MILITAR. 
+(ii) LA PRIVACIÓN ILEGAL DE LA LIBERTAD. 
+(iii) NULIDAD POR ADELANTAR EL PROCESO ANTE LA JURISDICCIÓN ORDINARIA.
+
+---
+
+# PROVIDENCIA DDP 1553
+
+**Número de Providencia (DDP 1553):** AP3110-2020
+**Radicación (DDP 1553):** 56134
+
+**Lista de Temas (DDP 1553):**
+(i) EL INTERVENTOR EN LA FASE DE LIQUIDACIÓN DE UN CONTRATO ESTATAL. 
+(ii) EL INTERVENTOR Y EL DELITO DE CONTRATO SIN CUMPLIMIENTO DE REQUISITOS LEGALES.
+
+---
+
+# PROVIDENCIA DDP 1554
+
+**Número de Providencia (DDP 1554):** No especificado
+**Radicación (DDP 1554):** 32964
+
+**Lista de Temas (DDP 1554):**
+(i) LA DETERMINACIÓN OPTATIVA O ALTERNATIVA. 
+(ii) EL DOLO. 
+(iii) EL DOLO EVENTUAL. 
+(iv) LA CULPA CON REPRESENTACIÓN. 
+(v) LA TEORÍA DE LA VOLUNTAD O DEL CONSENTIMIENTO. 
+(vi) LA TEORÍA DE LA PROBABILIDAD O DE LA REPRESENTACIÓN. 
+(vii) LA TESIS DE LA HABITUACIÓN AL RIESGO. 
+(viii) “LA REPRESENTACIÓN DE LA PROBABILIDAD DEL RESULTADO ANTIJURÍDICO”. (EL ARCHIVO TRAE DOS SALVAMENTOS DE VOTO).
+
+---
+
+# PROVIDENCIA DDP 1555
+
+**Número de Providencia (DDP 1555):** AP3212-2020
+**Radicación (DDP 1555):** 54228
+
+**Lista de Temas (DDP 1555):**
+(i) LA LÓGICA. 
+(ii) LA SANA CRÍTICA. 
+(iii) LAS REGLAS DE LA EXPERIENCIA.
+
+---
+
+# PROVIDENCIA DDP 1556
+
+**Número de Providencia (DDP 1556):** AP3218-2020
+**Radicación (DDP 1556):** 57213
+
+**Lista de Temas (DDP 1556):**
+(i) LA PRESCRIPCIÓN EN LOS DELITOS DE NATURALEZA SEXUAL CON VÍCTIMA MENOR DE EDAD. 
+(ii) EL PRINCIPIO DE TRASCENDENCIA Y LAS NULIDADES. 
+(iii) LA DEFENSA TÉCNICA.
+
+---
+
+# PROVIDENCIA DDP 1557
+
+**Número de Providencia (DDP 1557):** AP3219-2020
+**Radicación (DDP 1557):** 55551
+
+**Lista de Temas (DDP 1557):**
+(i) La supuesta “violación de la defensa técnica a partir de una serie de errores en la estrategia probatoria”. 
+(ii) “Los jueces pueden controlar la corrección de las preguntas del interrogatorio cruzado aun de manera oficiosa, como lo prevén los literales b), c) y e) del artículo 392 del c.p.p”. 
+(iii) El falso juicio de existencia.
+
+---
+
+# PROVIDENCIA DDP 1558
+
+**Número de Providencia (DDP 1558):** AP3085–2020
+**Radicación (DDP 1558):** 56165
+
+**Lista de Temas (DDP 1558):**
+(i) EL CONCURSO DE CONDUCTAS PUNIBLES Y EL DELITO MÁS GRAVE. 
+(ii) LOS CRITERIOS DOSIMÉTRICOS DELICTUALES Y POSTDELICTUALES.
+
+---
+
+# PROVIDENCIA DDP 1560
+
+**Número de Providencia (DDP 1560):** No especificado
+**Radicación (DDP 1560):** CUI 110016000106201502458 01
+
+**Lista de Temas (DDP 1560):**
+Providencia premiada como la mejor sentencia con enfoque de género del 2020.
+
+---
+
+# PROVIDENCIA DDP 1561
+
+**Número de Providencia (DDP 1561):** No especificado
+**Radicación (DDP 1561):** 52658
+
+**Lista de Temas (DDP 1561):**
+LA PRISIÓN DOMICILIARIA PARA EL PADRE O MADRE CABEZA DE FAMILIA. AP3221- 2020.
+
+---
+
+# PROVIDENCIA DDP 1562
+
+**Número de Providencia (DDP 1562):** AP3223-2020
+**Radicación (DDP 1562):** 52986
+
+**Lista de Temas (DDP 1562):**
+EL PROXENETISMO Y LA INDUCCIÓN A LA PROSTITUCIÓN. LA COACCIÓN. LAS MÁXIMAS DE LA EXPERIENCIA.
+
+---
+
+# PROVIDENCIA DDP 1563
+
+**Número de Providencia (DDP 1563):** AP3224-2020
+**Radicación (DDP 1563):** 53214
+
+**Lista de Temas (DDP 1563):**
+(i) EL DERECHO DE DEFENSA. 
+(ii) “ESTABLECIDA LA PRESENCIA FORMAL DE UN PROFESIONAL DEL DERECHO Y DE LA REALIZACIÓN DE ALGUNAS ACTUACIONES, SE DEBE ACREDITAR QUE ÉSTAS FUERON TAN TORPES, ABSURDAS Y TAN MANIFIESTAMENTE EQUIVOCADAS QUE DEJARON EN UNA INDEFENSIÓN MATERIAL AL PROCESADO QUE EXTENDIÓ SUS EFECTOS AL POSTERIOR DESARROLLO DEL JUICIO Y, EVENTUALMENTE, A LA DEFINICIÓN DEL PROCESO.”
+
+---
+
+# PROVIDENCIA DDP 1564
+
+**Número de Providencia (DDP 1564):** AP3225-2020
+**Radicación (DDP 1564):** 54299
+
+**Lista de Temas (DDP 1564):**
+(i) La motivación de las decisiones judiciales. 
+(ii) Finalidades de la prueba. 
+(iii) La utilización de palabras no propias del sistema.
+
+---
+
+# PROVIDENCIA DDP 1565
+
+**Número de Providencia (DDP 1565):** AP3226-2020
+**Radicación (DDP 1565):** 56076
+
+**Lista de Temas (DDP 1565):**
+(i) El principio de trascendencia en casación. 
+(ii) La finalidad de las estipulaciones. 
+(iii) El principio de congruencia.
+
+---
+
+# PROVIDENCIA DDP 1566
+
+**Número de Providencia (DDP 1566):** AP3229-2020
+**Radicación (DDP 1566):** 58365
+
+**Lista de Temas (DDP 1566):**
+(i) “La obligación de declarar y cancelar las sumas correspondientes al impuesto a las ventas recae en el representante legal” y no en otra persona. 
+(ii) La posibilidad de delegar dicha función.
+
+---
+
+# PROVIDENCIA DDP 1567
+
+**Número de Providencia (DDP 1567):** No especificado
+**Radicación (DDP 1567):** 58401
+
+**Lista de Temas (DDP 1567):**
+(i) El recurso de queja. 
+(ii) Las providencias judiciales y su cometido. 
+(iii) Las órdenes. AP3231- 2020.
+
+---
+
+# PROVIDENCIA DDP 1568
+
+**Número de Providencia (DDP 1568):** AHP3560-2020
+**Radicación (DDP 1568):** 58652
+
+**Lista de Temas (DDP 1568):**
+La favorabilidad el decreto 700 de 2017 en materia de habeas corpus.
+
+---
+
+# PROVIDENCIA DDP 1569
+
+**Número de Providencia (DDP 1569):** AHP3497-2020
+**Radicación (DDP 1569):** 58641
+
+**Lista de Temas (DDP 1569):**
+(i) El indispensable control judicial a toda captura. 
+(ii) La captura con ocasión del cumplimiento de la sentencia. 
+(iii) El vacío de interpretación del parágrafo 1° del artículo 298 de la ley 906 de 2004.
+
+---
+
+# PROVIDENCIA DDP 1570
+
+**Número de Providencia (DDP 1570):** AP3470-2020
+**Radicación (DDP 1570):** 57307
+
+**Lista de Temas (DDP 1570):**
+(i) LA ACCIÓN DE REVISIÓN “CUANDO SE DEMUESTRE QUE EL FALLO OBJETO DE PEDIMENTO DE REVISIÓN SE FUNDAMENTÓ, EN TODO O EN PARTE, EN PRUEBA FALSA FUNDANTE PARA SUS CONCLUSIONES.”. 
+(ii) ASUNTOS IMPROPIOS A LA ACCIÓN DE REVISÓN.
+
+---
+
+# PROVIDENCIA DDP 1571
+
+**Número de Providencia (DDP 1571):** AP294-2020
+**Radicación (DDP 1571):** 56431
+
+**Lista de Temas (DDP 1571):**
+(i) LA CASACIÓN Y LA LEY 522 DE 1999. 
+(ii) LA CASACIÓN DISCRECIONAL. 
+(iii) LO FAVORABLE, LO DESFAVORABLE Y LA FACTIBILIDAD DE RECOLECCIÓN (INVESTIGACIÓN INTEGRAL).
+
+---
+
+# PROVIDENCIA DDP 1572
+
+**Número de Providencia (DDP 1572):** AHP1906-2018
+**Radicación (DDP 1572):** 52704
+
+**Lista de Temas (DDP 1572):**
+(i) EL POSTERGAR LA AUDIENCIA DE LIBERTAD POR VECIMIENTO DE TÉRMINOS Y EL HABEAS CORPUS. 
+(ii) LA CITACIÓN A PARTES E INTERVINIENTES PARA QUE CONCURRAN A LA AUDIENCIA. 
+(iii) EL ENVÍO DE LA CARPETA ORIGINAL PARA REALIZAR LA AUDIENCIA. 
+(iv) EL VENCIMIENTO DEL TÉRMINO JUDICIAL PARA EL INICIO DEL JUICIO. 
+(v) UN HABEAS CORPUS QUE PROSPERA EN SEGUNDA INSTANCIA.
+
+---
+
+# PROVIDENCIA DDP 1573
+
+**Número de Providencia (DDP 1573):** AP3369–2020
+**Radicación (DDP 1573):** No especificado
+**Decisión (DDP 1573):** SEGUNDA INSTANCIA 58086.
+
+**Lista de Temas (DDP 1573):**
+(i) EL DESCUBRIMIENTO PROBATORIO. 
+(ii) EL RECHAZO DE LA PETICIÓN PROBATORIA.
+
+---
+
+# PROVIDENCIA DDP 1574
+
+**Número de Providencia (DDP 1574):** AP3326-2020
+**Radicación (DDP 1574):** 58445
+
+**Lista de Temas (DDP 1574):**
+(i) TRÁMITE DE LOS IMPEDIMENTOS Y RECUSACIONES DE LOS MAGISTRADOS. 
+(ii) LA MODIFICACIÓN DE LA SALA PENAL DE LA CORTE SUPREMA DE JUSTICIA. 
+(iii) TRÁMITE DE LOS IMPEDIMENTOS MANIFESTADOS POR LOS MAGISTRADOS DE LA SALA ESPECIAL DE JUZGAMIENTO DE PRIMERA INSTANCIA.
+
+---
+
+# PROVIDENCIA DDP 1575
+
+**Número de Providencia (DDP 1575):** AP3327-2020
+**Radicación (DDP 1575):** 1387-57813
+
+**Lista de Temas (DDP 1575):**
+(i) LOS BIENES OBJETO DE EXTINCIÓN DE DOMINIO EN JUSTICIA Y PAZ. 
+(ii) EL INCIDENTE DE IMPOSICIÓN DE MEDIDAS CAUTELARES A LOS BIENES SUSCEPTIBLES DE EXTINCIÓN DE DOMINIO. 
+(iii) PROCEDENCIA DE LAS MEDIDAS CAUTELARES. 
+(iv) EL INCIDENTE DE OPOSICIÓN.
+
+---
+
+# PROVIDENCIA DDP 1576
+
+**Número de Providencia (DDP 1576):** SENTENCIA T-441/20
+**Radicación (DDP 1576):** No especificado
+
+**Lista de Temas (DDP 1576):**
+VULNERACIÓN DEL DEBIDO PROCESO Y EL ACCESO A LA ADMINISTRACIÓN DE JUSTICIA POR MORA EN LA RESOLUCIÓN DE PROCESOS JUDICIALES.
+
+---
+
+# PROVIDENCIA DDP 1577
+
+**Número de Providencia (DDP 1577):** AP295-2020
+**Radicación (DDP 1577):** 56340
+
+**Lista de Temas (DDP 1577):**
+(i) EL PLAZO PARA ADELANTAR LA AUDIENCIA DE JUICIO ORAL. 
+(ii) EL PRINCIPIO DE CONCENTRACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1578
+
+**Número de Providencia (DDP 1578):** AP3329-2020
+**Radicación (DDP 1578):** 56180
+
+**Lista de Temas (DDP 1578):**
+SE ADOPTA UN CRITERIO DIFERENTE A LO EXPUESTO EN LA STC 4969-2020 Y NO SE APLICA LA FAVORABILIDAD DE LA LEY 600 DE 2000 EN LO QUE ATAÑE A LA CAPTURA AL ANUNCIAR SENTIDO DEL FALLO CONDENATORIO.
+
+---
+
+# PROVIDENCIA DDP 1579
+
+**Número de Providencia (DDP 1579):** AP3400-2020
+**Radicación (DDP 1579):** 58527
+
+**Lista de Temas (DDP 1579):**
+(i) El impedimento cuando el funcionario judicial haya manifestado su opinión sobre el asunto materia del proceso.  
+(ii) La opinión debe estar “relacionada con las premisas fácticas y jurídicas comprendidas en el juicio de reproche en contra de quien es procesado en el trámite donde se expresa el impedimento o la recusación, permitiendo anticipar el criterio del funcionario frente a la responsabilidad que pudiese asistirle”. 
+(iii) El conocimiento previo y la opinión antecedente del asunto.
+
+---
+
+# PROVIDENCIA DDP 1580
+
+**Número de Providencia (DDP 1580):** SP1852-2018
+**Radicación (DDP 1580):** 43257
+
+**Lista de Temas (DDP 1580):**
+(i) LOS PRINCIPIOS DE CONCENTRACIÓN E INMEDIACIÓN PROBATORIA. 
+(ii) EL CAMBIO DE JUEZ. 
+(iii) LAS DECLARACIONES ANTERIORES AL JUICIO ORAL EN LOS DELITOS DE NATURALEZA SEXUAL CONTRA MENORES. 
+(iv) LA PRUEBA DE REFERENCIA. 
+(v) LOS POSTULADOS DE LA SANA CRÍTICA. 
+(vi) LA CÁMARA GESELL.
+
+---
+
+# PROVIDENCIA DDP 1581
+
+**Número de Providencia (DDP 1581):** AP3300-2020
+**Radicación (DDP 1581):** 56650
+
+**Lista de Temas (DDP 1581):**
+(i) RECHAZO DE UN ELEMENTO MATERIAL PROBATORIO COMO SANCIÓN POR INCUMPLIMIENTO AL DEBER DE DESCUBRIMIENTO. 
+(ii) LA CALIDAD DE DOCUMENTO PÚBLICO DE UN AUDIO QUE DA CUENTA DE UNA AUDIENCIA. 
+(iii) LA INCORPORACIÓN DEL DOCUMENTO PÚBLICO.
+
+---
+
+# PROVIDENCIA DDP 1582
+
+**Número de Providencia (DDP 1582):** AP3457-2020
+**Radicación (DDP 1582):** 58489
+
+**Lista de Temas (DDP 1582):**
+(i) LA PERTINENCIA DEL MEDIO PROBATORIO. 
+(ii) LA CONDUCENCIA Y UTILIDAD. 
+(iii) LA FALTA DE CONDUCENCIA Y EL DEBER DE ALEGARLA.
+
+---
+
+# PROVIDENCIA DDP 1583
+
+**Número de Providencia (DDP 1583):** SP171-2020
+**Radicación (DDP 1583):** 49634
+
+**Lista de Temas (DDP 1583):**
+(i) APRECIACIÓN DEL TESTIMONIO DE LOS NIÑOS QUE HAN SIDO SUJETOS PASIVOS DE LA PRESUNTA COMISIÓN DE UN DELITO SEXUAL. 
+(ii) SÍNDROME DE ALIENACIÓN PARENTAL.
+
+---
+
+# PROVIDENCIA DDP 1584
+
+**Número de Providencia (DDP 1584):** SP097-2020
+**Radicación (DDP 1584):** 47460
+
+**Lista de Temas (DDP 1584):**
+i) DIFERENCIA ENTRE EL CONCURSO REAL Y EL CONCURSO APARENTE DE DELITOS. ii) ESTRUCTURA TÍPICA DEL LAVADO DE ACTIVOS Y DEL ENRIQUECIMIENTO ILÍCITO DE PARTICULARES. iii) “CRITERIO DE LA CORTE SOBRE LA POSIBILIDAD DE UN CONCURSO REAL ENTRE AMBAS CONDUCTAS.”
+
+---
+
+# PROVIDENCIA DDP 1585
+
+**Número de Providencia (DDP 1585):** SP4763-2020
+**Radicación (DDP 1585):** 51642
+
+**Lista de Temas (DDP 1585):**
+(i) LA IRA O INTENSO DOLOR. 
+(ii) TEORÍA SUBJETIVA O DEL ANIMUS AUCTORIS. 
+(iii) EL DOMINIO DEL HECHO Y LA COMPLICIDAD.
+
+---
+
+# PROVIDENCIA DDP 1586
+
+**Número de Providencia (DDP 1586):** SP4788-2020
+**Radicación (DDP 1586):** 56832
+
+**Lista de Temas (DDP 1586):**
+(i) EL ERROR EN LA CALIFICACIÓN JURÍDICA Y LA CASACIÓN. 
+(ii) UN HURTO AGRAVADO POR LA CONFIANZA. 
+(iii) EL SIGNIFICADO DE LA CONFIANZA EN EL ÁMBITO JURÍDICO. 
+(iv) EL HURTO CONTINUADO.
+
+---
+
+# PROVIDENCIA DDP 1587
+
+**Número de Providencia (DDP 1587):** SP4789-2020
+**Radicación (DDP 1587):** 54622
+
+**Lista de Temas (DDP 1587):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LA CONFIGURACIÓN DEL PREVARICATO POR ACCIÓN RESPECTO DE DECISIONES PROFERIDAS POR FUNCIONARIOS JUDICIALES. 
+(iii) LA CERTEZA PARA CONDENAR. 
+(iv) EL TEMA DE PRUEBA Y EL MEDIO DE PRUEBA. 
+(v) LA PRUEBA DE REFERENCIA.
+
+---
+
+# PROVIDENCIA DDP 1588
+
+**Número de Providencia (DDP 1588):** SP4235–2020
+**Radicación (DDP 1588):** 51626
+
+**Lista de Temas (DDP 1588):**
+(i) El juez o magistrado que por su función debe resolver aspectos relacionados con la preparación del juicio y un presunto impedimento. 
+(ii) El dolo y el móvil. 
+(iii) El delito de pornografía con personas menores de 18 años.
+
+---
+
+# PROVIDENCIA DDP 1589
+
+**Número de Providencia (DDP 1589):** AEP001-2020
+**Radicación (DDP 1589):** 47255
+
+**Lista de Temas (DDP 1589):**
+(i) EFECTOS PROCESALES DE LOS ERRORES EN EL TRÁMITE DE NOTIFICACIÓN DE LAS DECISIONES JUDICIALES. 
+(ii) LA OBLIGACIÓN DE CORREGIR LOS ACTOS IRREGULARES.
+
+---
+
+# PROVIDENCIA DDP 1590
+
+**Número de Providencia (DDP 1590):** AEP003-2020
+**Radicación (DDP 1590):** 52939
+
+**Lista de Temas (DDP 1590):**
+(i) ADMISIÓN DE PARTE CIVIL. 
+(ii) LA OBLIGACIÓN DE CONSTITUCIÓN DE PARTE CIVIL DENTRO DEL PROCESO PENAL EN LOS CASOS EN QUE SE PROCEDA POR UN DELITO CONTRA LA ADMINISTRACIÓN PÚBLICA. 
+(iii) LA LEGITIMIDAD DE LA CONTRALORÍA GENERAL DE LA REPÚBLICA PARA INTERVENIR EN ESTOS CASOS.
+
+---
+
+# PROVIDENCIA DDP 1591
+
+**Número de Providencia (DDP 1591):** No especificado
+**Radicación (DDP 1591):** CUI 66001-60-000-00-2011-00002-01
+
+**Lista de Temas (DDP 1591):**
+(i) EL DERECHO PENAL DE ACTO. 
+(ii) REQUISITOS PARA QUE SE CONFIGURE EL CONCIERTO PARA DELINQUIR. 
+(iii) LOS DELITOS DE PELIGRO Y EL CONCIERTO PARA DELINQUIR. 
+(iv) LA RETRACTACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1592
+
+**Número de Providencia (DDP 1592):** SENTENCIA C-411/15
+**Radicación (DDP 1592):** No especificado
+
+**Lista de Temas (DDP 1592):**
+(i) LA DETENCIÓN DOMICILIARIA. 
+(ii) LA PRISIÓN DOMICILIARIA. 
+(iii) INCUMPLIMIENTO DE LAS OBLIGACIONES IMPUESTAS.
+
+---
+
+# PROVIDENCIA DDP 1593
+
+**Número de Providencia (DDP 1593):** AP234-2020
+**Radicación (DDP 1593):** 56036
+
+**Lista de Temas (DDP 1593):**
+Las reglas de la experiencia.
+
+---
+
+# PROVIDENCIA DDP 1594
+
+**Número de Providencia (DDP 1594):** AP219-2020
+**Radicación (DDP 1594):** 56097
+
+**Lista de Temas (DDP 1594):**
+(i) El concierto para delinquir agravado y la suspensión condicional de la ejecución de la pena. 
+(ii) Los preacuerdos y las negociaciones. 
+(iii) El texto de lo acordado entre las partes equivale al escrito de acusación.
+
+---
+
+# PROVIDENCIA DDP 1595
+
+**Número de Providencia (DDP 1595):** STP7466-2020
+**Radicación (DDP 1595):** 112443
+
+**Lista de Temas (DDP 1595):**
+(i) “En virtud de la sentencia SU-479 del 2019 de la Corte Constitucional, los jueces, ante una terminación anticipada del proceso, están obligados a verificar los presupuestos establecidos en el ordenamiento jurídico para emitir condena.”. 
+(ii) El referente obligado en esta materia. 
+(iii) La nulidad en sede de segunda instancia. 
+(iv) La prohibición de reforma peyorativa.
+
+---
+
+# PROVIDENCIA DDP 1596
+
+**Número de Providencia (DDP 1596):** SP2848-2020
+**Radicación (DDP 1596):** 53872
+
+**Lista de Temas (DDP 1596):**
+“La protección abstracta de la vida, honra, bienes, creencias y demás derechos y libertades que a las autoridades de la república les asigna el artículo 2 de la Carta Política, no puede ser confundida con la exigida en el 25 de la Ley 599 de 2000, para atribuirle al servidor público la comisión de un delito por omisión”.
+
+---
+
+# PROVIDENCIA DDP 1597
+
+**Número de Providencia (DDP 1597):** SP4225-2020
+**Radicación (DDP 1597):** 51478
+
+**Lista de Temas (DDP 1597):**
+(i) LA NEGOCIACIÓN DE LOS BENEFICIOS EN LOS PREACUERDOS. 
+(ii) MODALIDADES DE PREACUERDO EN QUE SE CAMBIA LA CALIFICACIÓN JURÍDICA SIN BASE FÁCTICA. 
+(iii) LA DISCRECIONALIDAD REGLADA. 
+(iv) EL OBRAR EN ESTADO DE MARGINALIDAD COMO PREACUERDO. (A.V. i) EL CONTROL CONSTITUCIONAL FORMAL Y MATERIAL DEL PREACUERDO. (A.V. ii) LOS FINES DE LOS PREACUERDOS. (A.V. iii) LOS LÍMITES DE LOS PREACUERDOS. (A.V. iv) LAS REBAJAS DE PENA COMO BENEFICIO. (AV. v) CONDUCTAS PUNIBLES EXCLUIDAS DE LAS NEGOCIACIONES. (A.V. vi) LAS HIPÓTESIS MÁS PLAUSIBLES DE LA FISCALÍA Y LA DEFENSA. (A.V. vii) MÍNIMO DE PRUEBA EN LOS PREACUERDOS CONFORME A LA SU479 DE 2019.
+
+---
+
+# PROVIDENCIA DDP 1598
+
+**Número de Providencia (DDP 1598):** SP4091-2020
+**Radicación (DDP 1598):** 53434
+
+**Lista de Temas (DDP 1598):**
+(i) EL PRINCIPIO DE NO RETRACTACIÓN POR EL CUAL SE RIGEN LOS ALLANAMIENTOS. 
+(ii) EL INTERVINIENTE. 
+(iii) LA FALSEAD IDEOLÓGICA EN DOCUMENTO PÚBLICO. 
+(iv) LA OBTENCIÓN DE DOCUMENTO PÚBLICO FALSO. 
+(v) LA DEGRADACIÓN DE UN DELITO. 
+(vi) EL DISLATE DE PRIVAR DEL EJERCICIO DE UN DERECHO QUE NO SE TIENE.
+
+---
+
+# PROVIDENCIA DDP 1599
+
+**Número de Providencia (DDP 1599):** AP124-2020
+**Radicación (DDP 1599):** 56890
+
+**Lista de Temas (DDP 1599):**
+(i) PASOS NECESARIOS PARA EL CAMBIO DE RADICACIÓN. 
+(ii) EL ESTUDIO PREVIO DEL TRIBUNAL. 
+(iii) LA DOCUMENTACIÓN REQUERIDA.
+
+---
+
+# PROVIDENCIA DDP 1600
+
+**Número de Providencia (DDP 1600):** AP127-2020
+**Radicación (DDP 1600):** 53630
+
+**Lista de Temas (DDP 1600):**
+(i) LA SOLICITUD DE PRECLUSIÓN Y SU TRÁMITE. 
+(ii) LA ESTRUCTURA JURÍDICA DEL PREVARICATO POR OMISIÓN.
+
+---
+
+# PROVIDENCIA DDP 1601
+
+**Número de Providencia (DDP 1601):** SENTENCIA C-429/20
+**Radicación (DDP 1601):** No especificado
+
+**Lista de Temas (DDP 1601):**
+RESTRICCIONES A LA PUBLICIDAD DE LAS AUDIENCIAS PENALES POR MOTIVOS DE INTERÉS DE LA JUSTICIA.
+
+---
+
+# PROVIDENCIA DDP 1602
+
+**Número de Providencia (DDP 1602):** SENTENCIA C-276/19
+**Radicación (DDP 1602):** No especificado
+
+**Lista de Temas (DDP 1602):**
+LA POLICÍA JUDICIAL PUEDE DIVULGAR LAS ÓRDENES DE CAPTURA A TRAVÉS DE LOS MEDIOS DE COMUNICACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1603
+
+**Número de Providencia (DDP 1603):** SP3468-2020
+**Radicación (DDP 1603):** 56013
+
+**Lista de Temas (DDP 1603):**
+(i) PRESCRIPCIÓN DE LA ACCIÓN PENAL. 
+(ii) INTERRUPCIÓN DEL TÉRMINO DE PRESCRIPCIÓN. 
+(iii) EL DÍA EXACTO EN QUE INICIA EL CONTEO POR LA MITAD DEL TIEMPO INICIAL. 
+(iv) EL CÓMPUTO DE TÉRMINOS.
+
+---
+
+# PROVIDENCIA DDP 1604
+
+**Número de Providencia (DDP 1604):** AP677-2020
+**Radicación (DDP 1604):** 56349
+
+**Lista de Temas (DDP 1604):**
+(i) SIGNIFICADO DEL PRINCIPIO DE CORRECCIÓN MATERIAL. 
+(ii) LAS FALACIAS. 
+(iii) LA FALACIA DE LA CAUSA FALSA.
+
+---
+
+# PROVIDENCIA DDP 1605
+
+**Número de Providencia (DDP 1605):** SP4262-2020
+**Radicación (DDP 1605):** 56520
+
+**Lista de Temas (DDP 1605):**
+ALCANCE DEL ARTÍCULO 448 DEL CÓDIGO DE PROCEDIMIENTO PENAL Y LA AUSENCIA DE MANIFESTACIÓN EXPRESA SOBRE SOLICITUD DE CONDENA EN LA ALEGACIÓN DE CIERRE.
+
+---
+
+# PROVIDENCIA DDP 1606
+
+**Número de Providencia (DDP 1606):** SP4054-2020
+**Radicación (DDP 1606):** 54996
+
+**Lista de Temas (DDP 1606):**
+(i) LA IMPUTACIÓN FÁCTICA. 
+(ii) LA CONGRUENCIA. 
+(iii) NO ES VIABLE CONVALIDAR LA OMISIÓN DE LA IMPUTACIÓN FÁCTICA.
+
+---
+
+# PROVIDENCIA DDP 1607
+
+**Número de Providencia (DDP 1607):** SP4093-2020
+**Radicación (DDP 1607):** 58081
+
+**Lista de Temas (DDP 1607):**
+(i) LA INASISTENCIA ALIMENTARIA. 
+(ii) “EL CARÁCTER JUSTO O INJUSTO DE LA INFRACCIÓN AL DEBER DE ASISTENCIA ALIMENTARIA”.
+
+---
+
+# PROVIDENCIA DDP 1608
+
+**Número de Providencia (DDP 1608):** No especificado
+**Radicación (DDP 1608):** CUI 050016000248201405880
+
+**Lista de Temas (DDP 1608):**
+(i) LA ATIPICIDAD DEL HECHO INVESTIGADO Y LA PRECLUSIÓN. 
+(ii) ATIPICIDAD DEL HECHO INVESTIGADO FRENTE A LA INEXISTENCIA DEL HECHO.
+
+---
+
+# PROVIDENCIA DDP 1609
+
+**Número de Providencia (DDP 1609):** SP3812-2020
+**Radicación (DDP 1609):** 54460
+
+**Lista de Temas (DDP 1609):**
+(i) EL ANÁLISIS PROBATORIO DE LAS ENTREVISTAS ANTERIORES DE LA VÍCTIMA. 
+(ii) LO DICHO ANTE EL MÉDICO LEGISTA Y OTROS PROFESIONALES DE LA SALUD.
+
+---
+
+# PROVIDENCIA DDP 1610
+
+**Número de Providencia (DDP 1610):** SP2933-2020
+**Radicación (DDP 1610):** 52525
+
+**Lista de Temas (DDP 1610):**
+(i) EL DERECHO A LA ALIMENTACIÓN. 
+(ii) LA FIJACIÓN DE LA CUOTA DE ALIMENTOS. 
+(iii) LAS MODIFICACIONES A LA CUOTA ALIMENTARIA. 
+(iv) EL AUMENTO UNILATERAL DE LA CUOTA DE ALIMENTOS Y EL DELITO DE INASISTENCIA ALIMENTARIA.
+
+---
+
+# PROVIDENCIA DDP 1611
+
+**Número de Providencia (DDP 1611):** AP076-2020
+**Radicación (DDP 1611):** 56223
+
+**Lista de Temas (DDP 1611):**
+(i) LA INADMISIBILIDAD DE LOS MEDIOS DE PRUEBA. 
+(ii) LA CONDUCENCIA, PERTINENCIA Y UTILIDAD DE LAS PRUEBAS. 
+(iii) LOS MEDIOS DE CONOCIMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1612
+
+**Número de Providencia (DDP 1612):** PROVIDENCIA. AP053-2020
+**Radicación (DDP 1612):** 56311
+
+**Lista de Temas (DDP 1612):**
+(i) LA POSIBILIDAD DE SOLICITAR LA ACLARACIÓN O ADICIÓN DE LAS DECISIONES QUE SE PROFIERAN EN EL TRÁMITE DE LA LEY 600 DE 2000. 
+(ii) INTEGRACIÓN NORMATIVA CON EL CÓDIGO GENERAL DEL PROCESO. 
+(iii) PROCEDENCIA DE LA SOLICITUD DE ADICIÓN DE LA SENTENCIA. 
+(iv) LA EJECUTORIA DE LA PROVIDENCIA Y LOS EFECTOS JURÍDICOS DE LA
+
+---
+
+# PROVIDENCIA DDP 1613
+
+**Número de Providencia (DDP 1613):** No especificado
+**Radicación (DDP 1613):** CUI 520016009903220170720101
+
+**Lista de Temas (DDP 1613):**
+(i) EL PROCEDIMIENTO PENAL ESPECIAL ABREVIADO. 
+(ii) LA ENTRADA EN VIGENCIA DE LA LEY 1826 DE 2017. 
+(iii) LA FAVORABILIDAD DE LA LEY 1826 DE 2017. 
+(iv) LAS CRICUNSTANCIAS DE AGRAVACIÓN PUNITIVA DEL ARTÍCULO 267 PENAL SUSTANTIVO Y LA EVENTUALIDAD DE NUEVAS CONDUCTAS PUNIBLES.
+
+---
+
+# PROVIDENCIA DDP 1614
+
+**Número de Providencia (DDP 1614):** SENTENCIA C-225/19
+**Radicación (DDP 1614):** No especificado
+
+**Lista de Temas (DDP 1614):**
+LA FAVORABILIDAD Y LA LEY 1826 DE 2017.
+
+---
+
+# PROVIDENCIA DDP 1615
+
+**Número de Providencia (DDP 1615):** AEP 021-2020
+**Radicación (DDP 1615):** 00092
+
+**Lista de Temas (DDP 1615):**
+(i) AUDIENCIA PREPARATORIA EN LA LEY 600 DE 2000. 
+(ii) EL DECRETO DE PRUEBAS. 
+(iii) LA REPETICIÓN DE UNA PRUEBA.
+
+---
+
+# PROVIDENCIA DDP 1616
+
+**Número de Providencia (DDP 1616):** AP666-2020
+**Radicación (DDP 1616):** 56602
+
+**Lista de Temas (DDP 1616):**
+(i) LA REVISIÓN Y EL CAMBIO DEL CRITERIO JURÍDICO QUE SIRVIÓ DE BASE PARA CONDENAR. 
+(ii) “JUSTIFICACIÓN DEL AUMENTO GENERALIZADO DE PENAS, INCORPORADO CON EN EL ARTÍCULO 14 DE LA LEY 890 DE 2004”. 
+(iii) EXCEPCIÓN AL AUMENTO PUNITIVO DISPUESTO EN LA REGLA 14 DE LA LEY 890 DE 2004.
+
+---
+
+# PROVIDENCIA DDP 1617
+
+**Número de Providencia (DDP 1617):** AP671-2020
+**Radicación (DDP 1617):** 57057
+
+**Lista de Temas (DDP 1617):**
+(i) VIABILIDAD DE DEFINIR NUEVAMENTE LA COMPETENCIA. 
+(ii) FASES DE LA AUDIENCIA DE ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1618
+
+**Número de Providencia (DDP 1618):** STP7579-2020
+**Radicación (DDP 1618):** 111588
+
+**Lista de Temas (DDP 1618):**
+(i) EL DEFECTO PROCEDIMENTAL ABSOLUTO. 
+(ii) PRECEDENTE DE LA CORTE, SALA DE CASACIÓN PENAL, FRENTE AL RECURSO DE APELACIÓN CONTRA EL RECHAZO DE PLANO DE LA SOLICITUD DE PRECLUSIÓN. 
+(iii) EL RECURSO DE QUEJA. 
+(iv) “EL DEBATE QUE SE PUEDE GENERAR RESPECTO DE SI PROCEDE O NO EL RECURSO DE ALZADA CONTRA UNA DECISIÓN, CORRESPONDE DEFINIRLO A TRAVÉS DEL RECURSO DE QUEJA Y POR EL SUPERIOR FUNCIONAL DE LA AUTORIDAD JUDICIAL …”.
+
+---
+
+# PROVIDENCIA DDP 1619
+
+**Número de Providencia (DDP 1619):** SP2876-2020
+**Radicación (DDP 1619):** 55135
+
+**Lista de Temas (DDP 1619):**
+(i) “Se proscribe que el juez pueda decidir con base en su conocimiento privado en detrimento de los derechos de las partes a presentar, conocer y controvertir las pruebas que conduzcan a la verdad declarada en el proceso”. 
+(ii) En justicia y paz “resulta trascedente el aporte de elementos materiales de prueba que sustenten los cargos atribuidos, pues no basta la sola confesión del postulado para dar por demostrado tanto la ocurrencia de los hechos como su probable participación en los mismos y por ende su consiguiente responsabilidad penal.”.  
+(iii) Nulidad en justicia y paz.
+
+---
+
+# PROVIDENCIA DDP 1620
+
+**Número de Providencia (DDP 1620):** AP676-2020
+**Radicación (DDP 1620):** 54281
+
+**Lista de Temas (DDP 1620):**
+(i) NO ES VIABLE ABRIR UN INCIDENTE DE TASACIÓN DE PERJUICIOS ANTES DE LA EJECUTORIA DE LA SENTENCIA CONDENATORIA. 
+(ii) EL JUEZ NO PUEDE “ORDENAR PRUEBAS DE OFICIO TENDIENTES A DILUCIDAR LA VALORACIÓN DE LOS PERJUICIOS”. 
+(iii) POSIBILIDAD DE TASAR LOS PERJUICIOS POR MUTUO ACUERDO ANTES DEL FALLO.
+
+---
+
+# PROVIDENCIA DDP 1621
+
+**Número de Providencia (DDP 1621):** AP1612-2020
+**Radicación (DDP 1621):** 53116
+
+**Lista de Temas (DDP 1621):**
+(i) LA INVALIDEZ DE LOS ACTOS PROCESALES. 
+(ii) LOS ERRORES DE HECHO. 
+(iii) LOS ERRORES DE DERECHO. 
+(iv) LA FALTA DE MOTIVACIÓN DE LA SENTENCIA. 
+(v) POSTULADOS DE PROTECCIÓN, CONVALIDACIÓN, TRASCENDENCIA Y RESIDUALIDAD. 
+(vi) LA INMEDIACIÓN Y LA CONCENTRACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1622
+
+**Número de Providencia (DDP 1622):** AP1531–2020
+**Radicación (DDP 1622):** No especificado
+**Decisión (DDP 1622):** RECURSO DE QUEJA 1191/57754.
+
+**Lista de Temas (DDP 1622):**
+(i) LOS BENEFICIOS DEL DECRETO 546 DE 2020 Y EL RÉGIMEN DE RECURSOS. 
+(ii) “SI SE TRATA DE DETENCIÓN DOMICILIARIA TRANSITORIA, PROCEDE LA APELACIÓN. PERO SI SE ESTÁ FRENTE A LA FIGURA DE LA PRISIÓN DOMICILIARIA TRANSITORIA, SOLO CABE LA REPOSICIÓN.”.
+
+---
+
+# PROVIDENCIA DDP 1623
+
+**Número de Providencia (DDP 1623):** AP1555-2020
+**Radicación (DDP 1623):** 55110
+
+**Lista de Temas (DDP 1623):**
+(i) LA POSTULACIÓN EN EL RECURSO DE CASACIÓN. 
+(ii) LA FALTA DEL AUDIO CONTENTIVO DE UNA AUDIENCIA. 
+(iii) EL DESCUENTO PUNITIVO POR ALLANAMIENTO A LOS CARGOS EN LA IMPUTACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1624
+
+**Número de Providencia (DDP 1624):** AP1412–2020
+**Radicación (DDP 1624):** No especificado
+**Decisión (DDP 1624):** SEGUNDA INSTANCIA No. 55780.
+
+**Lista de Temas (DDP 1624):**
+(i) IMPEDIMENTOS. 
+(ii) TENER EL FUNCIONARIO O UN PARIENTE SUYO INTERÉS EN LA ACTUACIÓN PROCESAL. 
+(iii) RESPLADO INTELECTUAL FINCADO EN EL NEXO DE SANGRE.
+
+---
+
+# PROVIDENCIA DDP 1625
+
+**Número de Providencia (DDP 1625):** AP689–2020
+**Radicación (DDP 1625):** 54193
+
+**Lista de Temas (DDP 1625):**
+(i) EL SILOGISMO. 
+(ii) EL QUE NADA DEBE NADA TEME. 
+(iii) EL INDUBIO PRO REO EN CASACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1626
+
+**Número de Providencia (DDP 1626):** SENTENCIA T-374/20
+**Radicación (DDP 1626):** No especificado
+
+**Lista de Temas (DDP 1626):**
+(i) EL ROL DE LAS VÍCTIMAS EN EL PROCESO PENAL DE TENDENCIA ACUSATORIA. 
+(ii) EL ALCANCE DE LA GARANTÍA DE ACCESO A LA INFORMACIÓN EN LA ETAPA DE INDAGACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1627
+
+**Número de Providencia (DDP 1627):** SENTENCIA T-387/20
+**Radicación (DDP 1627):** No especificado
+
+**Lista de Temas (DDP 1627):**
+CONFLICTO DE COMPETENCIA ENTRE JURISDICCION INDIGENA Y JURISDICCION ORDINARIA EN PROCESO PENAL POR VIOLENCIA INTRAFAMILIAR.
+
+---
+
+# PROVIDENCIA DDP 1628
+
+**Número de Providencia (DDP 1628):** AP7109-2016
+**Radicación (DDP 1628):** 46148
+
+**Lista de Temas (DDP 1628):**
+(i) Procedencia de la preclusión. 
+(ii) Elementos del prevaricato por omisión. 
+(iii) Fines de la medida de aseguramiento. 
+(iv) Necesidad de la asegurativa. 
+(v) Peligro para la comunidad.
+
+---
+
+# PROVIDENCIA DDP 1629
+
+**Número de Providencia (DDP 1629):** SENTENCIA Y LA LIBERTAD. SENTENCIA C-1260/05
+**Radicación (DDP 1629):** No especificado
+
+**Lista de Temas (DDP 1629):**
+(i) CAMBIOS QUE INTRODUJO EL SISTEMA PENAL DE TENDENCIA ACUSATORIA. 
+(ii) LA SENTENCIA ANTICIPADA. 
+(iii) LA RENUNCIA A LA ETAPA DEL JUICIO. 
+(iv) EL DERECHO DE DEFENSA DESDE ANTES DE LA IMPUTACIÓN. 
+(v) AUTONOMÍA E INDEPENDENCIA DE LA FISCALÍA. 
+(vi) RESERVA DE IDENTIDAD DE UN INFORMANTE. 
+(vii) LOS CAMBIOS EN MATERIA PROBATORIA DEL SISTEMA CON TENDENCIA ACUSATORIA. 
+(viii) PRINCIPIOS DE TAXATIVIDAD PENAL, RESERVA PENAL Y LEGALIDAD. 
+(xi) LOS PREACUERDOS. 
+(x) LA
+
+---
+
+# PROVIDENCIA DDP 1630
+
+**Número de Providencia (DDP 1630):** SENTENCIA C-645/12
+**Radicación (DDP 1630):** No especificado
+
+**Lista de Temas (DDP 1630):**
+(i) BENEFICIO DE REBAJA DE LA PENA EN CASOS DE FLAGRANCIA. 
+(ii) PRINCIPIO DE PROGRESIVIDAD DE LAS REBAJAS. 
+(iii) LÍMITES A LA POTESTAD DE CONFIGURACION LEGISLATIVA EN MATERIA PENAL. 
+(iv) TERMINACIÓN ANTICIPADA DEL PROCESO PENAL Y ACEPTACIÓN TOTAL O PARCIAL DE CARGOS. 
+(v) INTERPRETACION ANALOGICA IN MALAM PARTEM.
+
+---
+
+# PROVIDENCIA DDP 1631
+
+**Número de Providencia (DDP 1631):** SP1270-2020
+**Radicación (DDP 1631):** 52571
+
+**Lista de Temas (DDP 1631):**
+(i) ELEMENTOS ESTRUCTURALES DEL DELITO DE VIOLENCIA INTRAFAMILIAR. 
+(ii) LA UTILIZACIÓN DE DECLARACIONES ANTERIORES CON FINES DE IMPUGNACIÓN. 
+(iii) LA CIRCUNSTANCIA DE AGRAVACIÓN CONSAGRADA EN EL INCISO SEGUNDO DEL ARTÍCULO 229 DEL CÓDIGO PENAL.
+
+---
+
+# PROVIDENCIA DDP 1632
+
+**Número de Providencia (DDP 1632):** AP-2020
+**Radicación (DDP 1632):** 56259
+
+**Lista de Temas (DDP 1632):**
+(i) LA EXISTENCIA DE UNA CAUSAL DE EXTINCIÓN DE LA ACCIÓN PENAL COMO FUNDAMENTO DE LA REVISIÓN. 
+(ii) LA FAVORABILIDAD DEL PROCEDIMIENTO PENAL ESPECIAL ABREVIADO. 
+(iii) LA REPARACIÓN INTEGRAL A LA VÍCTIMA DEL DELITO DE HURTO CALIFICADO Y AGRAVADO NO EXTINGUE LA ACCIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1633
+
+**Número de Providencia (DDP 1633):** SP1298–2020
+**Radicación (DDP 1633):** 53797
+
+**Lista de Temas (DDP 1633):**
+(i) LA PENA Y LOS PRINCIPIOS DE NECESIDAD, PROPORCIONALIDAD Y RAZONABILIDAD. 
+(ii) EL DEBER DE JUSTIFICAR LA INDIVIDUALIZACIÓN DE LA SANCIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1634
+
+**Número de Providencia (DDP 1634):** No especificado
+**Radicación (DDP 1634):** T 473
+
+**Lista de Temas (DDP 1634):**
+(i) LA IDENTIDAD Y DIGNIDAD DE LOS INDÍGENAS PRIVADOS DE LA LIBERTAD. 
+(ii) LA NATURALEZA DEL DELITO Y/O LA MANERA CÓMO OCURRIERON LOS HECHOS, NO SON RAZONES PARA DENEGAR LA CONDICIÓN CULTURAL DEL INDÍGENA. 
+(iii) POR EL DOMICILIO O LUGAR DE RESIDENCIA NO ES POSIBLE CONCLUIR LA AUSENCIA DE IDENTIDAD INDÍGENA.
+
+---
+
+# PROVIDENCIA DDP 1635
+
+**Número de Providencia (DDP 1635):** SP–2020
+**Radicación (DDP 1635):** 54131
+
+**Lista de Temas (DDP 1635):**
+(i) ELEMENTOS DE LA ESTAFA. 
+(ii) LA ESTAFA CON LAS ACCIONES A PROPIO RIESGO O LA AUTO PUESTA EN PELIGRO. 
+(iii) EL RESTABLECIMIENTO DEL DERECHO.
+
+---
+
+# PROVIDENCIA DDP 1636
+
+**Número de Providencia (DDP 1636):** AP-2020
+**Radicación (DDP 1636):** 45058
+
+**Lista de Temas (DDP 1636):**
+(i) EL SILENCIO ADMINISTRATIVO Y EL PROCESO PENAL. 
+(ii) EL DERECHO DE PETICIÓN Y EL DERECHO DE POSTULACIÓN. 
+(iii) LA SUSPENSIÓN DE LA PRESCRIPCIÓN. 
+(iv) LA INTERRUPCIÓN DE LA PRESCRIPCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1637
+
+**Número de Providencia (DDP 1637):** STP3481-2020
+**Radicación (DDP 1637):** 109918
+
+**Lista de Temas (DDP 1637):**
+(i) VULNERACIÓN DE LOS DERECHOS FUNDAMENTALES AL DEBIDO PROCESO Y ACCESO A LA ADMINISTRACIÓN DE JUSTICIA PARA UNA VÍCTIMA. 
+(ii) PARTICIPACIÓN DE LAS VÍCTIMAS EN TODA LA ACTUACIÓN PROCESAL PENAL Y NO SOLO EN EL PROCESO. 
+(iii) EL RECONOCIMIENTO DE LA CONDICIÓN DE VÍCTIMA.
+
+---
+
+# PROVIDENCIA DDP 1638
+
+**Número de Providencia (DDP 1638):** AP946-2020
+**Radicación (DDP 1638):** 56399
+
+**Lista de Temas (DDP 1638):**
+(i) INTERÉS PARA RECURRIR EN CASACIÓN PESE A NO IMPUGNAR LA SENTENCIA DE PRIMERA INSTANCIA. 
+(ii) EL CONCEPTO DE UNIDAD TEMÁTICA. 
+(iii) EL PRINCIPIO LÓGICO DE RAZÓN SUFICIENTE. 
+(iv) EL EXTRANEUS EN EL PECULADO POR APROPIACIÓN. 
+(v) LA INVESTIGACIÓN INTEGRAL EN LA LEY 600 DE 2000.
+
+---
+
+# PROVIDENCIA DDP 1639
+
+**Número de Providencia (DDP 1639):** AP908-2020
+**Radicación (DDP 1639):** 52924
+
+**Lista de Temas (DDP 1639):**
+(i) UNA DECISIÓN JUDICIAL PUEDE LLEGAR A SER UNA PRUEBA. 
+(ii) EL PRECEDENTE JUDICIAL.
+
+---
+
+# PROVIDENCIA DDP 1640
+
+**Número de Providencia (DDP 1640):** SP861-2020
+**Radicación (DDP 1640):** 57077
+
+**Lista de Temas (DDP 1640):**
+(i) ELEMENTOS DEL TIPO PENAL DE ABUSO DE CONDICIONES DE INFERIORIDAD. 
+(ii) “NO BASTA ADUCIR, TAL COMO LO REFIRIÓ EL IMPUGNANTE, QUE POR SER EL INSTITUTO NACIONAL DE MEDICINA LEGAL UNA ENTIDAD ADSCRITA A LA FISCALÍA GENERAL DE LA NACIÓN, ELLO SIGNIFIQUE QUE LA OPINIÓN DE LA PERITO SEA PARCIALIZADA O MERA SUBJETIVIDAD.”.
+
+---
+
+# PROVIDENCIA DDP 1641
+
+**Número de Providencia (DDP 1641):** AP1260-2018
+**Radicación (DDP 1641):** 53856
+
+**Lista de Temas (DDP 1641):**
+(i) LA QUERELLA. 
+(ii) LA QUERELLA Y LOS DELITOS PLURIOFENSIVOS. 
+(iii) EL DELITO QUERELLABLE Y LA ADMINISTRACIÓN DE JUSTICIA. 
+(iv) EL ABUSO DE AUTORIDAD POR ACTO ARBITRARIO E INJUSTO. 
+(v)  LOS EFECTOS QUE DEVIENEN FRENTE A LA AUSENCIA DE LOS REQUISITOS DE QUERELLA Y CONCILIACIÓN PRE-PROCESALES PARA INICIAR LA PERSECUCIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1642
+
+**Número de Providencia (DDP 1642):** AP4099-2016
+**Radicación (DDP 1642):** 48343
+
+**Lista de Temas (DDP 1642):**
+EL RETIRO DEL ESCRITO DE ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1643
+
+**Número de Providencia (DDP 1643):** No especificado
+**Radicación (DDP 1643):** 29335
+
+**Lista de Temas (DDP 1643):**
+RETIRO DE LA ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1644
+
+**Número de Providencia (DDP 1644):** No especificado
+**Radicación (DDP 1644):** 27413
+
+**Lista de Temas (DDP 1644):**
+EL RETIRO DE LOS CARGOS.
+
+---
+
+# PROVIDENCIA DDP 1645
+
+**Número de Providencia (DDP 1645):** No especificado
+**Radicación (DDP 1645):** 38256
+
+**Lista de Temas (DDP 1645):**
+RETIRAR EL ESCRITO DE ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1646
+
+**Número de Providencia (DDP 1646):** STP2855-2020
+**Radicación (DDP 1646):** 109157
+
+**Lista de Temas (DDP 1646):**
+(i) “LAS DETERMINACIONES CONCERNIENTES A LAS CONTROVERSIAS EN CONTROL DE GARANTÍAS SE DEFINEN CON LA RESOLUCIÓN DEL RECURSO DE APELACIÓN EN DICHA SEDE. POR ELLO, SU CARÁCTER DEFINITIVO LAS TORNA SUSCEPTIBLES DE EXAMEN A TRAVÉS DE LA ACCIÓN DE TUTELA.” 
+(ii) “LA FUNCIÓN DE LOS JUECES DE CONTROL DE GARANTÍAS FRENTE A LA ACTIVIDAD INVESTIGATIVA DE LA DEFENSA”. 
+(iii) ARMONIZACIÓN DE “LAS ACTUACIONES DE LOS JUECES DE CONTROL DE GARANTÍAS Y DE CONOCIMIENTO LUEGO DE INICIADA LA FASE DE JUZGAMIENTO”. 
+(iv) LOS ACTOS DE INVESTIGACIÓN Y LA FUNCIÓN DE CONTRO DE GARANTÍAS.
+
+---
+
+# PROVIDENCIA DDP 1647
+
+**Número de Providencia (DDP 1647):** AP790-2020
+**Radicación (DDP 1647):** 56616
+
+**Lista de Temas (DDP 1647):**
+(i) LA CLAÚSULA DE EXCLUSIÓN. 
+(ii) EL DERECHO FUNDAMENTAL A LA INTIMIDAD Y LOS DATOS SENSIBLES. 
+(iii) LOS EXTRACTOS BANCARIOS. 
+(iv) LA BÚSQUEDA EN BASES DE DATOS Y LA OMISIÓN DE INFORMAR AL INVESTIGADO.
+
+---
+
+# PROVIDENCIA DDP 1648
+
+**Número de Providencia (DDP 1648):** SP755-2020
+**Radicación (DDP 1648):** 51975
+
+**Lista de Temas (DDP 1648):**
+(i) EL PRINCIPIO DE CONGRUENCIA Y LAS MODALIDADES DE SU INOBSERVANCIA. 
+(ii) LA VIOLENCIA EN EL ACTO SEXUAL.
+
+---
+
+# PROVIDENCIA DDP 1649
+
+**Número de Providencia (DDP 1649):** SP783-2020
+**Radicación (DDP 1649):** 56662
+
+**Lista de Temas (DDP 1649):**
+(i) “OTORGAMIENTO DE ESCRITURAS PÚBLICAS Y OBTENCIÓN DE DOCUMENTO PÚBLICO FALSO”. 
+(ii) “COMPRENSIÓN DEL INGREDIENTE NORMATIVO “CONTRARIO A LA LEY” EN EL FRAUDE PROCESAL”. 
+(iii) “LA CONSOLIDACIÓN DEL DERECHO DE PROPIEDAD SOBRE BIENES INMUEBLES.” 
+(iv) LOS TÍTULOS TRASLATICIOS DE DOMINIO Y EL DERECHO A LA PROPIEDAD. 
+(v) CONDICIONES PARA VARIAR LA CALIFICACIÓN JURÍDICA EN LA SENTENCIA A FIN DE ADECUAR LOS HECHOS IMPUTADOS AL DELITO QUE REALMENTE SE CONFIGURA. 
+(vi) EL FRAUDE PROCESAL Y LA ESTAFA.
+
+---
+
+# PROVIDENCIA DDP 1650
+
+**Número de Providencia (DDP 1650):** STP2240–2020
+**Radicación (DDP 1650):** 109388
+
+**Lista de Temas (DDP 1650):**
+(i) EL DERECHO DE PETICIÓN Y LAS SOLICITUDES CON OCASIÓN DE UN DILIGENCIAMIENTO PENAL. 
+(ii) “EL PRINCIPIO DE PUBLICIDAD EN LOS PROCESO PENALES Y EL CARÁCTER RESERVADO DE ALGUNAS DE SUS ACTUACIONES”. 
+(iii) LA EXPIDICÓN DE COPIAS PARA LA DEFENSA EN LA INDAGACIÓN. 
+(iv) LA RESERVA LEGAL EN LAS INVESTIGACIONES PENALES QUE SE ADELANTEN POR ACTOS DELICTIVOS COMETIDOS POR LOS GRUPOS DELICTIVOS ORGANIZADOS (    ) Y LOS GRUPOS ARMADOS ORGANIZADOS (GAO).  
+(v) LA RESERVA DE LA DENUNCIA.
+
+---
+
+# PROVIDENCIA DDP 1650
+
+**Número de Providencia (DDP 1650):** STP11888-2020
+**Radicación (DDP 1650):** 114112
+
+**Lista de Temas (DDP 1650):**
+1. 
+(i) LA SU479 DE 2019 Y LOS PREACUERDOS. 
+(ii) “LOS HECHOS, LA MATERIALIDAD Y LA RESPONSABILIDAD EN EL DELITO COMETIDO NO ES SUSCEPTIBLE DE SER PACTADO …”. 
+(iii) EL PREACUERDO SIMPLE. 
+(iv) PUESTO QUE LOS FINES DEL PREACUERDO SON SUS LÍMITES LEGALES, “ESTOS NO PUEDEN SER ADICIONADOS CON CRITERIOS JURISPRUDENCIALES, HACIENDO MÁS GRAVOSAS LAS EXIGENCIAS QUE SE ESTABLECEN PARA TENER DERECHOS A LOS BENEFICIOS QUE SE DERIVAN DE LOS PREACUERDOS.”.
+
+---
+
+# PROVIDENCIA DDP 1650
+
+**Número de Providencia (DDP 1650):** STP11888-2020
+**Radicación (DDP 1650):** 114112
+
+**Lista de Temas (DDP 1650):**
+2. ACLARACIÓN DE VOTO.
+
+---
+
+# PROVIDENCIA DDP 1650
+
+**Número de Providencia (DDP 1650):** SENTENCIA SU479/19
+**Radicación (DDP 1650):** No especificado
+
+**Lista de Temas (DDP 1650):**
+3. LOS PREACUERDOS EN MATERIA PENAL.
+
+---
+
+# PROVIDENCIA DDP 1651
+
+**Número de Providencia (DDP 1651):** AP642-2020
+**Radicación (DDP 1651):** 55808
+
+**Lista de Temas (DDP 1651):**
+(i) “NO TODA OSCURIDAD O AMBIGÜEDAD EN LA ACUSACIÓN NI TODA INCLUSIÓN DESACONSEJADA DE ELEMENTOS DE PRUEBA O HECHOS INDICADORES COMPORTA UN VICIO CAPAZ DE PROVOCAR LA NULIDAD DEL TRÁMITE.”.
+
+---
+
+# PROVIDENCIA DDP 1652
+
+**Número de Providencia (DDP 1652):** AP641-2020
+**Radicación (DDP 1652):** 53756
+
+**Lista de Temas (DDP 1652):**
+(i) EL DELITO DE HOSTIGAMIENTO. 
+(ii) FORMAS DE DETERMINAR LA EXISTENCIA DE UN DISCURSO DE ODIO.
+
+---
+
+# PROVIDENCIA DDP 1653
+
+**Número de Providencia (DDP 1653):** AP643-2020
+**Radicación (DDP 1653):** 53370
+
+**Lista de Temas (DDP 1653):**
+(i) LOS ACTOS DE DISCRIMINACIÓN. 
+(ii) EL HOSTIGAMIENTO. 
+(iii) LOS TIPOS PENALES EN BLANCO. 
+(iv) ELEMENTOS DEL TIPO PENAL DE HOSTIGAMIENTO. SENTENCIA C-091/17. DDP. 1654. 
+(i) LA PRUEBA DE ABSORCIÓN ATÓMICA. 
+(ii) “EL MENCIONADO ESTUDIO CIENTÍFICO POR SÍ SOLO NO DESCARTA NI DEMUESTRA LA AUTORÍA EN EL DELITO”.
+
+---
+
+# PROVIDENCIA DDP 1655
+
+**Número de Providencia (DDP 1655):** AP690-2020
+**Radicación (DDP 1655):** 47479
+
+**Lista de Temas (DDP 1655):**
+(i) LA NULIDAD POR AUSENCIA DE DEFENSA TÉCNICA. 
+(ii) REFRESCAR MEMORIA. 
+(iii) DETERMINACIÓN DE LA PENA.
+
+---
+
+# PROVIDENCIA DDP 1656
+
+**Número de Providencia (DDP 1656):** SP4760-2020
+**Radicación (DDP 1656):** 52671
+
+**Lista de Temas (DDP 1656):**
+(i) “CAPACIDAD PARA SER PARTE Y CAPACIDAD PARA COMETER EL DELITO CON CULPABILIDAD.”. 
+(ii) “GARANTÍAS DE ACCESO EFECTIVO A LA ACTUACIÓN PROCESAL.”. 
+(iii) “DERECHOS DE «PERSONAS CON Y/O EN SITUACIÓN DE DISCAPACIDAD» EN EL PROCESO PENAL.”. 
+(iv) “DEBERES ESPECÍFICOS DE PARTES, INTERVINIENTES Y JUECES EN PROCESOS CONTRA PERSONAS CON DISCAPACIDAD.”. 
+(v) LA VALIDEZ DE UNA IMPUTACIÓN. 
+(vi) NULIDAD DE UNA IMPUTACIÓN. 
+(vii) “LIMITACIONES AL ACCESO A LA COMUNICACIÓN EN LAS DEMÁS FASES DEL PROCESO.”. 
+(viii) “VIOLACIÓN DEL DERECHO A LA DEFENSA TÉCNICA EN LA ETAPA DE JUICIO.”.
+
+---
+
+# PROVIDENCIA DDP 1657
+
+**Número de Providencia (DDP 1657):** AP3352-2020
+**Radicación (DDP 1657):** 58497
+
+**Lista de Temas (DDP 1657):**
+(i) El impedimento por haber manifestado su opinión sobre el asunto materia del proceso. 
+(ii) “Solamente de manera excepcional el ejercicio del deber funcional legal y constitucionalmente asignado puede llegar a configurar una situación de impedimento.”.
+
+---
+
+# PROVIDENCIA DDP 1658
+
+**Número de Providencia (DDP 1658):** AP3351-2020
+**Radicación (DDP 1658):** 58499
+
+**Lista de Temas (DDP 1658):**
+(i) LA COMPETENCIA POR TERRIOTRIO. 
+(ii) LA COMPETENCIA POR CONEXIDAD. 
+(iii) EL ÁMBITO TERRITORIAL DEL DELITO DE REBELIÓN.
+
+---
+
+# PROVIDENCIA DDP 1659
+
+**Número de Providencia (DDP 1659):** AP3370–2020
+**Radicación (DDP 1659):** No especificado
+**Decisión (DDP 1659):** DEFINICIÓN DE COMPETENCIA 58539.
+
+**Lista de Temas (DDP 1659):**
+(i) LA COMPETENCIA DEL JUEZ CON FUNCIÓN DE CONTROL DE GARANTÍAS. 
+(ii) EXCEPCIONES A LA COMPETENCIA EN GARANTÍAS.
+
+---
+
+# PROVIDENCIA DDP 1661
+
+**Número de Providencia (DDP 1661):** STP093-2020
+**Radicación (DDP 1661):** 108255
+
+**Lista de Temas (DDP 1661):**
+(i) Participación de las víctimas en los allanamiento a cargos. 
+(ii) La intervención del juez de control de garantías, o el juez de conocimiento en los casos de allanamiento a cargos. 
+(iii) “La administración de justicia no le puede exigir a la ciudadanía llevar a cabo acciones judiciales contra providencias en firme de manera inmediata si no se les ha informado de éstas.”.
+
+---
+
+# PROVIDENCIA DDP 1662
+
+**Número de Providencia (DDP 1662):** AP180-2020
+**Radicación (DDP 1662):** 56785
+
+**Lista de Temas (DDP 1662):**
+(i) “LA ADUCCIÓN Y PRÁCTICA DE PRUEBAS AL INTERIOR DEL PROCESO DE EXTINCIÓN DE DOMINIO SE RIGE POR LAS PAUTAS ESPECIALES QUE SE ENCUENTRAN ESTABLECIDAS EN LA LEY 1708 DE 2014.”. 
+(ii) LOS JUECES CON FUNCIÓN DE CONTROL DE GARANTÍAS EN LOS PROCESOS DE EXTINCIÓN DE DOMINIO.
+
+---
+
+# PROVIDENCIA DDP 1663
+
+**Número de Providencia (DDP 1663):** SENTENCIA CONDENATORIA. AP0130-2020
+**Radicación (DDP 1663):** 49302
+
+**Lista de Temas (DDP 1663):**
+(i) LA ACCIÓN DE REVISIÓN CUANDO SE HUBIERE DICTADO SENTENCIA CONDENATORIA EN PROCESO QUE NO PODÍA INICIARSE O PROSEGUIRSE. 
+(ii) LA FALTA DE COMPETENCIA Y LA ACCIÓN DE REVISIÓN. 
+(iii) LA ACCIÓN DE REVISIÓN Y EL CAMBIO FAVORABLE DEL CRITERIO JURÍDICO QUE SIRVIÓ PARA SUSTENTAR LA
+
+---
+
+# PROVIDENCIA DDP 1664
+
+**Número de Providencia (DDP 1664):** SENTENCIA. SP368-2020
+**Radicación (DDP 1664):** 51094
+
+**Lista de Temas (DDP 1664):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) EN EL PREVARICATO POR ACCIÓN SE REQUIERE EL “«ACTUAR MALICIOSO DENTRO DEL CUAL EL SUJETO AGENTE SE APARTA DE MANERA CONSCIENTE DEL DEBER FUNCIONAL QUE LE ESTABA IMPUESTO, COMO LA EXISTENCIA OBJETIVA DE UNA DECISIÓN ABIERTAMENTE OPUESTA A AQUELLA QUE LE ORDENABA O AUTORIZABA LA LEY»”. 
+(iii) “NO SIEMPRE QUE SE ESTÁ ANTE UN DELITO DE ABUSO DE FUNCIÓN PÚBLICA POR USURPACIÓN DE COMPETENCIA SE INCURRE EN EL DELITO DE PREVARICATO”. 
+(iv) EL DELITO DE ABUSO DE FUNCIÓN PÚBLICA. 
+(v) LA VARIACIÓN DE LA CALIFICACIÓN JURÍDICA EN LA
+
+---
+
+# PROVIDENCIA DDP 1665
+
+**Número de Providencia (DDP 1665):** AP436-2020
+**Radicación (DDP 1665):** 55642
+
+**Lista de Temas (DDP 1665):**
+(i) LA PRECLUSIÓN POR MUERTE. 
+(ii) LA ORDEN DE ENTREGAR A LA VÍCTIMA, PARA GARANTIZAR SU DERECHOS, -POR MANDATO DE LA CORTE CONSTITUCIONAL- LOS ELEMENTOS MATERIALES PROBATORIOS RECAUDADOS HASTA EL FALLECIMIENTO DEL INCRIMINADO.
+
+---
+
+# PROVIDENCIA DDP 1666
+
+**Número de Providencia (DDP 1666):** SENTENCIA C-828/10
+**Radicación (DDP 1666):** No especificado
+
+**Lista de Temas (DDP 1666):**
+(i) EXTINCIÓN DE LA ACCIÓN PENAL POR MUERTE DEL PROCESADO, IMPUTADO O ACUSADO. 
+(ii) FINALIDADES DEL PROCESO PENAL EN UN ESTADO SOCIAL DE DERECHO. 
+(iii) DERECHOS DE LAS VÍCTIMAS EN EL PROCESO PENAL A CONOCER LA VERDAD Y A SER REPARADAS FRENTE A LA EXTINCIÓN DE LA ACCIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1667
+
+**Número de Providencia (DDP 1667):** STP11592-2020
+**Radicación (DDP 1667):** No especificado
+**Decisión (DDP 1667):** TUTELA DE SEGUNDA INSTANCIA 113015.
+
+**Lista de Temas (DDP 1667):**
+“CUANDO AL INTERIOR DE UN PROCESO PENAL SON DETENIDOS AUTOMOTORES, LA AUTORIDAD JUDICIAL QUE LOS TIENE A SU DISPOSCIÓN DEBE SUFRAGAR LOS GASTOS DE PARQUEADERO,”.
+
+---
+
+# PROVIDENCIA DDP 1668
+
+**Número de Providencia (DDP 1668):** STP1550–2020
+**Radicación (DDP 1668):** 108984
+
+**Lista de Temas (DDP 1668):**
+(i) LA SUBSIDIARIEDAD EN LA TUTELA. 
+(ii) “LOS JUECES QUE EJECUTAN LA PENA CARECEN DE APTITUD LEGAL PARA MODIFICAR LA SENTENCIA, SALVO EN LOS EVENTOS DE REFORMAS LEGISLATIVAS FAVORABLES O CUANDO LA NORMA INCRIMINADORA HA SIDO DECLARADA INEXEQUIBLE O HA PERDIDO VIGENCIA O SE HA CONDICIONADO SU EXEQUIBILIDAD, SUCESOS EN LOS CUALES LA REDOSIFICACIÓN DE LA PENA EN SEDE DE EJECUCIÓN RESULTA PROCEDENTE.”. 
+(iii) MÍNIMO DE REQUISITOS QUE SE DEBEN ACREDITAR PARA INVOCAR EL CAMBIO FAVORABLE DEL CRITERIO JURÍDICO QUE SIRVIÓ PARA SUSTENTAR LA SENTENCIA CONDENATORIA, TANTO RESPECTO DE LA RESPONSABILIDAD COMO DE LA PUNIBILIDAD. 
+(iv) EL DERECHO DE POSTULACIÓN EN LA ACCIÓN DE REVISIÓN. 
+(v) EL DERECHO DE DEFENSA MATERIAL. 
+(vi) LA SUSTENTACIÓN DE UN RECURSO.
+
+---
+
+# PROVIDENCIA DDP 1669
+
+**Número de Providencia (DDP 1669):** AP541-2020
+**Radicación (DDP 1669):** 56582
+
+**Lista de Temas (DDP 1669):**
+(i) EL CONCIERTO PARA DELINQUIR “ES UNA CONDUCTA AUTÓNOMA QUE ÚNICAMENTE REQUIERE LA CONCERTACIÓN PARA LA COMISIÓN DE LA INFRACCIÓN PENAL, INDEPENDIENTEMENTE DE QUE ÉSTA ALCANCE O NO SU CONSUMACIÓN.”. 
+(ii) TRANSLITERACIÓN COMO MEDIO DE PRUEBA AUTÓNOMO.
+
+---
+
+# PROVIDENCIA DDP 1670
+
+**Número de Providencia (DDP 1670):** No especificado
+**Radicación (DDP 1670):** 107299
+
+**Lista de Temas (DDP 1670):**
+(i) LA TEMERIDAD EN LA TUTELA. 
+(ii) LOS DERECHOS DE LAS VÍCTIMAS EN LA ACTUACIÓN PROCESAL PENAL. 
+(iii) LA LEGITIMIDAD DE LAS VÍCTIMAS PARA PODER INTERVENIR EN LA ACTUACIÓN PENAL. 
+(iv) LA ORDEN DE DESARCHIVAR. TP2019-2020.
+
+---
+
+# PROVIDENCIA DDP 1671
+
+**Número de Providencia (DDP 1671):** STP2181-2020
+**Radicación (DDP 1671):** 109057
+
+**Lista de Temas (DDP 1671):**
+(i) SUPERAR QUE NO SE SATISFACE LA CONDICIÓN DE SUBSIDIARIEDAD EN EL EJERCICIO DE LA TUTELA. 
+(ii) EL DERECHO A IMPUGNAR LA PRIMERA SENTENCIA CONDENATORIA. 
+(iii) EL SILENCIO COMO MEDIO DE DEFENSA. 
+(iv) LA DEFENSA EJERCIDA POR UN INTEGRANTE DE CONSULTORIO JURÍDICO UNIVERSITARIO.
+
+---
+
+# PROVIDENCIA DDP 1672
+
+**Número de Providencia (DDP 1672):** AP1610-2014
+**Radicación (DDP 1672):** 43326
+
+**Lista de Temas (DDP 1672):**
+LAS MEDIDAS CAUTELARES Y LA EXTINCIÓN DE DOMINIO.
+
+---
+
+# PROVIDENCIA DDP 1673
+
+**Número de Providencia (DDP 1673):** SENTENCIA C-327/20
+**Radicación (DDP 1673):** No especificado
+
+**Lista de Temas (DDP 1673):**
+LA BUENA FE EXENTA DE CULPA EN LA EXTINCIÓN DE DOMINIO.
+
+---
+
+# PROVIDENCIA DDP 1674
+
+**Número de Providencia (DDP 1674):** STP11889-2020
+**Radicación (DDP 1674):** 112643
+
+**Lista de Temas (DDP 1674):**
+(i) LA MORA DE LAS AUTORIDADES EN MATERIA JUDICIAL. 
+(ii) CAMINOS A SEGUIR ANTE LA MORA JUDICIAL JUSTIFICADA.
+
+---
+
+# PROVIDENCIA DDP 1675
+
+**Número de Providencia (DDP 1675):** STP11890-2020
+**Radicación (DDP 1675):** 114199
+
+**Lista de Temas (DDP 1675):**
+(i) “PROCEDENCIA DE LA ACCIÓN DE TUTELA PARA CONTROVERTIR LA DECISIÓN QUE NIEGA EL LEVANTAMIENTO DE UNA MEDIDA CAUTELAR EN EL CURSO DE UN PROCESO PENAL”. 
+(ii) LA AFECTACIÓN DE LOS BIENES EN LOS DELITOS CULPOSOS Y EL ARCHIVO DE LAS DILIGENCIAS. 
+(iii) COMPETENCIA DEL JUEZ DE GARANTÍAS.
+
+---
+
+# PROVIDENCIA DDP 1676
+
+**Número de Providencia (DDP 1676):** STP11632-2020
+**Radicación (DDP 1676):** 114026
+
+**Lista de Temas (DDP 1676):**
+“LA PRESUNCIÓN DE VERACIDAD A LA QUE SE REFIERE EL ART. 20 DEL DECRETO 2591 DE 1991.”.
+
+---
+
+# PROVIDENCIA DDP 1677
+
+**Número de Providencia (DDP 1677):** STP11634-2020
+**Radicación (DDP 1677):** 114167
+
+**Lista de Temas (DDP 1677):**
+(i) “EL ART. 238 DE LA LEY 906 DE 2004 PERMITE, PARA LOS CASOS EN QUE LA DEFENSA NO INTERVENGA EN LA DILIGENCIA PRELIMINAR DE CONTROL DE LEGALIDAD POSTERIOR A LA QUE SE REFIERE EL APARTADO 237 EJUSDEM, ELEVAR SOLICITUD DE REALIZACIÓN DE UNA NUEVA AUDIENCIA PRELIMINAR PARA BUSCAR ALLÍ LA EXCLUSIÓN DE LAS EVIDENCIAS OBTENIDAS; LO QUE PUEDE POSTULAR, DE IGUAL MANERA, EN LA AUDIENCIA PREPARATORIA.”. 
+(ii) OTRAS OPORTUNIDADES PARA BUSCAR LA EXCLUSIÓN DE LOS EMP OBTENIDOS.
+
+---
+
+# PROVIDENCIA DDP 1677
+
+**Número de Providencia (DDP 1677):** STP7356-2020
+**Radicación (DDP 1677):** 1259
+**Decisión (DDP 1677):** /111179.
+
+**Lista de Temas (DDP 1677):**
+1. EL REQUERIR A LOS DEFENSORES PARA LIMITAR SU INTERVENCIÓN Y LLAMAR LA ATENCIÓN A LOS PROCESADOS NO ES UN ACTO IRRESPETUOSO DE LA JUDICATURA. 
+(ii) “LA JURISPRUDENCIA CONSTITUCIONAL TIENE ESTABLECIDO QUE LAS AUTORIDADES PÚBLICAS, INCLUYENDO LAS JUDICIALES, NO SE PUEDEN EXCUSAR DEL DEBER DE CONTESTAR UNA SOLICITUD BAJO EL ARGUMENTO DE QUE CARECEN DE COMPETENCIA”. 
+(ii) LA SOLICITUD DE CAMBIO DE RADICACIÓN NO TIENE AUDIENCIA DE SUSTENTACIÓN NI DE LECTURA DE LO DECIDIDO.
+
+---
+
+# PROVIDENCIA DDP 1678
+
+**Número de Providencia (DDP 1678):** No especificado
+**Radicación (DDP 1678):** 39751
+
+**Lista de Temas (DDP 1678):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LO MANIFIESTAMENTE CONTRARIO A LA LEY.
+
+---
+
+# PROVIDENCIA DDP 1679
+
+**Número de Providencia (DDP 1679):** AP3211-2020
+**Radicación (DDP 1679):** 54087
+
+**Lista de Temas (DDP 1679):**
+(i) LA IMPOSIBILIDAD DE OPTAR EN LOS PREACUERDOS POR UNA CALIFICACIÓN JURÍDICA QUE NO CORRESPONDA A LOS HECHOS JURÍDICAMENTE RELEVANTES Y LO QUE ELLO ENTRAÑA. 
+(ii) EL “INTERÉS PARA IMPUGNAR SENTENCIAS CONDENATORIAS PRODUCTO DE LA ACEPTACIÓN UNILATERAL O PREACORDADA DE CULPABILIDAD.”.
+
+---
+
+# PROVIDENCIA DDP 1680
+
+**Número de Providencia (DDP 1680):** AP3652-2019
+**Radicación (DDP 1680):** 51210
+
+**Lista de Temas (DDP 1680):**
+(i) EL DESARCHIVO DE LAS DILIGENCIAS. 
+(ii) EL DERECHO DE LA VÍCTIMA A QUE LA FISCALÍA ADELANTE LA ACCIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1681
+
+**Número de Providencia (DDP 1681):** STP9684-2020
+**Radicación (DDP 1681):** 113183
+
+**Lista de Temas (DDP 1681):**
+LA DETERMINACIÓN DE DESARCHIVO DE LAS INDAGACIONES PRELIMINARES.
+
+---
+
+# PROVIDENCIA DDP 1682
+
+**Número de Providencia (DDP 1682):** SENTENCIA T- 520A/09
+**Radicación (DDP 1682):** No especificado
+
+**Lista de Temas (DDP 1682):**
+(i) EL ARCHIVO DE LAS DILIGENCIAS. 
+(ii) EL DESARCHIVO DE LAS DILIGENCIAS.
+
+---
+
+# PROVIDENCIA DDP 1683
+
+**Número de Providencia (DDP 1683):** SP011-2021
+**Radicación (DDP 1683):** 58095
+
+**Lista de Temas (DDP 1683):**
+(i) “LA NEGATIVA A HACER PRODUCIR EFECTOS AUTOMÁTICOS DE PÉRDIDA DE COMPETENCIA A LA SALA DE CASACIÓN PENAL DE AQUELLOS ASUNTOS CUYO CONOCIMIENTO EN ÚNICA INSTANCIA OSTENTABA AL MOMENTO DE PRODUCIRSE LA MODIFICACIÓN CONSTITUCIONAL ADOPTADA A TRAVÉS DEL ACTO LEGISLATIVO 1 DEL 18 DE ENERO DE 2018.”. 
+(ii) EL ENRIQUECIMIENTO ILÍCITO DE PARTICULARES. 
+(iii) “LA PROHIBICIÓN DE DOBLE ENJUICIAMIENTO Y CONSIGUIENTE DOBLE SANCIÓN POR UN MISMO HECHO NO ES ÓBICE PARA QUE UNA CONDUCTA OBJETO DE REPROCHE PUEDA DAR LUGAR A DIVERSAS INVESTIGACIONES EN AQUELLOS SUPUESTOS, COMO SUCEDE EN ESTE CASO, EN QUE SE PRODUZCA LESIÓN A DIVERSOS BIENES JURÍDICOS, MIENTRAS LAS MISMAS TENGAN FUNDAMENTO NORMATIVO INDEPENDIENTE, DISTINTAS FINALIDADES Y QUE, COMO FUE INDICADO, CADA UNA OSTENTE CAUSA, OBJETO, SUJETOS, ACCIONES, FUNDAMENTO NORMATIVO Y FINALIDAD PROPIAS.”. 
+(iv) “NO ES A TRAVÉS DE LA SIMPLE COMPARACIÓN DE VALORES QUE SE PUEDE AFIRMAR PRESENTE EL INCREMENTO PATRIMONIAL, YA QUE LO VINCULANTE DESDE LA PERSPECTIVA DE ESTE COMPONENTE DEL TIPO PENAL, ES QUE SE PUEDA AFIRMAR QUE CAUDALES DE ESA SIGNIFICACIÓN Y SENTIDO DE VALOR INGRESARON AL DOMINIO DEL SUJETO ACTIVO, PROVENIENTES DE ACTIVIDADES DELICTIVAS.”.
+
+---
+
+# PROVIDENCIA DDP 1684
+
+**Número de Providencia (DDP 1684):** STP7721-2019
+**Radicación (DDP 1684):** 104439
+
+**Lista de Temas (DDP 1684):**
+(i) “PAUTAS JURISPRUDENCIALES SOBRE LA NULIDAD OFICIOSA EN MATERIA DE TUTELA.”. 
+(ii) “PAUTAS PARA EL DESARROLLO DE LA AUDIENCIA DE IMPOSICIÓN DE MEDIDA DE ASEGURAMIENTO.”.
+
+---
+
+# PROVIDENCIA DDP 1685
+
+**Número de Providencia (DDP 1685):** STP7003-2018
+**Radicación (DDP 1685):** 98393
+
+**Lista de Temas (DDP 1685):**
+(i) “LAS DISPOSICIONES DEL CÓDIGO DE LA INFANCIA Y LA ADOLESCENCIA NO PUEDEN UTILIZARSE PARA ELIMINAR DE PLANO LA POSIBILIDAD DE APLICAR CUALQUIER INSTITUTO QUE PUEDA FAVORECER A LOS PROCESADOS POR DELITOS CONTRA MENORES DE EDAD.”.  
+(ii) “SI BIEN EL LEGISLADOR PREVIÓ QUE LA DETENCIÓN PREVENTIVA EN ESTABLECIMIENTO DE RECLUSIÓN ES LA MEDIDA DE ASEGURAMIENTO A IMPONER EN LOS CASOS DE DELITOS CONTRA LA LIBERTAD, INTEGRIDAD Y FORMACIÓN SEXUALES, O SECUESTRO, COMETIDOS CONTRA MENORES DE EDAD, TAMBIÉN DISPUSO QUE ESTA PUEDA SUSTITUIRSE POR OTRA(S) MEDIDAS DE ASEGURAMIENTO NO PRIVATIVAS DE LA LIBERTAD, SI ESTA MEDIDA CAUTELAR PERSONAL EXCEDE EL TÉRMINO DE UN AÑO”. 
+(iii) “NO HAY INCOMPATIBILIDAD ENTRE LAS GARANTÍAS FUNDAMENTALES DEL PROCESADO Y LOS DERECHOS DE LOS NIÑOS, NIÑAS Y ADOLESCENTES RECONOCIDOS COMO VÍCTIMAS, PUES, POR EL CONTRARIO, ESTABLECER MECANISMOS PARA PROCURAR QUE EL PROCESO PENAL SE ADELANTE SIN DILACIONES INJUSTIFICADAS REDUNDA EN BENEFICIO DE TODOS”.
+
+---
+
+# PROVIDENCIA DDP 1686
+
+**Número de Providencia (DDP 1686):** No especificado
+**Radicación (DDP 1686):** CUI 500016000485201606310-01
+
+**Lista de Temas (DDP 1686):**
+(i) LAS MEDIDAS DE ASEGURAMIENTO EN LA LEY 906 DE 2004. 
+(ii) LAS ASEGURATIVAS PRIVATIVAS DE LA LIBERTAD. 
+(iii) LAS ASEGURATIVAS NO PRIVATIVAS DE LA LIBERTAD. 
+(iv) NO ES POSIBLE TENER COMO PARTE YA CUMPLIDA DE LA PENA, EL TIEMPO DE LA ASEGURATIVA NO PRIVATIVA DE LA LIBERTAD PERO QUE LA RESTRINGE.
+
+---
+
+# PROVIDENCIA DDP 1687
+
+**Número de Providencia (DDP 1687):** SENTENCIA C-387/14
+**Radicación (DDP 1687):** No especificado
+
+**Lista de Temas (DDP 1687):**
+(i) “SOMETIMIENTO DE IMPUTADO O ACUSADO A PROGRAMA ESPECIAL PARA SUPERAR ADICCION A DROGAS O BEBIDAS ALCOHOLICAS COMO CONDICION FIJADA POR FISCAL PARA APLICAR PRINCIPIO DE OPORTUNIDAD.”. 
+(ii) PRINCIPIOS FUNDAMENTALES QUE RIGEN EL PROCESO PENAL. 
+(iii) EL PRINCIPIO DE OPORTUNIDAD. 
+(iv) LA SUSPENSIÓN DEL PROCEDIMIENTO A PRUEBA. 
+(v) LA JUSTICIA RESTAURATIVA.
+
+---
+
+# PROVIDENCIA DDP 1688
+
+**Número de Providencia (DDP 1688):** No especificado
+**Radicación (DDP 1688):** 29183
+
+**Lista de Temas (DDP 1688):**
+(i) EL PRINCIPIO PRO HOMINE. 
+(ii) LA ANTIJURIDICIDAD. 
+(iii) EL TRÁFICO, FABRICACIÓN Y PORTE DE ESTUPEFACIENTES. 
+(iv) LA DOSIS PERSONAL. 
+(v) EL PRINCIPIO DE OPORTUNIDAD.
+
+---
+
+# PROVIDENCIA DDP 1689
+
+**Número de Providencia (DDP 1689):** SENTENCIA C-567/19
+**Radicación (DDP 1689):** No especificado
+
+**Lista de Temas (DDP 1689):**
+(i) PROCESO PENAL ABREVIADO. 
+(ii) DETENCIÓN PREVENTIVA EN ESTABLECIMIENTO CARCELARIO, CUANDO EXISTA CAPTURA POR DELITO O CONTRAVENCIÓN DENTRO DE LOS TRES AÑOS ANTERIORES.
+
+---
+
+# PROVIDENCIA DDP 1689
+
+**Número de Providencia (DDP 1689):** SENTENCIA C-128/20
+**Radicación (DDP 1689):** No especificado
+
+**Lista de Temas (DDP 1689):**
+1. DETENCIÓN PREVENTIVA. PROCEDIMIENTO PENAL ABREVIADO. DETENCIÓN PREVENTIVA EN ESTABLECIMIENTO CARCELARIO CUANDO LA PERSONA HAYA SIDO CAPTURADA POR CONDUCTA CONSTITUTIVA DE DELITO O CONTRAVENCIÓN DENTRO DE LOS TRES AÑOS ANTERIORES.
+
+---
+
+# PROVIDENCIA DDP 1690
+
+**Número de Providencia (DDP 1690):** SENTENCIA C-233/19
+**Radicación (DDP 1690):** No especificado
+
+**Lista de Temas (DDP 1690):**
+ELECCIÓN ILÍCITA DE CANDIDATOS. TIPIFICACIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1691
+
+**Número de Providencia (DDP 1691):** SENTENCIA C-248/19
+**Radicación (DDP 1691):** No especificado
+
+**Lista de Temas (DDP 1691):**
+PROPAGACIÓN DEL VIRUS DE INMUNODEFICIENCIA HUMANA O DE LA HEPATITIS B. TIPIFICACIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1692
+
+**Número de Providencia (DDP 1692):** SENTENCIA C-014/18
+**Radicación (DDP 1692):** No especificado
+
+**Lista de Temas (DDP 1692):**
+CONTROL LEGALIDAD DE ÓRDENES DE REGISTRO, ALLANAMIENTO E INTERCEPTACIÓN DE COMUNICACIONES.
+
+---
+
+# PROVIDENCIA DDP 1693
+
+**Número de Providencia (DDP 1693):** STP2536-2017
+**Radicación (DDP 1693):** 89800
+
+**Lista de Temas (DDP 1693):**
+(i) LA DEVOLUCIÓN DE BIENES. 
+(ii) LA ENTREGA DEFINITIVA DE BIENES.
+
+---
+
+# PROVIDENCIA DDP 1694
+
+**Número de Providencia (DDP 1694):** No especificado
+**Radicación (DDP 1694):** CUI 52001600048520170202401
+
+**Lista de Temas (DDP 1694):**
+(i) LA ENTREGA DE BIENES EN EL PROCESO PENAL. 
+(ii) COMPETENCIA DEL JUEZ CON FUNCIÓN DE CONTROL DE GARANTÍAS.
+
+---
+
+# PROVIDENCIA DDP 1695
+
+**Número de Providencia (DDP 1695):** STP10501-2020
+**Radicación (DDP 1695):** 111960
+
+**Lista de Temas (DDP 1695):**
+(i) LA FIGURA DEL COMISO. 
+(ii) LA DEVOLUCIÓN DE BIENES SOMETIDOS A UN TRÁMITE DE COMISO.
+
+---
+
+# PROVIDENCIA DDP 1696
+
+**Número de Providencia (DDP 1696):** STP10505-2020
+**Radicación (DDP 1696):** 112066
+
+**Lista de Temas (DDP 1696):**
+LA FISCALÍA Y LA ENTREGA DE BIENES.
+
+---
+
+# PROVIDENCIA DDP 1697
+
+**Número de Providencia (DDP 1697):** SP591-2019
+**Radicación (DDP 1697):** 51942
+
+**Lista de Temas (DDP 1697):**
+(i) EL PREVARICATO POR OMISIÓN. 
+(ii) EL PREVARICATO POR ACCIÓN. 
+(iii) LA FIGURA DE LA REVOCATORIA TÁCITA EN LAS ACTUACIONES REGIDAS POR EL CÓDIGO PENAL ADJETIVO. REVOCAN LA CONDENA DE UN FISCAL.
+
+---
+
+# PROVIDENCIA DDP 1698
+
+**Número de Providencia (DDP 1698):** No especificado
+**Radicación (DDP 1698):** CUI 76-616-6000-184-2015-00241-01
+
+**Lista de Temas (DDP 1698):**
+DE AUTOR A CÓMPLICE EN EL DELITO DE EXTORSIÓN Y SUS IMPLICACIONES DE TAL DEGRADACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1699
+
+**Número de Providencia (DDP 1699):** AP644-2017
+**Radicación (DDP 1699):** 49183
+
+**Lista de Temas (DDP 1699):**
+(i) EL DESCUBRIMIENTO PROBATORIO DE LA FISCALÍA. 
+(ii) LA OMISIÓN DE RELACIONAR EN EL ESCRITO DE ACUSACIÓN Y SUS ANEXOS TODOS LOS ELEMENTOS MATERIALES PROBATORIOS DESCUBIERTOS A LA DEFENSA. 
+(iii) INCORPORACIÓN DE NUEVOS ELEMENTOS MATERIALES PROBATORIOS DESPUÉS DE LA ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1700
+
+**Número de Providencia (DDP 1700):** No especificado
+**Radicación (DDP 1700):** CUI 520016000000-201700002
+**Decisión (DDP 1700):** N.I. 2170.
+
+**Lista de Temas (DDP 1700):**
+(i) LA PRECLUSIÓN DE UN ACTO PROCESAL. 
+(ii) EL DESCUBRIMIENTO PROBATORIO DE LA FISCALÍA. 
+(iii) LAS NULIDADES. 
+(iv) DATOS PERSONALES DE LOS TESTIGOS CON RESERVA DE IDENTIDAD Y LA RESERVA EN EL DESCUBRIMIENTO DE LA PRUEBA.
+
+---
+
+# PROVIDENCIA DDP 1701
+
+**Número de Providencia (DDP 1701):** SENTENCIA C-053/93
+**Radicación (DDP 1701):** No especificado
+
+**Lista de Temas (DDP 1701):**
+EL TESTIGO SIN ROSTRO.
+
+---
+
+# PROVIDENCIA DDP 1702
+
+**Número de Providencia (DDP 1702):** SENTENCIA C-392/00
+**Radicación (DDP 1702):** No especificado
+
+**Lista de Temas (DDP 1702):**
+INEXEQUIBILIDAD DEL TESTIGO SIN ROSTRO.
+
+---
+
+# PROVIDENCIA DDP 1703
+
+**Número de Providencia (DDP 1703):** AP3517-2019
+**Radicación (DDP 1703):** 53778
+
+**Lista de Temas (DDP 1703):**
+EL TESTIGO CON RESERVA DE IDENTIDAD.
+
+---
+
+# PROVIDENCIA DDP 1704
+
+**Número de Providencia (DDP 1704):** AUTO NO. 19 DE 2021 JEP
+**Radicación (DDP 1704):** No especificado
+
+**Lista de Temas (DDP 1704):**
+AUTO PARA DETERMINAR LOS HECHOS Y CONDUCTAS ATRIBUIBLES A LOS MIEMBROS DEL OTRORA SECRETARIADO DE LAS FARC-EP POR TOMA DE REHENES Y OTRAS PRIVACIONES GRAVES DE LA LIBERTAD, Y PONERLOS A SU DISPOSICIÓN.
+
+---
+
+# PROVIDENCIA DDP 1705
+
+**Número de Providencia (DDP 1705):** STP12927-2018
+**Radicación (DDP 1705):** 100735
+
+**Lista de Temas (DDP 1705):**
+LAS CITACIONES EN EL PROCESO PENAL DE LA LEY 906 DE 2004.
+
+---
+
+# PROVIDENCIA DDP 1706
+
+**Número de Providencia (DDP 1706):** SP2667-2019
+**Radicación (DDP 1706):** 49509
+
+**Lista de Temas (DDP 1706):**
+(i) “REITERACIÓN SOBRE LOS PRESUPUESTOS PARA LA INCORPORACIÓN Y VALORACIÓN DE LAS EXPOSICIONES ANTERIORES AL JUICIO ORAL, EN SUPUESTOS DE RETRACTACIÓN.”. 
+(ii) EL TESTIGO NO DISPONIBLE.
+
+---
+
+# PROVIDENCIA DDP 1707
+
+**Número de Providencia (DDP 1707):** AHP065-2021
+**Radicación (DDP 1707):** 58844
+
+**Lista de Temas (DDP 1707):**
+(i) EL HÁBEAS CORPUS NO SE PUEDE EMPLEAR DE FORMA PARALELA O ALTERNA AL PROCESO PENAL. 
+(ii) EL REQUISITO DE SUBISDIARIEDAD. 
+(iii) “AUN ESTANDO EN CURSO EL PROCESO PENAL, EL HÁBEAS CORPUS RESULTA PROCEDENTE EN GARANTÍA INMEDIATA DEL DERECHO FUNDAMENTAL A LA LIBERTAD SI LA PROVIDENCIA QUE LA NIEGA CARECE DE FUNDAMENTO LEGAL O RAZONABLE, ACORDE A LAS CIRCUNSTANCIAS FÁCTICAS Y LEGALES QUE LA HARÍAN PROCEDENTE”.
+
+---
+
+# PROVIDENCIA DDP 1708
+
+**Número de Providencia (DDP 1708):** AP052–2021
+**Radicación (DDP 1708):** No especificado
+**Decisión (DDP 1708):** IMPUGNACIÓN ESPECIAL 55788.
+
+**Lista de Temas (DDP 1708):**
+(i) “NI EXISTE, NI HA EXISTIDO HISTÓRICAMENTE REGULACIÓN NORMATIVA ALGUNA QUE AUTORICE EL RECURSO DE CASACIÓN CONTRA DECISIONES DICTADAS POR LA SALA DE CASACIÓN PENAL DE LA CORTE SUPREMA DE JUSTICIA EN EL MARCO DE SUS OTRAS COMPETENCIAS: NI COMO JUEZ DE ÚNICA INSTANCIA NI COMO JUEZ DE SEGUNDA INSTANCIA.”. 
+(ii) NO HAY “LA MÁS MÍNIMA POSIBILIDAD DE PODER ACUDIR AL RECURSO EXTRAORDINARIO DE CASACIÓN FRENTE A LAS DECISIONES QUE ADOPTE LA SALA DE CASACIÓN PENAL EN EL MARCO DE LA IMPUGNACIÓN ESPECIAL, O COMO JUEZ DE SEGUNDA INSTANCIA”. 
+(iii) “LA IRREFLEXIVA ORDEN DE AMPARO DE LA SALA DE CASACIÓN CIVIL, DE GARANTIZAR AL ACCIONANTE EL RECURSO EXTRAORDINARIO DE CASACIÓN, ES ADEMÁS IRREALIZABLE EN EL PRESENTE ASUNTO, PORQUE AL LEVANTARSE LOS EFECTOS DE COSA JUZGADA PARA LA TRAMITACIÓN DEL RECURSO EXTRAORDINARIO, LA ACCIÓN PENAL AUTOMÁTICAMENTE PRESCRIBE.”.
+
+---
+
+# PROVIDENCIA DDP 1709
+
+**Número de Providencia (DDP 1709):** STC10389-2020
+**Radicación (DDP 1709):** 11001-02-03-000-2020-02464-00
+
+**Lista de Temas (DDP 1709):**
+MEDIANTE TUTELA LA SALA DE CASACIÓN CIVIL LE ORDENA A LA SALA PENAL DE LA CORTE QUE CONCEDA CASACIÓN EN UN CASO DONDE EXISTIÓ IMPUGNACIÓN ESPECIAL.
+
+---
+
+# PROVIDENCIA DDP 1710
+
+**Número de Providencia (DDP 1710):** AP072–2021
+**Radicación (DDP 1710):** No especificado
+**Decisión (DDP 1710):** REVISIÓN 55057.
+
+**Lista de Temas (DDP 1710):**
+LA APTITUD PROBATORIA DE LAS DECISIONES JUDICIALES.
+
+---
+
+# PROVIDENCIA DDP 1711
+
+**Número de Providencia (DDP 1711):** No especificado
+**Radicación (DDP 1711):** REF EXP. No. 11-001-02-30-015-2007-0019
+
+**Lista de Temas (DDP 1711):**
+DIFERENCIAS ENTRE EL ARCHIVO Y LA PRECLUSIÓN.
+
+---
+
+# PROVIDENCIA DDP 1712
+
+**Número de Providencia (DDP 1712):** AP3215-2020
+**Radicación (DDP 1712):** 54546
+
+**Lista de Temas (DDP 1712):**
+(i) LA GARANTÍA DEL DERECHO A LA DEFENSA TÉCNICA. 
+(ii) LA SIMPLE DISCREPANCIA CON LO REALIZADO POR OTRO DEFENSOR.
+
+---
+
+# PROVIDENCIA DDP 1713
+
+**Número de Providencia (DDP 1713):** SENTENCIA C-181/16
+**Radicación (DDP 1713):** No especificado
+
+**Lista de Temas (DDP 1713):**
+(i) DEMANDA DE INCONSTITUCIONALIDAD CONTRA EL ARTÍCULO 46 DE LA LEY 1453 DE 2011. 
+(ii) LA CONDUCTA PUNIBLE.
+
+---
+
+# PROVIDENCIA DDP 1714
+
+**Número de Providencia (DDP 1714):** SENTENCIA C-297/16
+**Radicación (DDP 1714):** No especificado
+
+**Lista de Temas (DDP 1714):**
+CONSTITUCIONALIDAD DE LA LEY QUE CREA EL TIPO PENAL DE FEMINICIDIO COMO DELITO AUTONOMO “LEY ROSA ELVIRA CELY”.
+
+---
+
+# PROVIDENCIA DDP 1715
+
+**Número de Providencia (DDP 1715):** AP087–2021
+**Radicación (DDP 1715):** No especificado
+**Decisión (DDP 1715):** SEGUNDA INSTANCIA 58323.
+
+**Lista de Temas (DDP 1715):**
+(i) LA EXCLUSIÓN PROBATORIA. 
+(ii) LA EXCLUSIÓN DE UNA PRUEBA SOLO PROCEDE POR RAZONES DE ILEGALIDAD O ILICITUD. 
+(iii) “SE HA DICHO QUE LOS CRITERIOS DE ACREDITACIÓN DE LA AUTENTICIDAD DE LOS ELEMENTOS FÍSICOS APLICAN «A PLENITUD A LOS DOCUMENTOS», PERO EN LA MEDIDA QUE LA PARTE QUE LOS SOLICITA TIENE EL DEBER DE ESTABLECER «DE QUÉ TRATA CADA UNO DE ELLOS», SIN QUE PARA DICHOS FINES SE EXIJA UNA FIJACIÓN FOTOGRÁFICA, EN VIDEO, O UN LEVANTAMIENTO DE PLANO …”.  
+(iv) “…LA SALA HA INSISTIDO QUE LOS PROTOCOLOS DE CADENA DE CUSTODIA NO CONSTITUYEN UN TEMA RELEVANTE EN EL ÁMBITO DE LA CLÁUSULA DE EXCLUSIÓN, PERO TAMPOCO QUIERE DECIR QUE EL ENTE INVESTIGADOR PUEDA SUSTRAERSE DE SOMETER LAS EVIDENCIAS FÍSICAS A DICHOS PROTOCOLOS, A EFECTOS DE EVITAR SU SUPLANTACIÓN O ALTERACIÓN, POR LO QUE RESULTA IMPERATIVO QUE EXISTA UNA ADECUADA AUTENTICACIÓN EN EL «PROCESO DE DETERMINACIÓN DE LOS HECHOS EN EL PROCESO PENAL.”. 
+(v) “LA LÍNEA DOCTRINAL DE LA CORTE ES QUE EL TESTIGO DE ACREDITACIÓN SÓLO SE TORNA INDISPENSABLE PARA INTRODUCIR AL JUICIO ORAL LOS DOCUMENTOS SOBRE LOS CUALES NO RECAE LA PRESUNCIÓN DE AUTENTICIDAD, Y QUE LOS QUE GOZAN DE ESA PRESUNCIÓN PUEDEN SER INGRESADOS DIRECTAMENTE POR LA PARTE INTERESADA.”.
+
+---
+
+# PROVIDENCIA DDP 1716
+
+**Número de Providencia (DDP 1716):** SP937-2020
+**Radicación (DDP 1716):** 47967
+
+**Lista de Temas (DDP 1716):**
+EL HOMICIDIO Y EL MOTIVO ABYECTO O FÚTIL.
+
+---
+
+# PROVIDENCIA DDP 1717
+
+**Número de Providencia (DDP 1717):** SP620-2019
+**Radicación (DDP 1717):** 48976
+
+**Lista de Temas (DDP 1717):**
+LO ABYECTO EN EL HOMICIDIO.
+
+---
+
+# PROVIDENCIA DDP 1718
+
+**Número de Providencia (DDP 1718):** AP2202-2018
+**Radicación (DDP 1718):** 49345
+
+**Lista de Temas (DDP 1718):**
+DIFERENCIA ENTRE ABYECTO Y FÚTIL.
+
+---
+
+# PROVIDENCIA DDP 1719
+
+**Número de Providencia (DDP 1719):** SP3459-2016
+**Radicación (DDP 1719):** 37504
+
+**Lista de Temas (DDP 1719):**
+DIFERENCIA ENTRE MOTIVOS ABYECTO Y FÚTIL.
+
+---
+
+# PROVIDENCIA DDP 1720
+
+**Número de Providencia (DDP 1720):** STP1276-2015
+**Radicación (DDP 1720):** 77598
+
+**Lista de Temas (DDP 1720):**
+(i) LA DETENCIÓN DOMICILIARIA. 
+(ii) LA PRISIÓN DOMICILIARIA. 
+(iii) LA SUSTITUCIÓN DE LA EJECUCIÓN DE LA PENA.
+
+---
+
+# PROVIDENCIA DDP 1721
+
+**Número de Providencia (DDP 1721):** AP123-2021
+**Radicación (DDP 1721):** 58893
+
+**Lista de Temas (DDP 1721):**
+LA CAUSAL DE IMPEDIMENTO CUANDO EL JUEZ HAYA ACTUADO COMO FISCAL EN EL PROCESO NO OPERA DE MANERA AUTOMÁTICA.
+
+---
+
+# PROVIDENCIA DDP 1722
+
+**Número de Providencia (DDP 1722):** AP160–2021
+**Radicación (DDP 1722):** 54928
+
+**Lista de Temas (DDP 1722):**
+(i) LAS REGLAS MÍNIMAS DE FUNDAMENTACIÓN DE LA CASACIÓN Y LOS PRINCIPIOS QUE LAS INSPIRAN. 
+(ii) PRESUPUESTOS DE LÓGICA Y DE FUNDAMENTACIÓN DEBIDA DE LAS CAUSALES DE CASACIÓN. 
+(iii) LA INEPTITUD DEL ABOGADO PUEDE RESULTAR LESIVA DEL DERECHO A LA DEFENSA TÉCNICA Y VICIAR DE NULIDAD EL JUICIO. 
+(iv) “EN RELACIÓN CON LOS PRINCIPIOS DE LA LÓGICA, LA CORTE HA SOSTENIDO QUE ELLOS SE CONCRETAN EN: 
+(I) IDENTIDAD: UNA COSA SÓLO PUEDE SER LO QUE ES Y NO OTRA, Y SÓLO PUEDE SER IDÉNTICA A SÍ MISMA; 
+(II) NO CONTRADICCIÓN: UNA COSA NO PUEDE ENTENDERSE EN DOS DIMENSIONES AL MISMO TIEMPO, LO CUAL SIGNIFICA QUE, NO PUEDE SER Y NO SER SIMULTÁNEAMENTE, O QUE DOS JUICIOS, QUE ENTRE SÍ SE CONTRADICEN, NO PUEDEN SER VERDADEROS AL MISMO TIEMPO; 
+(III) TERCERO EXCLUIDO: ENTRE DOS PROPOSICIONES, EN LA CUAL UNA AFIRMA Y OTRA NIEGA, UNA DE ELLAS DEBE SER VERDADERA, VALE DECIR, ENTRE LA AFIRMACIÓN Y LA NEGACIÓN NO HAY UNA TERCERA POSIBILIDAD Y, LA VERDAD SURGE DE LA AFIRMACIÓN O DE LA NEGACIÓN; Y 
+(IV) RAZÓN SUFICIENTE: CUALQUIER AFIRMACIÓN QUE ACREDITE LA EXISTENCIA O NO DE UN HECHO, DEBE ESTAR FUNDAMENTADA EN UNA RAZÓN QUE LA JUSTIFIQUE SUFICIENTEMENTE, PARA QUE SEA ASÍ Y NO DE OTRO MODO.”.
+
+---
+
+# PROVIDENCIA DDP 1723
+
+**Número de Providencia (DDP 1723):** AP161–2021
+**Radicación (DDP 1723):** No especificado
+**Decisión (DDP 1723):** IMPUGNACIÓN ESPECIAL 55788.
+
+**Lista de Temas (DDP 1723):**
+(i) “LA IMPROCEDENCIA DEL RECURSO DE CASACIÓN CONTRA LAS DECISIONES DICTADAS POR LA SALA DE CASACIÓN PENAL DE LA CORTE SUPREMA DE JUSTICIA EN EL MARCO DE LA IMPUGNACIÓN ESPECIAL COMO MECANISMO JUDICIAL PARA GARANTIZAR EL PRINCIPIO DE DOBLE CONFORMIDAD.”. 
+(ii) “EVOLUCIÓN DEL DERECHO A IMPUGNAR LA PRIMERA CONDENA EN EL SISTEMA JURÍDICO COLOMBIANO.”. 
+(iii) “NATURALEZA DE LAS FUNCIONES A CARGO DE LA CORTE SUPREMA DE JUSTICIA E IMPOSIBILIDAD JURÍDICA DE IMPUGNAR SUS DECISIONES.”.
+
+---
+
+# PROVIDENCIA DDP 1724
+
+**Número de Providencia (DDP 1724):** SP2896-2020
+**Radicación (DDP 1724):** 53596
+
+**Lista de Temas (DDP 1724):**
+EL HOMICIDIO AGRAVADO Y LA INDEFENSIÓN.
+
+---
+
+# PROVIDENCIA DDP 1725
+
+**Número de Providencia (DDP 1725):** No especificado
+**Radicación (DDP 1725):** 28920
+
+**Lista de Temas (DDP 1725):**
+Determinación de la calidad de servidor público para saber si un procesado es sujeto activo calificado.
+
+---
+
+# PROVIDENCIA DDP 1726
+
+**Número de Providencia (DDP 1726):** SP12152-2014
+**Radicación (DDP 1726):** 43849
+
+**Lista de Temas (DDP 1726):**
+(i) EL SERVIDOR PÚBLICO Y EL SUJETO ACTIVO CALIFICADO. 
+(ii) EL PARTICULAR QUE EJERCE FUNCIONES PÚBLICAS.
+
+---
+
+# PROVIDENCIA DDP 1727
+
+**Número de Providencia (DDP 1727):** SENTENCIA C-296/95
+**Radicación (DDP 1727):** No especificado
+
+**Lista de Temas (DDP 1727):**
+TENENCIA, PORTE, TRANSPORTE, PÉRDIDA O DESTRUCCIÓN DE ARMAS Y MUNICIONES.
+
+---
+
+# PROVIDENCIA DDP 1728
+
+**Número de Providencia (DDP 1728):** AUTORIDAD COMPETENTE. CUI. 665946000063-2012-00022-00
+**Radicación (DDP 1728):** No especificado
+
+**Lista de Temas (DDP 1728):**
+LAS ARMAS, LAS MUNICIONES Y SU PORTE SIN PERMISO DE
+
+---
+
+# PROVIDENCIA DDP 1729
+
+**Número de Providencia (DDP 1729):** No especificado
+**Radicación (DDP 1729):** 2010-68722
+
+**Lista de Temas (DDP 1729):**
+(i) LAS ENTREVISTAS Y LA IMPUGNACIÓN DEL TESTIMONIO. 
+(ii) LA RETRACTACIÓN DEL TESTIGO EN LA AUDIENCIA DE JUICIO ORAL. 
+(iii) EL ESTADO DE IRA O INTENSO DOLOR. 
+(iv) EL MOTIVO ABYECTO O FÚTIL. 
+(v) LA SITUACIÓN DE INDEFENSIÓN O INFERIORIDAD. 
+(vi) LA AGRAVANTE DEL PORTE ILEGAL DE ARMAS POR LA UTILIZACIÓN DE UN MEDIO DE TRANSPORTE. 
+(vii) LA PENA ACCESORIA EN EL PORTE ILEGAL DE ARMAS.
+
+---
+
+# PROVIDENCIA DDP 1730
+
+**Número de Providencia (DDP 1730):** AP162-2021
+**Radicación (DDP 1730):** 53729
+
+**Lista de Temas (DDP 1730):**
+PRESCRIPCIÓN DE LA ACCIÓN PENAL PARA UN CASO DE CONTRATO SIN CUMPLIMIENTO DE REQUISITOS LEGALES Y COMPULSA DE COPIAS PARA EL PROCURADOR DELEGADO EN CASACIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1731
+
+**Número de Providencia (DDP 1731):** AP165-2021
+**Radicación (DDP 1731):** 58737
+
+**Lista de Temas (DDP 1731):**
+(i) TRÁMITE QUE DEBE CUMPLIRSE EN EL MARCO DEL INCIDENTE DE IMPUGNACIÓN DE COMPETENCIA.  
+(ii) LA COMPETENCIA PARA CONOCER AUDIENCIAS DE LIBERTAD POR VENCIMIENTO DE TÉRMINOS Y SUSTITUCIÓN DE LA MEDIDA DE ASEGURAMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1732
+
+**Número de Providencia (DDP 1732):** SP091-2021
+**Radicación (DDP 1732):** 55200
+
+**Lista de Temas (DDP 1732):**
+(i) LA JURISDICCIÓN ESPECIAL PARA LA PAZ Y SU COMPETENCIA PREFERENTE. 
+(ii) “LA JURISPRUDENCIA HA DICHO FRENTE A LOS TESTIMONIOS DE LOS DESMOVILIZADOS QUE DEBEN ANALIZARSE CON TODO RIGOR PORQUE ES SABIDO QUE PARA LOGRAR BENEFICIOS ESTOS PUEDEN FALTAR A LA VERDAD EN SUS DECLARACIONES; Y QUE DEBEN ENCONTRARSE SOPORTADOS EN LAS DEMÁS PRUEBAS ACOPIADAS EN EL PROCESO”.
+
+---
+
+# PROVIDENCIA DDP 1733
+
+**Número de Providencia (DDP 1733):** No especificado
+**Radicación (DDP 1733):** CUI 110012204000 2021 00122 01
+
+**Lista de Temas (DDP 1733):**
+(i) “… LA TUTELA NO ES UN MECANISMO QUE CONSTITUYA UNA TERCERA INSTANCIA PARA REVISAR LAS DECISIONES ADOPTADAS POR LOS JUECES EN EL MARCO DEL PROCESO PENAL; NO OBSTANTE, COMO YA SE ANOTÓ CUANDO SE PRESENTA UN OSTENSIBLE DEFECTO FÁCTICO EN LA DECISIÓN, ES NECESARIA LA INTERVENCIÓN DEL JUEZ CONSTITUCIONAL, PUES PRIMA LA PROTECCIÓN DE DERECHOS CONSTITUCIONALES FUNDAMENTALES COMO LA LIBERTAD …”. 
+(ii) “… LA MOTIVACIÓN DE LAS DECISIONES EMITIDAS POR LOS JUECES DE LA REPÚBLICA ES UNA GARANTÍA QUE HACE PARTE DEL DERECHO CONSTITUCIONAL FUNDAMENTAL AL DEBIDO PROCESO EN CUANTO COMPORTA UNA GARANTÍA CONTRA LA ARBITRARIEDAD Y EL DESPOTISMO DE LOS FUNCIONARIOS, A LA VEZ QUE SE ERIGE EN ELEMENTOS DE CERTEZA Y SEGURIDAD PARA EFECTO DE EJERCITAR EL DERECHO DE IMPUGNACIÓN DE CUALQUIERA DE LOS SUJETO PROCESALES E INTERVINIENTES EN EL TRÁMITE JUDICIAL.”. 
+(iii) UNA DECISIÓN SIN MOTIVACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1734
+
+**Número de Providencia (DDP 1734):** SP2190–2020
+**Radicación (DDP 1734):** No especificado
+**Decisión (DDP 1734):** IMPUGNACIÓN ESPECIAL. 55788.
+
+**Lista de Temas (DDP 1734):**
+ANTECEDENTE DEL ÚLTIMO CHOQUE DE TRENES ENTRE LA SLA DE CASACIÓN CIVIL Y LA SALA DE CASACIÓN PENAL DE LA CORTE SUPREMA DE JUSTICIA. 
+(i) LOS REQUISITOS DE LA RESOLUCIÓN DE ACUSACIÓN. 
+(ii) EL FUNCIONARIO JUDICIAL EN EL EXTERIOR PARA LA PRÁCTICA DE DILIGENCIAS JUDICIALES PENALES. 
+(iii) VALOR PROBATORIO DE LOS INFORMES DE LA UNIDAD DE INFORMACIÓN Y ANÁLISIS FINANCIERO Y ESTUDIOS CONTABLES. 
+(iv) EL LAVADO DE ACTIVOS. 
+(v) LA RETRACTACIÓN DEL TESTIGO. 
+(vi) ALCANCE DE LAS GARANTÍAS DE NO AUTOINCRIMINACIÓN Y NO INCRIMINACIÓN DE FAMILIARES PRÓXIMOS Y LA PROTECCIÓN DE LOS VÍNCULOS FAMILIARES MEDIANTE EL PRINCIPIO DE RESPETO A LA SOLIDARIDAD ÍNTIMA. 
+(vii) UN CONDUCTOR NO ESTÁ NECESARIAMENTE ENTERADO DE LA NATURALEZA DE LOS NEGOCIOS DE SU PATRÓN. 
+(viii) LA NECESARIA MOTIVACIÓN DE LAS SENTENCIAS Y DE LA SANCIÓN. 
+(ix) LOS AUMENTOS INMOTIVADOS DE LA PENA.
+
+---
+
+# PROVIDENCIA DDP 1735
+
+**Número de Providencia (DDP 1735):** AP198–2021
+**Radicación (DDP 1735):** No especificado
+**Decisión (DDP 1735):** DEFINICIÓN DE COMPETENCIA 58786.
+
+**Lista de Temas (DDP 1735):**
+(i) REGLAS DE COMPETENCIA JUEZ CON FUNCIÓN DE CONTROL DE GARANTÍAS Y JUEZ CON FUNCIÓN DE CONOCIMIENTO. 
+(ii) REGLAS PARA LA SELECCIÓN DEL JUEZ DE GARANTÍAS CUANDO YA SE HA FORMULADO ACUSACIÓN Y SE HA DEFINIDO EL JUEZ DE CONOCIMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1736
+
+**Número de Providencia (DDP 1736):** STP618-2021
+**Radicación (DDP 1736):** 114651
+
+**Lista de Temas (DDP 1736):**
+(i) “NO ES POSIBLE REVIVIR OPORTUNIDADES JURÍDICAS YA PRECLUIDAS, DE LAS QUE EL ACCIONANTE NO HIZO USO, PUES ACCEDER A SUS PRETENSIONES CONLLEVARÍA A DESCONOCER EL PRINCIPIO GENERAL DEL DERECHO SEGÚN EL CUAL NADIE PUEDE ALEGAR EN SU FAVOR SU PROPIA CULPA.”. 
+(ii) LA INMEDIATEZ Y LA TUTELA.
+
+---
+
+# PROVIDENCIA DDP 1737
+
+**Número de Providencia (DDP 1737):** STP619-2021
+**Radicación (DDP 1737):** 114529
+
+**Lista de Temas (DDP 1737):**
+(i) A PARTIR DEL ANUNCIO DEL SENTIDO DEL FALLO Y EN TANTO LA POSTERIOR SENTENCIA CONDENATORIA COBRA FIRMEZA, “EL JUEZ DE CONOCIMIENTO DEBE DECIDIR SOBRE LA LIBERTAD A LA LUZ DE LOS FINES DE LA PENA Y LA REGLAMENTACIÓN DE LOS SUBROGADOS.”. 
+(ii) LA SUBSIDIARIEDAD EN LA TUTELA.
+
+---
+
+# PROVIDENCIA DDP 1738
+
+**Número de Providencia (DDP 1738):** AP129–2021
+**Radicación (DDP 1738):** 56864
+
+**Lista de Temas (DDP 1738):**
+EL TÉRMINO DE LAS 36 HORAS SEÑALADO EN LA REGLA 205.3 DE LA LEY 906 DE 2004, “APLICA A LOS ACTOS URGENTES DE LA POLICÍA JUDICIAL Y NO A LAS LABORES EJECUTADAS EN CUMPLIMIENTO DE LAS ORDENES DEL DIRECTOR DE LA INVESTIGACIÓN, EVENTO PARA EL QUE NO RIGE EL CITADO PLAZO SINO EL QUE EL FISCAL CONCEDA, EL CUAL, EN TODO CASO, PUEDE AMPLIARSE, SEGÚN LA COMPLEJIDAD DEL ASUNTO.”.
+
+---
+
+# PROVIDENCIA DDP 1739
+
+**Número de Providencia (DDP 1739):** AP130–2021
+**Radicación (DDP 1739):** 57048
+
+**Lista de Temas (DDP 1739):**
+EL CAMBIO DEL JUEZ DE CONOCIMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1740
+
+**Número de Providencia (DDP 1740):** SP377-2018
+**Radicación (DDP 1740):** 48959
+
+**Lista de Temas (DDP 1740):**
+(i) LA UTILIZACIÓN DE DECLARACIONES ANTERIORES AL JUICIO ORAL. 
+(ii) PARÁMETROS PARA VALORAR EL CAMBIO DE VERSIÓN DE LOS TESTIGOS O SU RETRACTACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1741
+
+**Número de Providencia (DDP 1741):** AP213-2021
+**Radicación (DDP 1741):** 56803
+
+**Lista de Temas (DDP 1741):**
+(i) LAS NORMAS DEL CÓDIGO GENERAL DEL PROCESO SE APLICAN EN LA ACTUACIÓN PROCESAL PENAL CUANDO NO EXISTA REGULACIÓN ESPECÍFICA. 
+(ii) LA PRUEBA TRASLADADA. 
+(iii) EL DERECHO DE CONTRADICCIÓN. 
+(iv) EL DERECHO DE CONTRADICCIÓN FRENTE A LA PRUEBA TRASLADADA. SENTENCIA DE CASACIÓN EN EL PROCESO CONTRA JOSÉ MIGUEL NÁRVAEZ MARTÍNEZ POR EL ASESINATO DE JAIME GARZÓN.
+
+---
+
+# PROVIDENCIA DDP 1741
+
+**Número de Providencia (DDP 1741):** No especificado
+**Radicación (DDP 1741):** 11001
+**Decisión (DDP 1741):** 31 07 007 2011 00051 00 (1395-7).
+
+**Lista de Temas (DDP 1741):**
+1. SENTENCIA DE PRIMERA INSTANCIA EN EL PROCESO CONTRA JOSÉ MIGUEL NÁRVAEZ MARTÍNEZ POR EL ASESINATO DE JAIME HERNANDO GARZÓN FORERO.
+
+---
+
+# PROVIDENCIA DDP 1741
+
+**Número de Providencia (DDP 1741):** No especificado
+**Radicación (DDP 1741):** 11001
+**Decisión (DDP 1741):** 31 07 007 2011 00051 04.
+
+**Lista de Temas (DDP 1741):**
+2. SENTENCIA DE SEGUNDA INSTANCIA EN EL PROCESO CONTRA JOSÉ MIGUEL NÁRVAEZ MARTÍNEZ POR EL ASESINATO DE JAIME HERNANDO GARZÓN FORERO.
+
+---
+
+# PROVIDENCIA DDP 1742
+
+**Número de Providencia (DDP 1742):** SP2190–2020
+**Radicación (DDP 1742):** No especificado
+**Decisión (DDP 1742):** IMPUGNACIÓN ESPECIAL. 55788.
+
+**Lista de Temas (DDP 1742):**
+(DDP 1734). 
+(i) LOS REQUISITOS DE LA RESOLUCIÓN DE ACUSACIÓN. 
+(ii) EL FUNCIONARIO JUDICIAL EN EL EXTERIOR PARA LA PRÁCTICA DE DILIGENCIAS JUDICIALES PENALES. 
+(iii) VALOR PROBATORIO DE LOS INFORMES DE LA UNIDAD DE INFORMACIÓN Y ANÁLISIS FINANCIERO Y ESTUDIOS CONTABLES. 
+(iv) EL LAVADO DE ACTIVOS. 
+(v) LA RETRACTACIÓN DEL TESTIGO. 
+(vi) ALCANCE DE LAS GARANTÍAS DE NO AUTOINCRIMINACIÓN Y NO INCRIMINACIÓN DE FAMILIARES PRÓXIMOS Y LA PROTECCIÓN DE LOS VÍNCULOS FAMILIARES MEDIANTE EL PRINCIPIO DE RESPETO A LA SOLIDARIDAD ÍNTIMA. 
+(vii) UN CONDUCTOR NO ESTÁ NECESARIAMENTE ENTERADO DE LA NATURALEZA DE LOS NEGOCIOS DE SU PATRÓN. 
+(viii) LA INDISPENSABLE MOTIVACIÓN DE LAS SENTENCIAS Y DE LA SANCIÓN. 
+(ix) LOS AUMENTOS INMOTIVADOS DE LA PENA.
+
+---
+
+# PROVIDENCIA DDP 1743
+
+**Número de Providencia (DDP 1743):** STC10418-2020
+**Radicación (DDP 1743):** 11001-02-03-000-2020-02963-00
+
+**Lista de Temas (DDP 1743):**
+SE ORDENA “A LA SALA DE CASACIÓN PENAL DE ESTA CORTE QUE, DENTRO DEL TÉRMINO DE CUARENTA Y OCHO (48) HORAS, CONTADO A PARTIR DE LA FECHA DE NOTIFICACIÓN DE LA PRESENTE PROVIDENCIA, DEJE SIN EFECTO, ÚNICAMENTE, EL INCISO FINAL DE LA PARTE RESOLUTIVA DEL FALLO DE 8 DE JULIO DE 2020 (SP2190-2020), A CUYO TENOR «CONTRA ESTA DETERMINACIÓN NO PROCEDEN RECURSOS», Y LAS ACTUACIONES QUE DE ELLA DEPENDAN.”.
+
+---
+
+# PROVIDENCIA DDP 1744
+
+**Número de Providencia (DDP 1744):** STC11399-2020
+**Radicación (DDP 1744):** 11001-02-03-000-2020-02358-00
+
+**Lista de Temas (DDP 1744):**
+DEJA “SIN VALOR NI EFECTO EL INCISO ÚLTIMO DEL NUMERAL QUINTO DE LA PARTE RESOLUTIVA DE LA SENTENCIASP2190-2020 DEL 8 DE JULIO DE 2020 DICTADA POR LA SALA PENAL DE ESTA CORPORACIÓN DENTRO DEL JUICIO PENAL RADICADO N° 55788 (interno de la Corte)”.
+
+---
+
+# PROVIDENCIA DDP 1745
+
+**Número de Providencia (DDP 1745):** No especificado
+**Radicación (DDP 1745):** 91513
+
+**Lista de Temas (DDP 1745):**
+ORDENA “DEJAR SIN EFECTO LAS ACTUACIONES O DECISIONES JUDICIALES QUE SE HUBIESEN PROFERIDO CON OCASIÓN DEL CUMPLIMIENTO DEL FALLO DE TUTELA CSJ STC10418-2020, EMITIDO POR LA SALA DE CASACIÓN CIVIL.”.  STL310-2021.
+
+---
+
+# PROVIDENCIA DDP 1746
+
+**Número de Providencia (DDP 1746):** AP161–2021
+**Radicación (DDP 1746):** No especificado
+**Decisión (DDP 1746):** IMPUGNACIÓN ESPECIAL 55788.
+
+**Lista de Temas (DDP 1746):**
+(i) SE DISPUSO “ADICIONAR LA SENTENCIA SP2190 DE 8 DE JULIO DE 2020 (RAD. 55788) EN LOS TÉRMINOS ANTERIORMENTE EXPUESTOS, EN ACATAMIENTO DEL FALLO DE TUTELA STC11399 DE 11 DE DICIEMBRE DE 2020.”. 
+(ii) “EN CONSECUENCIA, EL INCISO ÚLTIMO DEL NUMERAL QUINTO DE LA PARTE RESOLUTIVA, EN RELACIÓN CON EL SENTENCIADO HERBERT GONZALO RUEDA FAJARDO, QUEDARÁ ASÍ: “CONTRA ESTA DETERMINACIÓN NO PROCEDEN RECURSOS, DE CONFORMIDAD CON LO EXPUESTO EN EL ACÁPITE 7 DE LA PARTE MOTIVA.”.”.
+
+---
+
+# PROVIDENCIA DDP 1747
+
+**Número de Providencia (DDP 1747):** AP131-2021
+**Radicación (DDP 1747):** 58597
+
+**Lista de Temas (DDP 1747):**
+(i) COMPETENCIA RESPECTO DE UN AFORADO CONSTITUCIONAL. 
+(ii) “EL SIMPLE HECHO DE QUE OSTENTARA, PARA LA FECHA DE LA HIPÓTESIS DELICTIVA, LA CONDICIÓN DE BRIGADIER GENERAL DE LA POLICÍA NACIONAL, NO SIGNIFICA QUE LAS CONDUCTAS PUNIBLES ATRIBUIDAS LAS HAYA PERPETRADO EN EJERCICIO O CON OCASIÓN DE ESA JERARQUÍA.”. 
+(iii) LA COMISIÓN DE SERVICIOS Y LAS FUNCIONES PROPIAS DEL CARGO QUE DEJA TEMPORALMENTE.
+
+---
+
+# PROVIDENCIA DDP 1748
+
+**Número de Providencia (DDP 1748):** AP132-2021
+**Radicación (DDP 1748):** 58498
+
+**Lista de Temas (DDP 1748):**
+(i) LA PRUEBA SOBREVINIENTE. 
+(ii) “NO PUEDE EL DELEGADO FISCAL ALEGAR EXISTENCIA DE UNA PRUEBA SOBREVINIENTE, CUANDO LO CIERTO ES QUE, POR SU PROPIA CULPA, NO TUVO CONOCIMIENTO DE LA MISMA DE MANERA OPORTUNA.”. 
+(iii) “LA DESIDIA, NEGLIGENCIA O MALA FE” Y LA PRUEBA SOBREVINIENTE.
+
+---
+
+# PROVIDENCIA DDP 1749
+
+**Número de Providencia (DDP 1749):** AP141-2021
+**Radicación (DDP 1749):** 58775
+
+**Lista de Temas (DDP 1749):**
+(i) “… EN TRATÁNDOSE DE LAS AUDIENCIAS CONCENTRADAS DE LEGALIZACIÓN DE CAPTURA, FORMULACIÓN DE IMPUTACIÓN E IMPOSICIÓN DE MEDIDA DE ASEGURAMIENTO, ES COMPETENTE PARA CONOCERLAS, TANTO EL JUEZ DE CONTROL DE GARANTÍAS DEL LUGAR DE OCURRENCIA DE LOS HECHOS, COMO TAMBIÉN AQUEL DONDE LA PERSONA SE ENCUENTRA PRIVADA DE LA LIBERTAD …”. 
+(ii) “… SI BIEN, LAS DILIGENCIAS DE LEGALIZACIÓN DE CAPTURA, FORMULACIÓN DE IMPUTACIÓN E IMPOSICIÓN DE MEDIDA DE ASEGURAMIENTO, COMPORTAN NATURALEZA DISTINTA Y UN OBJETO ESPECÍFICO CADA UNA, NO ES POSIBLE ESCINDIRLAS EN LO TEMPORAL, VALE DECIR, ENTRE ELLAS DEBE OPERAR CONSECUTIVIDAD, POR LO QUE EL JUEZ QUE HAYA RESUELTO LA PRIMERA, CONSERVA LA COMPETENCIA PARA CONOCER LAS DOS SIGUIENTES DE MANERA SUBSECUENTE Y, EN LO POSIBLE, CONTINUA.”.
+
+---
+
+# PROVIDENCIA DDP 1750
+
+**Número de Providencia (DDP 1750):** AP190-2021
+**Radicación (DDP 1750):** 58267
+
+**Lista de Temas (DDP 1750):**
+(i) EL INCIDENTE DE LEVANTAMIENTO DE MEDIDAS CAUTELARES EN JUSTICIA Y PAZ. 
+(ii) LA BUENA FE SIMPLE Y LA BUENA FE CUALIFICADA O CREADORA DE DERECHO.
+
+---
+
+# PROVIDENCIA DDP 1751
+
+**Número de Providencia (DDP 1751):** ATP083-2021
+**Radicación (DDP 1751):** 114728
+
+**Lista de Temas (DDP 1751):**
+(i) EL INCIDENTE DE DESACATO EN LA TUTELA. 
+(ii) “LA FINALIDAD DEL INCIDENTE DE DESACATO NO ES LA SANCIÓN EN SÍ MISMA, SINO PROTEGER EL DERECHO FUNDAMENTAL VULNERADO O AMENAZADO.”.
+
+---
+
+# PROVIDENCIA DDP 1752
+
+**Número de Providencia (DDP 1752):** STP638-2021
+**Radicación (DDP 1752):** 114720
+
+**Lista de Temas (DDP 1752):**
+(i) “PARA CONCEDER LA LIBERTAD CONDICIONAL, EL JUEZ DE EJECUCIÓN DE PENAS DEBE ATENERSE A LAS CONDICIONES CONTENIDAS EN EL ARTÍCULO 64 DEL CÓDIGO PENAL, NORMA QUE, ENTRE OTRAS EXIGENCIAS, LE IMPONE VALORAR LA CONDUCTA PUNIBLE DEL CONDENADO.”. 
+(ii) “LAS VALORACIONES DE LA CONDUCTA PUNIBLE QUE HAGAN LOS JUECES DE EJECUCIÓN DE PENAS Y MEDIDAS DE SEGURIDAD PARA DECIDIR SOBRE LA LIBERTAD CONDICIONAL DE LOS CONDENADOS DEBE TENER EN CUENTA TODAS LAS CIRCUNSTANCIAS, ELEMENTOS Y CONSIDERACIONES HECHAS POR EL JUEZ PENAL EN LA SENTENCIA CONDENATORIA, SEAN ÉSTAS FAVORABLES O DESFAVORABLES AL OTORGAMIENTO DE LA LIBERTAD CONDICIONAL”. 
+(ii) LAS IDEAS DE RESOCIALIZACIÓN Y REINSERCIÓN SOCIAL.
+
+---
+
+# PROVIDENCIA DDP 1753
+
+**Número de Providencia (DDP 1753):** AP191-2021
+**Radicación (DDP 1753):** 58124
+
+**Lista de Temas (DDP 1753):**
+(i) LA CONEXIDAD. 
+(II) EL MOMENTO PROCESAL PARA SOLICITAR LA CONEXIDAD. 
+(III) UNA EVENTUAL SUSPENSIÓN DE LA ACTUACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1754
+
+**Número de Providencia (DDP 1754):** SP047-2021
+**Radicación (DDP 1754):** 55821
+
+**Lista de Temas (DDP 1754):**
+(i) LA VIOLENCIA INTRAFAMILIAR Y LA AGRAVANTE PUNITIVA POR RECAER EN UNA MUJER. 
+(ii) “LA AGRAVACIÓN PUNITIVA ESPECÍFICA PARA EL DELITO DE VIOLENCIA INTRAFAMILIAR REQUIERE CONSTATAR QUE EL AGRESOR REALIZÓ LA CONDUCTA EN UN CONTEXTO DE DISCRIMINACIÓN, DOMINACIÓN O SUBYUGACIÓN DE LA MUJER, SIN IMPORTAR LA FINALIDAD POR LA CUAL HAYA PROCEDIDO.”.
+
+---
+
+# PROVIDENCIA DDP 1755
+
+**Número de Providencia (DDP 1755):** STP667-2021
+**Radicación (DDP 1755):** 114188
+
+**Lista de Temas (DDP 1755):**
+(i) Providencia mediante la cual se resolvieron las peticiones formuladas en audiencia preparatoria del proceso seguido en contra de la ex senadora Piedad Zuccardi de García. 
+(ii) Secreto profesional. 
+(iii) Interceptación de conversaciones con el abogado. 
+(iv) Hallazgos casuales por una interceptación de comunicaciones. AP642-2017. RAD 34099. DDP. 1756. 
+(i) EL REGISTRO DEL DOMICILIO DE LOS ABOGADOS. 
+(II) EL DECRETO DE PRUEBAS OFICIOSAS EN SEGUNDA INSTANCIA EN EL PROCESO DISCIPLINARIO. 
+(III) LA INVESTIGACIÓN EN EL PROCESO DISCIPLINARIO DEBE SER INTEGRAL. 
+(IV) EL CASO DE UN ABOGADO VÍCTIMA DE UNA SUPLANTACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1757
+
+**Número de Providencia (DDP 1757):** No especificado
+**Radicación (DDP 1757):** 40254
+
+**Lista de Temas (DDP 1757):**
+FLASEDAD IDEOLÓGICA EN DOCUMENTO PÚBLICO, COMPORTAMIENTO DESPLEGADO POR DOS PERSONAS EN EJERCICIO DE SUS FUNCIONES COMO JUECES.
+
+---
+
+# PROVIDENCIA DDP 1758
+
+**Número de Providencia (DDP 1758):** AUTO INTERLOCUTORIO. RAD 35720
+**Radicación (DDP 1758):** No especificado
+
+**Lista de Temas (DDP 1758):**
+UN JUEZ ES CONDENADO EN SEGUNDA INSTANCIA POR LA COMISIÓN DEL DELITO DE FALSEDAD IDEOLÓGICA EN DOCUMENTO PÚBLICO COMETIDO EN EJERCICIO DE SU FUNCIONES AL FIRMAR UN
+
+---
+
+# PROVIDENCIA DDP 1759
+
+**Número de Providencia (DDP 1759):** No especificado
+**Radicación (DDP 1759):** 38975
+
+**Lista de Temas (DDP 1759):**
+(i) LA NOTIFICACIÓN DE LA SENTENCIA DE SEGUNDA INSTANCIA. 
+(ii) LA NOTIFICACIÓN EN ESTRADOS. 
+(iii) EL PROCESADO PRIVADO DE LA LIBERTAD Y LA AUDIENCIA DE LECTURA DEL FALLO DE SEGUNDO GRADO. 
+(iv) LA VOCACIÓN DE IMPUGNACIÓN Y LA SENTENCIA. 
+(v) “LOS JUECES NO DEBEN PASAR POR ALTO QUE EN EL SISTEMA PROCESAL DE LA LEY 906 DEL 2004 NO PUEDEN INTERVENIR OFICIOSAMENTE EN ARAS DE SALIR DEL ESTADO DE INCERTIDUMBRE EN QUE SE ENCUENTREN RESPECTO DE LA TIPICIDAD DEL DELITO INVESTIGADO Y/O DE LA RESPONSABILIDAD DEL ACUSADO, POR LA POTÍSIMA Y SENCILLA RAZÓN DE QUE EL SINDICADO LLEGA AL JUICIO AMPARADO EN LA PRESUNCIÓN DE INOCENCIA Y ESTA SE CONSTITUYE EN UN DERECHO QUE LO COBIJA DURANTE TODO EL DEBATE, SIENDO CARGA DE LA JUSTICIA RESOLVER LA DUDA PROBATORIA EN SU FAVOR.”. 
+(vi) LAS ESTIPULACIONES PROBATORIAS. 
+(vii) LOS ANEXOS A LAS ESTIPULACIONES PROBATORIAS Y SU VALOR.
+
+---
+
+# PROVIDENCIA DDP 1760
+
+**Número de Providencia (DDP 1760):** No especificado
+**Radicación (DDP 1760):** 38353
+
+**Lista de Temas (DDP 1760):**
+(i) DOSIFICACIÓN DE LA PENA EN MATERIA DE CONCURSO DE CONDUCTAS PUNIBLES. 
+(ii) ALCANCE DE LA EXPRESIÓN “SUMA ARITMÉTICA” CONTENIDA EN EL ARTÍCULO 31 DEL CÓDIGO PENAL. 
+(iii) DOSIFICACIÓN DE LA REBAJA PUNITIVA POR ALLANAMIENTO A CARGOS EN LA LEY 906 DE 2004. (ATENCIÓN A LA FECHA DE LA PROVIDENCIA).
+
+---
+
+# PROVIDENCIA DDP 1761
+
+**Número de Providencia (DDP 1761):** SP168-2021
+**Radicación (DDP 1761):** 57264
+
+**Lista de Temas (DDP 1761):**
+(i) LA VARIACIÓN EN EL FALLO DE LA CALIFICACIÓN JURÍDICA ATRIBUIDA EN LA ACUSACIÓN. 
+(ii) LA LABOR DEL CAMPANERO CORRESPONDE A LA COAUTORÍA Y NO A UNA PARTICIPACIÓN ACCESORIA. 
+(iii) LA COAUTORÍA. 
+(iv) LA COMPLICIDAD. 
+(v) EL TESTIGO DE OIDAS.
+
+---
+
+# PROVIDENCIA DDP 1762
+
+**Número de Providencia (DDP 1762):** STP665-2021
+**Radicación (DDP 1762):** 114280
+
+**Lista de Temas (DDP 1762):**
+(i) “LA INACTIVIDAD DEL ACTOR PARA INTERPONER LA DEMANDA DE AMPARO DURANTE UN TÉRMINO PRUDENCIAL, DEBE CONDUCIR A QUE NO SE CONCEDA.”. 
+(ii) EL PRESUPUESTO DE INMEDIATEZ EN LA TUTELA. 
+(iii) EL SUJETO DE ESPECIAL PROTECCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1763
+
+**Número de Providencia (DDP 1763):** STP663-2021
+**Radicación (DDP 1763):** 114058
+
+**Lista de Temas (DDP 1763):**
+(i) LA MORA EN LA ADOPCIÓN DE DECISIONES JUDICIALES. 
+(ii) DOS AÑOS DE INDAGACIÓN Y TAN SOLO UNA ORDEN A POLICÍA JUDICIAL.
+
+---
+
+# PROVIDENCIA DDP 1764
+
+**Número de Providencia (DDP 1764):** SENTENCIA C-390/14
+**Radicación (DDP 1764):** No especificado
+
+**Lista de Temas (DDP 1764):**
+CAUSALES DE LIBERTAD EN LA LEY 906 DE 2004.
+
+---
+
+# PROVIDENCIA DDP 1765
+
+**Número de Providencia (DDP 1765):** No especificado
+**Radicación (DDP 1765):** CUI 050016000259201100068 (6394)
+
+**Lista de Temas (DDP 1765):**
+TRÁFICO DE MONEDA FALSIFICADA.
+
+---
+
+# PROVIDENCIA DDP 1766
+
+**Número de Providencia (DDP 1766):** No especificado
+**Radicación (DDP 1766):** 26531
+
+**Lista de Temas (DDP 1766):**
+EL TRÁFICO DE MONEDA FALSA.
+
+---
+
+# PROVIDENCIA DDP 1767
+
+**Número de Providencia (DDP 1767):** STP952-2021
+**Radicación (DDP 1767):** 114066
+
+**Lista de Temas (DDP 1767):**
+(i) PROCEDIBILIDAD DE LA ACCIÓN DE TUTELA CONTRA UNA PROVIDENCIA JUDICIAL CUANDO LA ACTUACIÓN NO HA CULMINADO. 
+(ii) LA SUSPENSIÓN TEMPORAL DEL PROCESO. 
+(iii) LAS VÍCTIMAS ANTE UNA PETICIÓN DE LA FISCALÍA QUE CONSIDERAN CONTRARIA A SUS COMETIDOS. 
+(iv) RESULTA INFUNDADO SOLICITAR POR VÍA DE TUTELA LA REASIGNACIÓN DE UNA INVESTIGACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1768
+
+**Número de Providencia (DDP 1768):** No especificado
+**Radicación (DDP 1768):** 36513
+
+**Lista de Temas (DDP 1768):**
+LA VÍCTIMA Y EL PERJUDICADO EN EL PROCESO PENAL.
+
+---
+
+# PROVIDENCIA DDP 1769
+
+**Número de Providencia (DDP 1769):** AP218-2021
+**Radicación (DDP 1769):** 57971
+
+**Lista de Temas (DDP 1769):**
+EL RECONOCIMIENTO DE LA CONDICIÓN DE VÍCTIMA.
+
+---
+
+# PROVIDENCIA DDP 1770
+
+**Número de Providencia (DDP 1770):** SP14190-2016
+**Radicación (DDP 1770):** 40089
+
+**Lista de Temas (DDP 1770):**
+LA DESTINACIÓN ILEGAL DE COMBUSTIBLES.
+
+---
+
+# PROVIDENCIA DDP 1771
+
+**Número de Providencia (DDP 1771):** AP260-2021
+**Radicación (DDP 1771):** 58799
+
+**Lista de Temas (DDP 1771):**
+(i) EL ARTÍCULO 38 NUMERAL 1º DE LA LEY 906 DE 2004, ES APLICABLE POR FAVORABILIDAD A LOS PROCESOS REGIDOS POR LA LEY 600 ADELANTADOS CONTRA AFORADOS. 
+(ii) LOS CRITERIOS QUE LA SALA DE CASACIÓN PENAL EXPRESÓ, EN SENTENCIA DEL 24 DE FEBRERO DE 2010 CON OCASIÓN DEL PROCESO BAJO EL RADICADO 31195, SOBRE EL DEBER CUMPLIDO EN LOS PROCESOS PENALES. 
+(iii) “LA COMPETENCIA PARA CONOCER DE LA APELACIÓN DE UNA PROVIDENCIA SOBRE LA LIBERTAD DE UN PROCESO SOMETIDO AL RITO DEL ACTO LEGISLATIVO 01 DE 2018 …”. 
+(iv) LA FAVORABILIDAD DEL ARTÍCULO 30 DE LA LEY 1709 DE 2014.
+
+---
+
+# PROVIDENCIA DDP 1772
+
+**Número de Providencia (DDP 1772):** AP261-2021
+**Radicación (DDP 1772):** 58817
+
+**Lista de Temas (DDP 1772):**
+(i) FACTORES PARA DETERMINAR LA COMPETENCIA DEL JUEZ DE CONOCIMIENTO. 
+(ii) LA CONSUMACIÓN DEL DELITO DE LAVADO DE ACTIVOS.
+
+---
+
+# PROVIDENCIA DDP 1773
+
+**Número de Providencia (DDP 1773):** AP262-2021
+**Radicación (DDP 1773):** 58302
+
+**Lista de Temas (DDP 1773):**
+REMISIÓN A LA JEP DE UN PROCESO QUE ESTÁ EN LA CORTE PARA IMPUGNACIÓN ESPECIAL.
+
+---
+
+# PROVIDENCIA DDP 1774
+
+**Número de Providencia (DDP 1774):** AP287-2021
+**Radicación (DDP 1774):** 58568
+
+**Lista de Temas (DDP 1774):**
+LA COMPETENCIA PARA RESOLVER LAS SOLICITUDES DE CESACIÓN DE PROCEDIMIENTO A LOS SINDICADOS POR DELITOS POLÍTICOS EN PROCESOS TRAMITADOS SEGÚN LA LEY 600/2000.
+
+---
+
+# PROVIDENCIA DDP 1775
+
+**Número de Providencia (DDP 1775):** SP212-2021
+**Radicación (DDP 1775):** 52400
+
+**Lista de Temas (DDP 1775):**
+(i) EL CAMBIO DE JUEZ Y LA AFECTACIÓN A LOS PRINCIPIOS DE INMEDIACIÓN Y CONCENTRACIÓN. 
+(ii) “LA VARIACIÓN DEL SENTIDO DEL FALLO Y SU IDENTIDAD CON EL MISMO”. 
+(iii) “LA TENENCIA Y PORTE DE LAS ARMAS CATALOGADAS COMO DE GUERRA”. 
+(iv) EL DICTAMEN DE BALÍSTICA.
+
+---
+
+# PROVIDENCIA DDP 1776
+
+**Número de Providencia (DDP 1776):** STP8473-2016
+**Radicación (DDP 1776):** 86191
+
+**Lista de Temas (DDP 1776):**
+(i) LAS NULIDADES QUE PUEDEN PROPONERSE EN LA AUDIENCIA DE ACUSACIÓN. 
+(ii) ES VIABLE DIFERIR LA RESPUESTA A LAS NULIDADES PLANTEADAS DURANTE EL JUICIO ORAL.
+
+---
+
+# PROVIDENCIA DDP 1777
+
+**Número de Providencia (DDP 1777):** SP197-2021
+**Radicación (DDP 1777):** 55371
+
+**Lista de Temas (DDP 1777):**
+(i) LA QUERELLA. 
+(ii) LA CONCILIACIÓN PREPROCESAL. 
+(iii) EL EXTRANEUS Y LA COAUTORÍA.
+
+---
+
+# PROVIDENCIA DDP 1778
+
+**Número de Providencia (DDP 1778):** STP6683-2019
+**Radicación (DDP 1778):** 104340
+
+**Lista de Temas (DDP 1778):**
+DIFERIR, PARA EL FALLO, LA RESPUESTA A UNA SOLICITUD DE PRECLUSIÓN NO ES PROCEDENTE.
+
+---
+
+# PROVIDENCIA DDP 1779
+
+**Número de Providencia (DDP 1779):** STP968-2021
+**Radicación (DDP 1779):** 114718
+
+**Lista de Temas (DDP 1779):**
+(i) “EL OBJETO DEL DERECHO PENAL EN UN ESTADO COMO EL COLOMBIANO NO ES EXCLUIR AL DELINCUENTE DEL PACTO SOCIAL SINO BUSCAR SU REINSERCIÓN EN EL MISMO”. 
+(ii) LA VALORACIÓN DE LA CONDUCTA DEL INTERNO.
+
+---
+
+# PROVIDENCIA DDP 1780
+
+**Número de Providencia (DDP 1780):** SP11015-2016
+**Radicación (DDP 1780):** 47660
+
+**Lista de Temas (DDP 1780):**
+(i) LA ANALOGÍA Y EL PROCESO PENAL. 
+(ii) LA COMPLEMENTACIÓN O ADICIÓN DEL FALLO. 
+(iii) EL PREVARICATO POR ACCIÓN. 
+(iv) “LAS ESTIPULACIONES PROBATORIAS, SU FINALIDAD, LEGALIDAD Y CONTENIDO.”. 
+(v) EL COMISO. 
+(vi) LA FALSEDAD IDEOLÓGICA EN DOCUMENTO PÚBLICO. 
+(vi) EL CONCURSO APARENTE DE DELITOS. 
+(vii) EL TIPO PENAL COMPLEJO O CONSUNTIVO. 
+(viii) LA SOLICITUD PARA QUE SE AUMENTE LA CAUCIÓN IMPUESTA. 
+(ix) “AL FUNCIONARIO JUDICIAL LE ESTÁ VEDADO OTORGAR PERMISOS PARA TRABAJAR Y/O ESTUDIAR DE MANERA ABIERTA E INDETERMINADA.”.
+
+---
+
+# PROVIDENCIA DDP 1781
+
+**Número de Providencia (DDP 1781):** SENTENCIA C-163/08
+**Radicación (DDP 1781):** No especificado
+
+**Lista de Temas (DDP 1781):**
+(i) LA LIBERTAD PERSONAL. 
+(ii) LA PRIVACIÓN DE LA LIBERTAD. 
+(iii) EL JUEZ CON FUNCIÓN DE CONTROL DE GARANTÍAS. 
+(iv) EL CONTROL DE LEGALIDAD DE LA CAPTURA. “SENTENCIA INTERPRETATIVA DECLARANDO LA CONSTITUCIONALIDAD CONDICIONADA DEL INCISO TERCERO DEL ARTÍCULO 2° DE LA LEY 906 DE 2004 TAL COMO FUE MODIFICADO POR EL ARTÍCULO 1° DE LA LEY 1142 DE 2007”.
+
+---
+
+# PROVIDENCIA DDP 1782
+
+**Número de Providencia (DDP 1782):** SENTENCIA C-554/01
+**Radicación (DDP 1782):** No especificado
+
+**Lista de Temas (DDP 1782):**
+(i) PROHIBICIÓN DE DOBLE INCRIMINACIÓN. 
+(ii) RELATIVIZACIÓN INTERNA E INTERNACIONAL DEL NON BIS IN IDEM. DEMANDA DE CONSTITUCIONALIDAD CONTRA LA PARTE FINAL DE EL ARTÍCULO 8° DEL CÓDIGO PENAL.
+
+---
+
+# PROVIDENCIA DDP 1783
+
+**Número de Providencia (DDP 1783):** SENTENCIA C-551/01
+**Radicación (DDP 1783):** No especificado
+
+**Lista de Temas (DDP 1783):**
+(i) ELEMENTOS TEST DE RAZONABILIDAD. 
+(ii) EL DELITO CONTINUADO. 
+(iii) EL HOMICIDIO PRETERINTENCIONAL. 
+(iv) EL PARTO O ABORTO PRETERINTENCIONAL. 
+(v) LA ATENUACIÓN PUNITIVA EN EL PECULADO. 
+(vi) EL AGENTE RETENEDOR Y LA EXONERACIÓN DE RESPONSABILIDAD PENAL POR PAGO. 
+(vii) LA OBEDIENCIA DEBIDA. 
+(viii) EL NON BIS IN IDEM.
+
+---
+
+# PROVIDENCIA DDP 1784
+
+**Número de Providencia (DDP 1784):** SP171-2021
+**Radicación (DDP 1784):** 53077
+
+**Lista de Temas (DDP 1784):**
+YERROS EN EL PROCESO DE IDENTIFICACIÓN E INDIVIDUALIZACIÓN. ACCIÓN DE REVISIÓN EN EL PROCESO SEGUIDO EN CONTRA DE LUIS FELIPE VERTEL URANGO, QUIEN PASÓ SEIS DE CUARENTA AÑOS EN PRISIÓN POR UN DELITO QUE NO COMETIÓ.
+
+---
+
+# PROVIDENCIA DDP 1785
+
+**Número de Providencia (DDP 1785):** SENTENCIA C-144/10
+**Radicación (DDP 1785):** No especificado
+
+**Lista de Temas (DDP 1785):**
+(i) FINALIDAD DEL ACTO LEGISLATIVO 03 DE 2002. 
+(ii) CARCTERÍSTICAS DEL SISTEMA PENAL ACUSATORIO. 
+(iii) EL PRINCIPIO DE LEGALIDAD. 
+(iv) LA AUDIENCIA PÚBLICA DE JUZGAMIENTO. 
+(v) LA SUSPENSIÓN DE UNA AUDIENCIA. 
+(vi) FUNCIÓN DEL MINISTERIO PÚBLICO EN EL PROCESO PENAL. 
+(vii) FINCIÓN DEL JUEZ DE CONOCIMIENTO RESPECTO DE LA PRUEBA. 
+(viii) LA ACTIVIDAD PROBATORIA.
+
+---
+
+# PROVIDENCIA DDP 1786
+
+**Número de Providencia (DDP 1786):** No especificado
+**Radicación (DDP 1786):** 56903
+**Decisión (DDP 1786):** ). SALVAMENTOS DE VOTO.
+
+**Lista de Temas (DDP 1786):**
+(i) EL ALLANAMIENTO A CARGOS Y LA REBAJA DE PENA. 
+(ii) EL PRINCIPIO DE FAVORABILIDAD. 
+(iii) EL ALLANAMIENTO A CARGOS, EL PRINCIPIO DE FAVORABILIDAD Y EL REINTEGRO. 
+(iv) SE REAFRIMA QUE “PARA LA APROBACIÓN DEL ALLANAMIENTO, CUANDO SE TRATA DE CONDUCTAS ILÍCITAS PRODUCTO DE LAS CUALES EL PROCESADO OBTUVO UN INCREMENTO PATRIMONIAL, PARA SÍ O PARA TERCEROS, ES REQUISITO INELUDIBLE E IMPERATIVO, POR ENDE, NO CONDONABLE, LA DEVOLUCIÓN DE LA MITAD DEL VALOR APROPIADO Y GARANTIZAR EL RECAUDO DEL MONTO RESTANTE.”. 
+(iv) EN EL PECULADO POR APROPIACIÓN, SEA EN FAVOR PROPIO O DE TERCEROS, “ENFATIZA Y REITERA LA SALA, EXISTE LA OBLIGACIÓN DE REINTEGRAR, COMO LO DISPONE EL ARTÍCULO 349 DE LA LEY 906 DE 2004, POR LO MENOS, EL 50% DEL DINERO OBJETO DEL ILÍCITO, Y GARANTIZAR EL RECAUDO DEL REMANENTE.” AP2113-2020 (
+
+---
+
+# PROVIDENCIA DDP 1787
+
+**Número de Providencia (DDP 1787):** AP5911-2015
+**Radicación (DDP 1787):** 46109
+
+**Lista de Temas (DDP 1787):**
+(i) UN TRIBUNAL ORDENA PRACTICAR UNA PRUEBA EN EL JUICIO ORAL, QUE NO FUE DECRETADA EN AUDIENCIA PREPARATORIA Y SIN QUE LA MISMA TENGA LA CALIDAD DE SOBREVINIENTE. 
+(ii) LA IGUALDAD DE ARMAS. 
+(iii) LA SOLICITUD DE PRUEBAS DE PARTES E INTERVINIENTES Y LA CARGA ARGUMENTATIVA. 
+(iv) UNA OMISIÓN DENTRO DE LA DINÁMICA DADA A LA AUDIENCIA PREPARATORIA O LA FALTA DE MOTIVACIÓN DE SU PROVEÍDO, PROLONGARÁ O EXTENDERÁ A LA AUDIENCIA DE JUICIO ORAL EL DEBATE RESPECTO A LAS PETICIONES PROBATORIAS. 
+(v) EL PRINCIPIO PRECLUSIVO DE LOS ACTOS PROCESALES.
+
+---
+
+# PROVIDENCIA DDP 1788
+
+**Número de Providencia (DDP 1788):** SP048-2021
+**Radicación (DDP 1788):** 57188
+
+**Lista de Temas (DDP 1788):**
+(i) LA VIOLENCIA INTRAFAMILIAR. 
+(ii) LA AGRAVACIÓN PUNITIVA EN LA VIOLENCIA INTRAFAMILIAR POR RECAER EN UNA MUJER.
+
+---
+
+# PROVIDENCIA DDP 1789
+
+**Número de Providencia (DDP 1789):** STP1139-2021
+**Radicación (DDP 1789):** 114614
+
+**Lista de Temas (DDP 1789):**
+(i) EL AGENTE OFICIOSO EN LA ACCIÓN DE TUTELA. 
+(ii) LA CONTINGENCIA POR LA EMERGENCIA SANITARIA.
+
+---
+
+# PROVIDENCIA DDP 1790
+
+**Número de Providencia (DDP 1790):** SP049-2021
+**Radicación (DDP 1790):** 54646
+
+**Lista de Temas (DDP 1790):**
+(i) LA UNIDAD DE DESIGNIO. 
+(ii) “NO EXISTE UNIDAD DE ACCIÓN CUANDO EN UN MISMO PROCESO LAS DECISIONES ILEGALES SE OCUPAN DE DISTINTAS PROBLEMÁTICAS”. 
+(iii) EL PREVARICATO POR ACCIÓN. 
+(iv) EL DOLO EN EL PREVARICATO POR ACCIÓN. 
+(v) “LOS ANTECEDENTES NEGATIVOS A NIVEL PERSONAL, SOCIAL Y FAMILIAR DEL SENTENCIADO NO CONLLEVAN, NECESARIAMENTE, A NEGAR LA CONCESIÓN DEL SUSTITUTO PENAL DE LA PRISIÓN DOMICILIARIA.”
+
+---
+
+# PROVIDENCIA DDP 1791
+
+**Número de Providencia (DDP 1791):** SENTENCIA C-1189/00
+**Radicación (DDP 1791):** No especificado
+
+**Lista de Temas (DDP 1791):**
+EL PRINCIPIO DE TERRITORIALIDAD DE LA LEY PENAL. (ARTÍCULO 14 DEL CÓDIGO PENAL VIGENTE).
+
+---
+
+# PROVIDENCIA DDP 1792
+
+**Número de Providencia (DDP 1792):** No especificado
+**Radicación (DDP 1792):** 25423
+
+**Lista de Temas (DDP 1792):**
+(i) EL ASOCIADO QUE SE APODERA DE UN BIEN MUEBLE PERTENECIENTE A LA FORMA SOCIETARIA DE LA QUE HACE PARTE. 
+(ii) EL HURTO AGRAVADO POR LA CONFIANZA Y EL ABUSO DE CONFIANZA.
+
+---
+
+# PROVIDENCIA DDP 1793
+
+**Número de Providencia (DDP 1793):** AP392-2018
+**Radicación (DDP 1793):** 48438
+
+**Lista de Temas (DDP 1793):**
+EL CONSENTIMIENTO INFORMADO.
+
+---
+
+# PROVIDENCIA DDP 1794
+
+**Número de Providencia (DDP 1794):** No especificado
+**Radicación (DDP 1794):** CUI 47 001 22 04 000 2020 00167 00
+
+**Lista de Temas (DDP 1794):**
+(i) EL PLAZO RAZONABLE Y EL DEBIDO PROCESO EN MATERIA PENAL.  
+(ii) LA DILACIÓN EN EL TRÁMITE PROCESAL PENAL. 
+(iii) EL SEGUIMIENTO A LAS ÓRDENES IMPARTIDAS.
+
+---
+
+# PROVIDENCIA DDP 1795
+
+**Número de Providencia (DDP 1795):** No especificado
+**Radicación (DDP 1795):** CUI 630016000033201500689 01
+**Decisión (DDP 1795):** [1739].
+
+**Lista de Temas (DDP 1795):**
+(i) Sala Penal del Tribunal Superior de Bogotá concede permiso para trabajar a condenada con prisión domiciliaria para que labore como modelo webcam. 
+(ii) No es una actividad prohibida y no desconoce proceso de resocialización.
+
+---
+
+# PROVIDENCIA DDP 1796
+
+**Número de Providencia (DDP 1796):** SP122-2021
+**Radicación (DDP 1796):** 57296
+
+**Lista de Temas (DDP 1796):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LO MANIFIESTAMENTE CONTRARIO A LA LEY. 
+(iii) EL REINTEGRO DE LOS FUNCIONARIOS QUE SON SUSPENDIDOS POR ORDEN JUDICIAL. 
+(iv) LA SUSPENDIÓN TEMPORAL DE UN FUNCIONARIO JUDICIAL PROCESADO PENALMENTE. 
+(v) EL ABUSO DE AUTORIDAD POR ACTO ARBITRARIO O INJUSTO. 
+(vi) “¿EL “ACTO” CONSTITUTIVO DE ABUSO DE AUTORIDAD PUEDE CONSISTIR EN “RESOLUCIÓN DICTAMEN O CONCEPTO” EMITIDO POR SERVIDOR PÚBLICO EN EJERCICIO DE SUS FUNCIONES?”.
+
+---
+
+# PROVIDENCIA DDP 1797
+
+**Número de Providencia (DDP 1797):** AP4812-2016
+**Radicación (DDP 1797):** 47469
+
+**Lista de Temas (DDP 1797):**
+LAS PETICIONES PROBATORIAS Y LOS RECURSOS FRENTE A LO DECIDIDO POR EL JUEZ DE CONOCIMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1798
+
+**Número de Providencia (DDP 1798):** AP324-2021
+**Radicación (DDP 1798):** 58694
+
+**Lista de Temas (DDP 1798):**
+LA PRUEBA SOBREVINIENTE EN LA LEY 600 DE 2000. PROCESO EN CONTRA DE GUSTAVO ENRIQUE MALO FERNÁNDEZ.
+
+---
+
+# PROVIDENCIA DDP 1799
+
+**Número de Providencia (DDP 1799):** AP326-2021
+**Radicación (DDP 1799):** 57804
+
+**Lista de Temas (DDP 1799):**
+EL IMPEDIMENTO POR MANIFESTAR SU OPINIÓN SOBRE EL ASUNTO MATERIA DEL PROCESO. SE DECLARA INFUNDADO EL IMPEDIMENTO DE VARIOS MAGISTRADOS DE LA SALA DE CASACIÓN PENAL.
+
+---
+
+# PROVIDENCIA DDP 1800
+
+**Número de Providencia (DDP 1800):** AP309-2021
+**Radicación (DDP 1800):** No especificado
+**Decisión (DDP 1800):** 56923.
+
+**Lista de Temas (DDP 1800):**
+(i) UN MERECIDO REPROCHE POR COLOCAR “A LA MUJER EN UN INADMISIBLE PAPEL DE SERVILISMO, SUBORDINACIÓN Y OBEDIENCIA AL HOMBRE.”.  
+(ii) NO BASTA CON ENUNCIAR CAUSALES DE REVISIÓN, HAY QUE ACREDITAR LOS SUPUESTOS DE HECHO.
+
+---
+
+# PROVIDENCIA DDP 1801
+
+**Número de Providencia (DDP 1801):** No especificado
+**Radicación (DDP 1801):** 110016000253
+**Decisión (DDP 1801):** 2009 83825.
+
+**Lista de Temas (DDP 1801):**
+SENTENCIA DE PRIMERA INSTANCIA EN CONTRA DEL POSTULADO UBER DARIO YÁNEZ CAVADÍAS, ALIAS “OREJAS O VEINTIUNO” EX COMANDANTE MILITAR DEL BLOQUE “HÉROES DE TOLOVÁ”.
+
+---
+
+# PROVIDENCIA DDP 1802
+
+**Número de Providencia (DDP 1802):** SENTENCIA C-239/12
+**Radicación (DDP 1802):** No especificado
+
+**Lista de Temas (DDP 1802):**
+(i) CAPTURA EFECTUADA EN NAVES SUJETAS A UNA OPERACIÓN DE INTERDICCIÓN MARÍTIMA. 
+(ii)  EXCEPCIONES A LA RESERVA JUDICIAL PARA LA PRIVACIÓN DE LA LIBERTAD. 
+(iii) CONTROL DE LEGALIDAD DE LA CAPTURA.
+
+---
+
+# PROVIDENCIA DDP 1803
+
+**Número de Providencia (DDP 1803):** AP349–2021
+**Radicación (DDP 1803):** No especificado
+**Decisión (DDP 1803):** SEGUNDA INSTANCIA 56526.
+
+**Lista de Temas (DDP 1803):**
+(i) “AL NO ESTAR HABILITADA LA DEFENSA PARA DEMANDAR LA PRECLUSIÓN EN LA ETAPA DE INVESTIGACIÓN, TAMPOCO LO ESTÁ PARA INTERPONER RECURSO DE APELACIÓN CUANDO ESTA HAYA SIDO SOLICITADA POR LA FISCALÍA EN ESE ESTADIO PROCESAL.”. 
+(ii) PROPÓSITOS DE LA FASE DE INDAGACIÓN. 
+(iii) LA SOLICITUD DE PRECLUSIÓN. 
+(iv) EL PREVARICATO POR ACCIÓN. 
+(v) LA SESGADA VALORACIÓN PROBATORIA. 
+(vi) “SI BIEN ES CIERTO, LA FISCALÍA DIRIGE LA INDAGACIÓN Y DESARROLLA UN PROGRAMA METODOLÓGICO DE INVESTIGACIÓN, TAMBIÉN LO ES QUE EN AQUELLA ETAPA TIENE EL INELUDIBLE DEBER DE DEMOSTRAR LA AUSENCIA DE INTERÉS DEL ESTADO PARA CONTINUAR CON EL EJERCICIO DE LA ACCIÓN PENAL, EN RELACIÓN CON TODOS LOS HECHOS PUESTOS EN SU CONOCIMIENTO, O DE AQUELLOS QUE SE DESPRENDAN DE SU LABOR INVESTIGATIVA”.
+
+---
+
+# PROVIDENCIA DDP 1804
+
+**Número de Providencia (DDP 1804):** SENTENCIA C-264/95
+**Radicación (DDP 1804):** No especificado
+
+**Lista de Temas (DDP 1804):**
+(i) PRINCIPIO DE EXTRATERRITORIALIDAD DE LA LEY PENAL. 
+(ii) FINALIDAD DEL EXEQUATUR. 
+(iii) EL PRINCIPIO NON BIS IN IDEM Y LA PLURALIDAD DE PROCESOS.
+
+---
+
+# PROVIDENCIA DDP 1805
+
+**Número de Providencia (DDP 1805):** AP311–2021
+**Radicación (DDP 1805):** 57310
+
+**Lista de Temas (DDP 1805):**
+“EL ESTÁNDAR PROBATORIO DE LAS SENTENCIAS EMITIDAS EN LOS PROCESOS TERMINADOS ANTICIPADAMENTE DIFIERE DEL REQUERIDO EN LAS ACTUACIONES EN LAS QUE SE AGOTAN TODAS LAS ETAPAS PROCESALES.”.
+
+---
+
+# PROVIDENCIA DDP 1806
+
+**Número de Providencia (DDP 1806):** AP312–2021
+**Radicación (DDP 1806):** 58482
+
+**Lista de Temas (DDP 1806):**
+(i) EN CASACIÓN “EL DESCONOCIMIENTO DEL PRINCIPIO DE IN DUBIO PRO REO PUEDE ADUCIRSE POR VIOLACIÓN DIRECTA DE LA LEY SUSTANCIAL O POR VIOLACIÓN INDIRECTA”.  
+(ii) EL HECHO DE QUE EL PASO PEATONAL SEGURO NO ESTÉ DEMARCADO NO SIGNIFICA QUE NO EXISTA.
+
+---
+
+# PROVIDENCIA DDP 1807
+
+**Número de Providencia (DDP 1807):** STP12108-2020
+**Radicación (DDP 1807):** 113315
+
+**Lista de Temas (DDP 1807):**
+(i) “LA CALIDAD DE VÍCTIMA NO SÓLO SE PREDICA DE LA PERSONA A QUIEN SE LE VULNERÓ EL BIEN JURÍDICO TUTELADO EN LA LEY, SINO QUE DICHA EXPRESIÓN TAMBIÉN TIENE QUE HACERSE EXTENSIVA A TODAS AQUELLAS QUE RESULTARON PERJUDICADAS CON DICHA TRASGRESIÓN.”. 
+(ii) EN LO REFERIDO A LA PROTECCIÓN DE LAS VÍCTIMAS Y SU ACTUACIÓN AL INTERIOR DEL TRÁMITE JUDICIAL, SE TIENE ESTABLECIDO QUE TANTO EL FISCAL COMO EL REPRESENTANTE DEL MINISTERIO PÚBLICO DEBÍAN VELAR POR LOS DERECHOS DE AQUÉLLAS. 
+(iii) EL DERECHO A CONOCER LA VERDAD. CORTE SUPREMA DE JUSTICIA ORDENA A LA FISCALIA REALIZAR EXHUMACION DEL CADAVER EXTRAVIADO DE LA ENFERMERA MARILYN ESTHER PÉREZ LIÑÁN, EN LA CLINIDCA DEL PRADO DE BARRANQUILLA, QUIEN PRESUNTAMENTE MURIO POR COVID19.
+
+---
+
+# PROVIDENCIA DDP 1808
+
+**Número de Providencia (DDP 1808):** STP21643-2017
+**Radicación (DDP 1808):** 95621
+
+**Lista de Temas (DDP 1808):**
+“RESULTA INDISCUTIBLE QUE LOS TÉRMINOS DE LAS CAUSALES DE LIBERTAD DEBEN CONTABILIZARSE TENIENDO EN CUENTA QUE LOS DÍAS SON ININTERRUMPIDOS Y CONTINUOS DESDE EL DÍA SIGUIENTE DEL ACTO PROCESAL DE QUE SE TRATE.”.
+
+---
+
+# PROVIDENCIA DDP 1809
+
+**Número de Providencia (DDP 1809):** SP1142-2019
+**Radicación (DDP 1809):** 52804
+
+**Lista de Temas (DDP 1809):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LA COMPETENCIA PARA CONOCER DE ACCIONES DE HÁBEAS CORPUS EN PRIMERA INSTANCIA. 
+(iii) “RESULTA IMPROCEDENTE ACUDIR A LA ACCIÓN DE HÁBEAS CORPUS CUANDO EXISTE UN PROCESO PENAL EN TRÁMITE Y AL INTERIOR DE ÉL NO SE HAN AGOTADO LOS MECANISMOS ORDINARIOS, A TRAVÉS DE LOS CUALES LOS PROCESADOS PUEDEN PROCURAR EL RESTABLECIMIENTO DE SU DERECHO A LA LIBERTAD.”. 
+(iv) “EL HÁBEAS CORPUS SE PODRÁ INVOCAR O EJERCER POR UNA SOLA VEZ RESPECTO DE CADA HECHO O ACTUACIÓN CONSTITUTIVA DE VIOLACIÓN DE LOS DERECHOS PROTEGIDOS MEDIANTE EL ARTÍCULO 30 SUPERIOR”. 
+(v) LA LIBERTAD POR VENCIMIENTO DE TÉRMINOS Y EL PREACUERDO. 
+(vi) LA LIBERTAD DE UN CAPTURADO PARA EXTRADITAR Y EL VENCIMIENTO DE TÉRMINOS. 
+(vii) EL DOLO EN EL PREVARICATO ACTIVO. 
+(viii) LA “VIOLACIÓN DEL PRINCIPIO NON BIS IN ÍDEM, EN RAZÓN A LA DEDUCCIÓN DE UNA DOBLE CONSECUENCIA PUNITIVA CON BASE EN UN MISMO SUPUESTO FÁCTICO, ESTO ES, LA INVESTIDURA DE JUEZ OSTENTADA POR EL PROCESADO.”.
+
+---
+
+# PROVIDENCIA DDP 1810
+
+**Número de Providencia (DDP 1810):** SENTENCIA C-209/07
+**Radicación (DDP 1810):** No especificado
+
+**Lista de Temas (DDP 1810):**
+(i) EL PAPEL DE LA FISCAÍA FRENTE A LAS VÍCTIMAS EN EL PROCESO PENAL ACUSATORIO. 
+(ii) LA VÍCTIMA EN EL PROCESO PENAL DE LA LEY 906 DE 2004. 
+(iii) LA PETICIÓN DE LA VÍCTIMA EN PUNTO DE LA EXCLUSION, RECHAZO E INADMISIBILIDAD DE MEDIOS DE PRUEBA. 
+(iv) LA MEDIDA DE ASEGURAMIENTO Y LA VÍCTIMA. 
+(v) LA VÍCTIMA Y EL PRINCIPIO -CRITERIO- DE OPORTUNIDAD.
+
+---
+
+# PROVIDENCIA DDP 1811
+
+**Número de Providencia (DDP 1811):** AHP1343-2020
+**Radicación (DDP 1811):** 57784
+
+**Lista de Temas (DDP 1811):**
+(i) LA LIBERTAD POR VENCIMIENTO DE TÉRMINOS Y EL TIEMPO DE VACANCIA JUDICIAL QUE SE LE ATRIBUYE A LA DEFENSA. 
+(ii) LAS FALLAS TÉCNICAS Y LA LIBERTAD POR VENCIMIENTO DE TÉRMINOS.
+
+---
+
+# PROVIDENCIA DDP 1812
+
+**Número de Providencia (DDP 1812):** SP280-2021
+**Radicación (DDP 1812):** 51667
+
+**Lista de Temas (DDP 1812):**
+(i) “VIOLACIÓN INDIRECTA DE LA LEY SUSTANCIAL POR ERROR DE HECHO POR FALSO JUICIO DE EXISTENCIA POR SUPOSICIÓN, EN EL QUE SE INCURRE CUANDO EL JUZGADOR HACE PRECISIONES FÁCTICAS A PARTIR DE UN MEDIO DE CONVICCIÓN QUE NO FORMA PARTE DEL PROCESO.”.  
+(ii) “EL RECONOCIMIENTO A TRAVÉS DE FOTOGRAFÍAS O VIDEOS Y EN FILA DE PERSONAS, NO SON PRUEBAS EN SÍ MISMA, QUE ADQUIERAN TAL CALIDAD A TRAVÉS DE LA INTRODUCCIÓN DE LOS DOCUMENTOS ELABORADOS DURANTE SU REALIZACIÓN …”. 
+(iii) “LA NATURALEZA DEL SECUESTRO Y EL DAÑO COBIJADO POR ESTE, NO IMPLICA INDISPENSABLE QUE LA AFECTACIÓN DE LA LIBERTAD OPERE POR DÍAS O PERIODOS AMPLIOS, PUES, SE REPITE, EL DELITO COMPORTA REAL Y CONCRETA LIMITACIÓN DE LA LIBERTAD Y CAPACIDAD DE LOCOMOCIÓN DE LAS VÍCTIMAS.”.
+
+---
+
+# PROVIDENCIA DDP 1813
+
+**Número de Providencia (DDP 1813):** AP423-2021
+**Radicación (DDP 1813):** 56353
+
+**Lista de Temas (DDP 1813):**
+(i) LA SUSTENTACIÓN DEL RECURSO DE APELACIÓN. 
+(ii) “LA SENTENCIA QUE RESULTE FAVORABLE A LOS INTERESES DEL PROCESADO, DEBE FUNDARSE EN UN ANÁLISIS QUE TENGA COMO EJE CENTRAL LA IMPUTACIÓN FÁCTICA Y JURÍDICA ENTREGADA POR LA FISCALÍA AL FORMULAR LA ACUSACIÓN Y NO EN OTROS ASPECTOS AJENOS A ESTE REFERENTE TEMÁTICO.”. 
+(iii) “LA BASE FÁCTICA DE LOS JUICIOS VALORATIVOS INHERENTES AL DELITO DE PREVARICATO POR ACCIÓN.”. 
+(iv) LA NULIDAD CUANDO SE QUEBRANTA EL PRINCIPIO DE CONGRUENCIA.
+
+---
+
+# PROVIDENCIA DDP 1814
+
+**Número de Providencia (DDP 1814):** No especificado
+**Radicación (DDP 1814):** 1800111020002016
+**Decisión (DDP 1814):** 00264 01.
+
+**Lista de Temas (DDP 1814):**
+(i) LA FAVORABILIDAD EN EL DERECHO PENAL. 
+(ii) “LÍMITES A LA APLICACIÓN DE LOS PRINCIPIOS DE AUTONOMÍA E INDEPENDENCIA DE LOS FUNCIONARIOS JUDICIALES.”. 
+(iii) “EL DOLO COMO FORMA DE IMPUTACIÓN SUBJETIVA EN EL DERECHO DISCIPLINARIO JURISDICCIONAL.”.
+
+---
+
+# PROVIDENCIA DDP 1815
+
+**Número de Providencia (DDP 1815):** SP046–2021
+**Radicación (DDP 1815):** 53448
+
+**Lista de Temas (DDP 1815):**
+(i) LA NULIDAD EN CASACIÓN. 
+(ii) “TRANSGREDIR EL DEBIDO PROCESO SIGNIFICA PRETERMITIR UN ACTO PROCESAL EXPRESAMENTE SEÑALADO POR LA LEY COMO REQUISITO, SIN EL CUAL NO ES DABLE ADELANTAR EL SUBSIGUIENTE, O LLEVARLO A CABO SIN QUE CUMPLA LOS REQUISITOS SUSTANCIALES INHERENTES A SU VALIDEZ O EFICACIA.”. 
+(iii) “LAS CONSTANCIAS QUE REALIZAN LOS SECRETARIOS O LOS FUNCIONARIOS JUDICIALES NO REEMPLAZAN LOS TÉRMINOS ESTABLECIDOS EN LA LEY, HABIDA CUENTA QUE LOS MISMOS SON DE CARÁCTER PÚBLICO Y, EN CONSECUENCIA, DEBEN CUMPLIRSE SIN EXCEPCIÓN, AUN CUANDO SE HAYA ERRADO EN LA CONTABILIZACIÓN DE LOS MISMOS Y SE PLASME EN LA CONSTANCIA ALGO DISTINTO A LO ESTABLECIDO EN LA LEY, ASÍ SEA POR EQUIVOCACIÓN.”. 
+(iv) LA PRESCRIPCIÓN DE UNA PRESUNTA ESTAFA.
+
+---
+
+# PROVIDENCIA DDP 1816
+
+**Número de Providencia (DDP 1816):** SP372–2021
+**Radicación (DDP 1816):** 55532
+
+**Lista de Temas (DDP 1816):**
+(i) LA “FALTA DE IDENTIDAD ENTRE LO QUE DIJO LA PRUEBA Y LO QUE SE LE HIZO DECIR POR EL SENTENCIADOR”. 
+(ii) “LA IMPORTANCIA DE LOS HECHOS JURÍDICAMENTE RELEVANTES PARA LA ESTRUCTURA DEL PROCESO.”. 
+(iii) UN ERROR DE HECHO, EN LA MODALIDAD DE FALSO JUICIO DE IDENTIDAD.
+
+---
+
+# PROVIDENCIA DDP 1817
+
+**Número de Providencia (DDP 1817):** STP1032-2021
+**Radicación (DDP 1817):** 114598
+
+**Lista de Temas (DDP 1817):**
+MEDIDAS APLICADAS POR RAZÓN DEL COVID-19 EN FAVOR DE LA POBLACIÓN PRIVADA DE LA LIBERTAD.
+
+---
+
+# PROVIDENCIA DDP 1818
+
+**Número de Providencia (DDP 1818):** STP1036-2021
+**Radicación (DDP 1818):** 114660
+
+**Lista de Temas (DDP 1818):**
+(I) LA PRESCRIPCIÓN DE LA PENA. 
+(ii) LAS DISPOSICIONES SOBRE LA PRESCRIPCIÓN DE LA PENA “OPERAN EN EL SUPUESTO QUE EL CONDENADO SE ENCUENTRE GOZANDO DE LA LIBERTAD, NO OBSTANTE QUE EN SU CONTRA EXISTA UNA SENTENCIA CONDENATORIA EJECUTORIADA.”. 
+(iii) “… NO ES JURÍDICA NI FÁCTICAMENTE POSIBLE QUE LA MISMA PERSONA CUMPLA SIMULTÁNEAMENTE DOS O MÁS PENAS DE PRISIÓN A MENOS QUE SE HUBIESEN ACUMULADO …”.
+
+---
+
+# PROVIDENCIA DDP 1819
+
+**Número de Providencia (DDP 1819):** SENTENCIA C-799/05
+**Radicación (DDP 1819):** No especificado
+
+**Lista de Temas (DDP 1819):**
+(i) EL DERECHO DE DEFENSA NO TIENE LÍMITE TEMPORAL. 
+(ii) EL PRINCIPIO DE NO AUTOINCRIMINACIÓN. 
+(iii) LA COSA JUZGADA. 
+(iv) EL NON BIS IN IDEM. 
+(v) LA ACCIÓN DE REVISIÓN.
+
+---
+
+# PROVIDENCIA DDP 1820
+
+**Número de Providencia (DDP 1820):** No especificado
+**Radicación (DDP 1820):** CUI 66682 6000 000 2020 00006 01
+
+**Lista de Temas (DDP 1820):**
+(i) LA PRUEBA COMÚN. 
+(ii) “… NO ES QUE LE ESTÉ VEDADO AL DEFENSOR ACUDIR A LA PRÁCTICA DEL TESTIMONIO COMÚN, PERO SI LO HACE DEBE TENER EN CUENTA QUE LE ASISTE EL DEBER DE AGOTAR UNA ARGUMENTACIÓN COMPLETA Y SUFICIENTE QUE LE PERMITA ENTENDER AL JUEZ DE LA CAUSA POR QUÉ EL CONTRAINTERROGATORIO NO SERÁ IDÓNEO NI SUFICIENTE PARA SATISFACER LAS PRETENSIONES PROBATORIAS, ENCAMINADAS A SUSTENTAR LA TEORÍA DEL CASO.”.
+
+---
+
+# PROVIDENCIA DDP 1821
+
+**Número de Providencia (DDP 1821):** No especificado
+**Radicación (DDP 1821):** CUI 050016000206201427666
+
+**Lista de Temas (DDP 1821):**
+(i) “LA FLAGRANCIA CONSTITUYE TAN SOLO UNA FORMA DE “EVIDENCIA PROCESAL” QUE, COMO TAL, DEBE SER PROBADA DENTRO DEL PROCESO PENAL.” 
+(ii) NO SIEMPRE QUE HAYA CAPTURA EN FLAGRANCIA, EXISTIRÁ RESPONSABILIDAD PENAL. 
+(iii) LA RESPONSABILIDAD OBJETIVA Y LA RESPONSABILIDAD SUBJETIVA. 
+(iv) LA CULPABILIDAD. 
+(v) EL DOLO 
+(vi) DENUNCIAR Y DECLARAR EN CONTRA DE LOS MÍOS.
+
+---
+
+# PROVIDENCIA DDP 1822
+
+**Número de Providencia (DDP 1822):** AP418-2021
+**Radicación (DDP 1822):** 58444
+
+**Lista de Temas (DDP 1822):**
+(i) RECUSACIÓN FORMULADA POR EL EXMINISTRO DIEGO PALACIO BETANCURT EN CONTRA DE MAGISTRADOS DE LA SALA DE CASACIÓN PENAL. 
+(iI) LA RECUSACIÓN SE HACE EN CONTRA DE MAGISTRADO O MAGISTRADOS Y NO EN CONTRA DE UNA CORPORACIÓN COMO LA SALA PENAL DE LA CORTE.
+
+---
+
+# PROVIDENCIA DDP 1823
+
+**Número de Providencia (DDP 1823):** SENTENCIA C-420/20
+**Radicación (DDP 1823):** No especificado
+
+**Lista de Temas (DDP 1823):**
+CONTROL DE CONSTITUCIONALIDAD DEL DECRETO LEGISLATIVO 806 DEL 4 DE JUNIO DE 2020, “POR EL CUAL SE ADOPTAN MEDIDAS PARA IMPLEMENTAR LAS TECNOLOGÍAS DE LA INFORMACIÓN Y LAS COMUNICACIONES EN LAS ACTUACIONES JUDICIALES, AGILIZAR LOS PROCESOS JUDICIALES Y FLEXIBILIZAR LA ATENCIÓN A LOS USUARIOS DEL SERVICIO DE JUSTICIA, EN EL MARCO DEL ESTADO DE EMERGENCIA ECONÓMICA, SOCIAL Y ECOLÓGICA.”.
+
+---
+
+# PROVIDENCIA DDP 1824
+
+**Número de Providencia (DDP 1824):** AP419-2021
+**Radicación (DDP 1824):** 58442
+
+**Lista de Temas (DDP 1824):**
+(i) LA LEY 522 DE 1999 Y EL RECURSO DE CASACIÓN. 
+(ii) “… NINGÚN VICIO COMPORTA QUE LOS JUZGADORES NO INCLUYAN EN LOS FALLOS LA TOTALIDAD DEL MATERIAL PROBATORIO RECAUDADO, PUES LA LEY EXIGE INCLUIR SÓLO AQUEL EN QUE HA DE FUNDARSE LA DECISIÓN, CON SU RESPECTIVA VALORACIÓN …”. 
+(iii) RESPUESTA A LOS ALEGATOS DE CIERRE.
+
+---
+
+# PROVIDENCIA DDP 1825
+
+**Número de Providencia (DDP 1825):** SP122-2018
+**Radicación (DDP 1825):** 48192
+
+**Lista de Temas (DDP 1825):**
+(i) LA INDUCCIÓN A LA PROSTITUCIÓN. 
+(ii) EN EL 2016 YA SE HABLABA, CON RAZÓN QUE FUE DESCONOCIDA, DE LA IMPUGNACIÓN DE LA PRIMERA SENTENCIA CONDENATORIA PROFERIDA POR UN TRIBUNAL SUPERIOR AL DESATAR EL RECURSO DE APELACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1826
+
+**Número de Providencia (DDP 1826):** AP450-2021
+**Radicación (DDP 1826):** 57316
+
+**Lista de Temas (DDP 1826):**
+(i) EL NON BIS IN ÍDEM Y SUS DOS FACETAS. 
+(ii) LA COSA JUZGADA Y SUS DOS CONSECUENCIAS. 
+(iii) FORMA DE ALEGAR LA PRESCRIPCIÓN EN LA ACCIÓN DE REVISIÓN.
+
+---
+
+# PROVIDENCIA DDP 1827
+
+**Número de Providencia (DDP 1827):** AP424-2021
+**Radicación (DDP 1827):** 57804
+
+**Lista de Temas (DDP 1827):**
+(i) LA AUDIENCIA PREPARATORIA. 
+(ii) LA PERTINENCIA. 
+(ii) LA CONDUCENCIA. 
+(iii) LA TÁRIFA LEGAL 
+(iv) LA UTILIDAD. 
+(v) “FORMA COMO LAS PARTES DEBEN ABORDAR, EN SU DISCURSO DE SOLICITUD PROBATORIA, EL DESARROLLO DE LOS CONCEPTOS DE PERTINENCIA, CONDUCENCIA Y UTILIDAD DEL MEDIO DE CONVICCIÓN.”. 
+(vi) LAS HISTORIAS CLÍNICAS COMO MEDIO DE CONVICCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1828
+
+**Número de Providencia (DDP 1828):** No especificado
+**Radicación (DDP 1828):** CUI 110012204000202100280-00
+
+**Lista de Temas (DDP 1828):**
+(i) PEDIMENTO PARA PRORRÓGA DEL PLAZO DE SUSTENTACIÓN DEL VERTICAL INTERPUESTO CONTRA LA SENTENCIA.  
+(ii) NIEGAN TUTELA AL SECRETARIO DEL TRIBUNAL SUPERIOR DE BOGOTÁ.
+
+---
+
+# PROVIDENCIA DDP 1829
+
+**Número de Providencia (DDP 1829):** SP367–2021
+**Radicación (DDP 1829):** 48015
+
+**Lista de Temas (DDP 1829):**
+(i) NO RESULTA “POSIBLE QUE LA ACEPTACIÓN DE RESPONSABILIDAD -VÍA ALLANAMIENTO O PREACUERDO-, CULMINE CON SENTENCIA ABSOLUTORIA …". 
+(ii) FUNCIONES FUNDAMENTALES DE LA IMPUTACIÓN. 
+(iii) “LA ACEPTACIÓN DEL ALLANAMIENTO Y DEL PREACUERDO LIMITA LA FACULTAD DECISORIA DEL JUEZ DE CONOCIMIENTO EN DOS ASPECTOS”. 
+(iv) “… EL ORDENAMIENTO JURÍDICO DISPONE QUE UNA VEZ HECHA LA IMPUTACIÓN Y/O LA ACUSACIÓN, SOLO EXISTEN DOS MANERAS DE DESESTIMAR LOS CARGOS Y/O LA PRETENSIÓN PUNITIVA ESTATAL …”. 
+(v) PRUEBA PIPH.
+
+---
+
+# PROVIDENCIA DDP 1830
+
+**Número de Providencia (DDP 1830):** SP369–2021
+**Radicación (DDP 1830):** 55990
+
+**Lista de Temas (DDP 1830):**
+(i) LA “FAVORABILIDAD DEL ARTÍCULO 16 DE LA LEY 1826 DE 2017, QUE CONTEMPLA UNA REBAJA PUNITIVA MAYOR A LA PREVISTA EN EL PARÁGRAFO DEL ARTÍCULO 301 DE LA LEY 906 DE 2004, PARA QUIEN ES SORPRENDIDO EN FLAGRANCIA Y ACEPTA LOS CARGOS EN LA AUDIENCIA DE FORMULACIÓN DE IMPUTACIÓN.”. 
+(ii) “APLICACIÓN EXTENSIVA DE LA DECISIÓN DEL RECURSO DE CASACIÓN A LOS NO RECURRENTES EN LOS EVENTOS EN QUE LES SEA FAVORABLE”.
+
+---
+
+# PROVIDENCIA DDP 1831
+
+**Número de Providencia (DDP 1831):** No especificado
+**Radicación (DDP 1831):** CUI 528356000538-2013-00119-01
+
+**Lista de Temas (DDP 1831):**
+(i) EL ALLANAMIENTO A CARGOS, SU IRRECTRACTABILIDAD Y LAS LIMITACIONES PARA IMPUGNAR LA SENTENCIA CONDENATORIA QUE SURGE DE DICHO ACTO. 
+(ii) FINALIDAD DE LA AUDIENCIA DEL ARTÍCULO 447 DEL CÓDIGO PENAL ADJETIVO.
+
+---
+
+# PROVIDENCIA DDP 1832
+
+**Número de Providencia (DDP 1832):** SP2261-2014
+**Radicación (DDP 1832):** 39492
+
+**Lista de Temas (DDP 1832):**
+(i) LA CORRUPCIÓN DE ALIMENTOS, PRODUCTOS MÉDICOS O MATERIAL PROFILÁCTICO.  
+(ii) “INTERPRETACIÓN ERRÓNEA DE LOS ARTÍCULOS 25 Y 372 DEL CÓDIGO PENAL, AL IMPONER UNA POSICIÓN DE GARANTE SIN IDENTIFICAR EL DEBER JURÍDICO CONCRETO Y CONDENAR AL ACUSADO CON FUNDAMENTO EN LA OMISIÓN IMPROPIA, CUANDO EL DELITO ES DE MERA CONDUCTA Y NO DE RESULTADO.”. 
+(iii) LOS DELITOS DE ACTIVIDAD Y LOS DELITOS DE RESULTADO. 
+(iv) LA COMISIÓN POR OMISIÓN. 
+(v) LA POSICIÓN DE GARANTE.
+
+---
+
+# PROVIDENCIA DDP 1833
+
+**Número de Providencia (DDP 1833):** SENTENCIA C-366/14
+**Radicación (DDP 1833):** No especificado
+
+**Lista de Temas (DDP 1833):**
+(i) Procedencia de los registros y allanamientos. 
+(ii) Allanamiento para capturar. 
+(iii) Constitucionalización del derecho penal. 
+(iv) Las medidas de aseguramiento. 
+(v) El domicilio y su alcance. 
+(vi) La captura dispuesta por la fiscalía.
+
+---
+
+# PROVIDENCIA DDP 1834
+
+**Número de Providencia (DDP 1834):** SENTENCIA T-509/20
+**Radicación (DDP 1834):** No especificado
+
+**Lista de Temas (DDP 1834):**
+ACCIÓN DE TUTELA INSTAURADA CONTRA LA FISCALÍA GENERAL DE LA NACIÓN RESPECTO A ANOTACIONES EN EL SPOA.
+
+---
+
+# PROVIDENCIA DDP 1835
+
+**Número de Providencia (DDP 1835):** SP468-2020
+**Radicación (DDP 1835):** 53037
+**Decisión (DDP 1835):** SALVAMENTOS DE VOTO.
+
+**Lista de Temas (DDP 1835):**
+(i) LA TIPICIDAD Y LESIVIDAD DEL DELITO DE VIOLENCIA INTRAFAMILIAR. (HECHOS ACAECIDO ANTES DE LA ENTRADA EN VIGENCIA DE LA LEY 1959 DEL 20DE JUNIO DE 2019). 
+(ii) “LA CIRCUNSTANCIA DE AGRAVACIÓN PUNITIVA PREVISTA EN EL INCISO SEGUNDO DEL ARTÍCULO 229 DEL CÓDIGO PENAL”.
+
+---
+
+# PROVIDENCIA DDP 1836
+
+**Número de Providencia (DDP 1836):** SP368–2021
+**Radicación (DDP 1836):** 54700
+
+**Lista de Temas (DDP 1836):**
+(i) LA FALSEDAD EN DOCUMENTO PRIVADO. 
+(ii) LA FALSEDAD EN DOCUMENTO PRIVADO PUEDE COMETERSE EN LA MODALIDAD IDEOLÓGICA. 
+(iii) LA REGLA DE LA MEJOR EVIDENCIA NO EQUIVALE A LA REGLA DE LA ÚNICA EVIDENCIA. 
+(iv) LA OBTENCIÓN DE DOCUMENTO PÚBLICO FALSO.
+
+---
+
+# PROVIDENCIA DDP 1837
+
+**Número de Providencia (DDP 1837):** SP370-2021
+**Radicación (DDP 1837):** 56659
+
+**Lista de Temas (DDP 1837):**
+(i) LA DOBLE CONFORMIDAD JUDICIAL. 
+(ii) UTILIZACIÓN O FACILITACIÓN DE MEDIOS DE COMUNICACIÓN PARA OFRECER SERVICIOS SEXUALES DE MENORES. 
+(iii)  LOS ACTOS SEXUALES CON MENOR DE 14 AÑOS. 
+(iv) “EL JUZGADOR PUEDE ALTERAR LA DELIMITACIÓN TÍPICA REALIZADA POR EL ENTE DE PERSECUCIÓN PENAL EN LA ACUSACIÓN, SIN QUEBRANTAR LAS GARANTÍAS FUNDAMENTALES.”.
+
+---
+
+# PROVIDENCIA DDP 1838
+
+**Número de Providencia (DDP 1838):** SP371-2021
+**Radicación (DDP 1838):** 52150
+
+**Lista de Temas (DDP 1838):**
+(i) LA COAUTORÍA IMPROPIA Y LOS REQUISITOS EXIGIDOS POR LA LEY Y LA JURISPRUDENCIA PARA SU ESTRUCTURACIÓN. 
+(ii) EL PRINCIPIO LÓGICO DE RAZÓN SUFICIENTE. 
+(iii) “TAMBIÉN LA INTERVENCIÓN A TÍTULO DE CÓMPLICE RECLAMA DE ACUERDO PREVIO O CONCOMITANTE, Y NO POSTERIOR.”.
+
+---
+
+# PROVIDENCIA DDP 1839
+
+**Número de Providencia (DDP 1839):** No especificado
+**Radicación (DDP 1839):** CUI 053606000000201600023
+
+**Lista de Temas (DDP 1839):**
+(i) LA TAREA DEL JUEZ DE CONOCIMIENTO EN LOS PREACUERDOS. 
+(ii) LOS DELITOS DE CONCIERO PARA DELINQUIR AGRAVADO Y EXTORSIÓN, POR SÍ SOLOS NO PUEDEN CONSIDERARSE CONEXOS. 
+(iii) LOS DELITOS CONEXOS. 
+(iv) LA PROHIBICIÓN DEL ARTÍCULO 26 LA LEY 1121 DE 2006. 
+(v) EL CONCIERTO PARA DELINQUIR AGRAVADO CON FINES DE EXTORSIÓN Y LA EXTORSIÓN PUEDEN RESULTAR DELITOS CONEXOS.
+
+---
+
+# PROVIDENCIA DDP 1840
+
+**Número de Providencia (DDP 1840):** SENTENCIA C-451/03
+**Radicación (DDP 1840):** No especificado
+
+**Lista de Temas (DDP 1840):**
+LA INVESTIGACIÓN PREVIA Y LA RESERVA DE LAS DILIGENCIAS.
+
+---
+
+# PROVIDENCIA DDP 1841
+
+**Número de Providencia (DDP 1841):** SP1616-2018
+**Radicación (DDP 1841):** 51117
+
+**Lista de Temas (DDP 1841):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LAS “DECISIONES RESPECTO DE LAS CUALES QUEPA DISCUSIÓN SOBRE SU ACIERTO O LEGALIDAD, DIFERENCIAS DE CRITERIO, INTERPRETACIONES O EQUIVOCACIONES DESPOJADAS DEL ÁNIMO DE VIOLAR LA LEY.”. 
+(iii) UN ERROR DE VALORACIÓN. 
+(iv) EL ERROR DE PROHIBICIÓN. 
+(iv) EL ERROR DE TIPO VENCIBLE.
+
+---
+
+# PROVIDENCIA DDP 1842
+
+**Número de Providencia (DDP 1842):** SP5421-2019
+**Radicación (DDP 1842):** 50995
+
+**Lista de Temas (DDP 1842):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) LO MANIFIESTAMENTE CONTRARIO A LA LEY. 
+(iii) EL REQUISITO DEL QUÓRUM DELIBERTAORIO Y DECISORIO. 
+(iv) EL DOLO EN EL PREVARICATO POR ACCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1843
+
+**Número de Providencia (DDP 1843):** AP554-2019
+**Radicación (DDP 1843):** 50077
+
+**Lista de Temas (DDP 1843):**
+(i) “LA VÍCTIMA TIENE DERECHO A PRONUNCIARSE SOBRE LA SOLICITUD DE PRECLUSIÓN INVOCADA POR LA FISCALÍA O LA DEFENSA, SEGÚN EL CASO, ASÍ COMO A APORTAR LOS MEDIOS DE CONOCIMIENTO QUE ESTIME PERTINENTES PARA SUSTENTAR SU POSTURA Y A RECURRIR LA DECISIÓN QUE SE ADOPTE EN EL EVENTO DE QUE RESULTE DESFAVORABLE A SUS INTERESES.”. 
+(ii) EL PREVATICATO POR ACCIÓN EN LO OBJETIVO Y EN LO SUBJETIVO. 
+(iii) EL ERROR DE TIPO VENCIBLE Y EL ERROR DE TIPO INVENCIBLE. 
+(iv) LA ATIPICIDAD SUBJETIVA O ERROR DE TIPO. 
+(v) LA VENCIBILIDAD DEL ERROR DE TIPO.
+
+---
+
+# PROVIDENCIA DDP 1844
+
+**Número de Providencia (DDP 1844):** SENTENCIA C-603-16
+**Radicación (DDP 1844):** No especificado
+
+**Lista de Temas (DDP 1844):**
+(i) “MEDIDAS DE SUSPENSIÓN Y CANCELACIÓN DE PERSONERÍA JURÍDICA A ESTABLECIMIENTOS ABIERTOS AL PÚBLICO PRESUNTAMENTE DEDICADOS TOTAL O PARCIALMENTE A ACTIVIDADES DELICTIVAS.”. 
+(ii) MEDIDAS CAUTELARES O PREVENTIVAS EN MATERIA PENAL. 
+(iii) EL COMISO. 
+(iv) LAS VÍCTIMAS Y EL COMISO.
+
+---
+
+# PROVIDENCIA DDP 1845
+
+**Número de Providencia (DDP 1845):** SENTENCIA C-558/04
+**Radicación (DDP 1845):** No especificado
+
+**Lista de Temas (DDP 1845):**
+(i) MEDIDAS CAUTELARES EN MATERIA PENAL. 
+(ii) MEDIDAS CAUTELARES EN SOCIEDADES Y ORGANIZACIONES DEDICADAS AL DESARROLLO DE ACTIVIDADES DELINCUENCIALES.
+
+---
+
+# PROVIDENCIA DDP 1846
+
+**Número de Providencia (DDP 1846):** AP456-2021
+**Radicación (DDP 1846):** 58606
+
+**Lista de Temas (DDP 1846):**
+IMPEDIMENTO PARA CONOCER DE UN IMPEDIMENTO.
+
+---
+
+# PROVIDENCIA DDP 1847
+
+**Número de Providencia (DDP 1847):** AP468-2021
+**Radicación (DDP 1847):** 56106
+
+**Lista de Temas (DDP 1847):**
+(i) EL RECURSO DE REPOSICIÓN. 
+(ii) LA SUSTENTACIÓN DEL RECURSO HORIZONTAL. 
+(iii) “LAS CONFESIONES DENTRO DEL PROCESO DE JUSTICIA Y PAZ NO TIENEN EL PESO PROBATORIO SUFICIENTE PARA DAR CURSO A UN TRÁMITE DE REVISIÓN …”.
+
+---
+
+# PROVIDENCIA DDP 1848
+
+**Número de Providencia (DDP 1848):** AP469-2021
+**Radicación (DDP 1848):** 58959
+
+**Lista de Temas (DDP 1848):**
+(i) CUANDO SE DICE QUE LA COMPETENCIA PARA CONTINUAR VIGILANDO LA EJECUCCIÓN DE UNA PENA RADICA EN LA JEP Y NO EN LA JUSTICIA ORDINARIA, DICHA SITUACIÓN NO ENCAJA EN LA DEFINICIÓN DE COMPETENCIA ASIGNADA A LA SALA PENAL DE LA CORTE SUPREMA DE JUSTICIA. 
+(ii) LA COMPETENCIA DE LA CORTE CONSTITUCIONAL CUANDO SE TRATA DE UN CONFLICTO DE JURISDICCIONES. 
+(iii) UN CONFLICTO INEXISTENTE. 
+(iv) EL COMPONENTE JUSTICIA DEL SIVJRNR. 
+(v) “EN LOS EVENTOS EN QUE LA JURISDICCIÓN ESPECIAL PARA LA PAZ ASUME COMPETENCIA DE UN PROCESO QUE CONTABA CON SENTENCIA CONDENATORIA PROFERIDA POR LA JUSTICIA ORDINARIA, DESPLAZA A LAS AUTORIDADES JUDICIALES QUE VIGILABAN LA SANCIÓN IMPUESTA.”.
+
+---
+
+# PROVIDENCIA DDP 1849
+
+**Número de Providencia (DDP 1849):** AP471-2021
+**Radicación (DDP 1849):** 58946
+
+**Lista de Temas (DDP 1849):**
+(i) COMPETENCIA PARA CONOCER LA AUDIENCIA PRELIMINAR DE MEDIDAS DE PROTECCIÓN A VÍCTIMAS. 
+(ii) “LA SIMPLE AFIRMACIÓN RESPECTO A QUE LA “FISCALÍA ESPECIALIZADA DE LA SUBUNIDAD DE LA OIT” DEBERÍA ACUDIR AL DESARROLLO DE LA DILIGENCIA, NO DETERMINA PER SE LA SELECCIÓN DE LA AUTORIDAD JUDICIAL” PARA EL CONTROL DE GARANTÍAS. 
+(iii) LA COMPETENCIA DE LA FISCALÍA ES NACIONAL. 
+(iv) EL PRINCIPIO DE RAZONABILIDAD Y LA MAYOR PROTECCIÓN POSIBLE DE LAS GARANTÍAS PROCESALES DE QUIENES PUEDEN VERSE AFECTADOS CON LAS DECISIONES A ADOPTAR.
+
+---
+
+# PROVIDENCIA DDP 1850
+
+**Número de Providencia (DDP 1850):** SP395-2021
+**Radicación (DDP 1850):** 58136
+
+**Lista de Temas (DDP 1850):**
+(i) Elementos de la inasistencia alimentaria. 
+(ii) Los cumplimientos parciales de la obligación alimentaria. 
+(iii) “El incumplimiento de la asistencia debida al alimentario sólo adquiere relevancia típica si carece de justificación, de suerte que si la omisión está determinada por «una circunstancia de fuerza mayor como lo es la falta de capacidad económica, la conducta no es punible».”.
+
+---
+
+# PROVIDENCIA DDP 1851
+
+**Número de Providencia (DDP 1851):** No especificado
+**Radicación (DDP 1851):** CUI 050016000206201422638
+
+**Lista de Temas (DDP 1851):**
+(i) LA TERMINACIÓN ABREVIADA DURANTE LAS AUDIENCIAS PRELIMINARES Y LA RETRACTACIÓN DEL ALLANAMIENTO. 
+(ii) EL ACCESO ABUSIVO A UN SISTEMA INFORMÁTICO. 
+(iii) ANTECEDENTES LEGISLATIVOS DEL DELITO DE HURTO POR MEDIOS INFORMÁTICOS. 
+(iv) “ELEMENTOS ESTRUCTURALES DEL TIPO PENAL DE HURTO POR MEDIOS INFORMÁTICOS Y SEMEJANTES DESDE LA DOGMÁTICA PENAL.”. 
+(v) “EL BIEN JURÍDICO TUTELADO EN EL DELITO DE HURTO POR MEDIOS INFORMÁTICOS Y SEMEJANTES.”.
+
+---
+
+# PROVIDENCIA DDP 1852
+
+**Número de Providencia (DDP 1852):** SP401-2021
+**Radicación (DDP 1852):** 55833
+
+**Lista de Temas (DDP 1852):**
+(i) LA CONGURUENCIA JURÍDICA. 
+(ii) LA INCONGRUENCIA POR EXCESO. 
+(iii) EL ESTADO DE INCONCIENCIA EN LOS DELITOS SEXUALES. 
+(iv) “PAUTAS PARA LLEGAR AL GRADO DE CONOCIMIENTO DE CERTEZA EN LOS DELITOS SEXUALES CUANDO NO EXISTE PRUEBA DIRECTA.”.
+
+---
+
+# PROVIDENCIA DDP 1853
+
+**Número de Providencia (DDP 1853):** AP523-2021
+**Radicación (DDP 1853):** 53271
+
+**Lista de Temas (DDP 1853):**
+(i) CUANDO A LA HORA DE PRONUNCIARSE SOBRE LA CONCESIÓN DE UN RECURSO INTERPUESTO, EL JUZGADOR CONSIDERA “QUE LA IMPUGNACIÓN NO CONTROVIRTIÓ LAS RAZONES QUE FUNDAMENTARON LA NEGATIVA DEL DECRETO DE PRUEBAS SOBREVINIENTES” ES ERRADO RECHAZARLO. 
+(ii) LOS PRINCIPIOS QUE INSPIRAN LAS NULIDADES. 
+(iii) REGLAS DE ADMISIBILIDAD DE UN DOCUMENTO CUANDO CONTIENE DECLARACIONES ANTERIORES AL JUICIO. 
+(iv) “… TANTO EL DAÑO SICOLÓGICO SUFRIDO POR EL MENOR COMO EL CAMBIO COMPORTAMENTAL DE LA VÍCTIMA SON ALGUNOS EVENTOS ADECUADOS PARA CORROBORAR EL CONTENIDO INCRIMINATORIO DE PRUEBAS DE REFERENCIA DE CARGO.”.
+
+---
+
+# PROVIDENCIA DDP 1854
+
+**Número de Providencia (DDP 1854):** SP404-2021
+**Radicación (DDP 1854):** 58132
+
+**Lista de Temas (DDP 1854):**
+“… AL SER LA PRESCRIPCIÓN UNA CIRCUNSTANCIA MERAMENTE OBJETIVA DE IMPROSEGUIBILIDAD DEL EJERCICIO DEL IUS PUNIENDI, RESULTA VIABLE RECLAMARLA EN CUALQUIER MOMENTO ANTES DE QUE EL FALLO COBRE EJECUTORIA.”.
+
+---
+
+# PROVIDENCIA DDP 1855
+
+**Número de Providencia (DDP 1855):** SP403-2021
+**Radicación (DDP 1855):** 51848
+
+**Lista de Temas (DDP 1855):**
+(i) EL PRINCIPIO DE CONGRUENCIA. 
+(ii) “LOS HECHOS FIJADOS POR LA FISCALÍA EN LA IMPUTACIÓN NO PUEDEN MODIFICARSE EN TANTO QUE LA CALIFICACIÓN JURÍDICA PUEDE VARIARSE POR ELLA MISMA.”. 
+(iii) LA PERSPECTIVA DE GÉNERO. 
+(iv) “… LOS CRITERIOS DE APRECIACIÓN DE LA PRUEBA TESTIMONIAL ESTÁN LIGADOS A LOS PRINCIPIOS TÉCNICOS CIENTÍFICOS SOBRE LA PERCEPCIÓN Y MEMORIA …”. 
+(v) “… LAS CONTRADICCIONES EN QUE INCURRA UN MISMO TESTIGO, O UNOS CON OTROS, EN MODO ALGUNO CONSTITUYEN RAZÓN SUFICIENTE PARA DESECHAR SU RELATO …”. 
+(vi) EL CONCEPTO DE VIOLENCIA EN LOS DELITOS SEXUALES.
+
+---
+
+# PROVIDENCIA DDP 1856
+
+**Número de Providencia (DDP 1856):** AP524-2021
+**Radicación (DDP 1856):** 53294
+
+**Lista de Temas (DDP 1856):**
+(i) “… RESULTA POCO O NADA RAZONABLE EXIGIRLE A UN DEFENSOR NO REMUNERADO LA REALIZACIÓN DE ACTOS PROBATORIOS QUE REQUERÍAN DE LA DISPONIBILIDAD DE ALGÚN PRESUPUESTO.”. 
+(ii) LA GARANTÍA DE LA DEFENSA TÉCNICA.
+
+---
+
+# PROVIDENCIA DDP 1857
+
+**Número de Providencia (DDP 1857):** STP1276-2021
+**Radicación (DDP 1857):** 114870
+
+**Lista de Temas (DDP 1857):**
+(i) EL DERECHO AL BUEN NOMBRE. 
+(ii) EL NÚCLEO FAMILIAR RESULTA PARTICULARMENTE AFECTADO CON LOS JUICIOS QUE SE EMITAN PÚBLICAMENTE EN RELACIÓN CON UN PARIENTE FALLECIDO. 
+(iii) “LOS DERECHOS A LA INTIMIDAD Y AL BUEN NOMBRE RADICADOS EN CABEZA DE UNA PERSONA, NO DESAPARECEN CON LA MUERTE DE SU TITULAR, SINO QUE SE PROYECTAN A SU FAMILIA Y AÚN AL GRUPO SOCIAL DEL CUAL FORMABA PARTE EL INDIVIDUO.”.
+
+---
+
+# PROVIDENCIA DDP 1858
+
+**Número de Providencia (DDP 1858):** SP4129-2016
+**Radicación (DDP 1858):** 43007
+
+**Lista de Temas (DDP 1858):**
+(i) LA CORRUPCIÓN DE ALIMENTOS, PRODUCTOS MÉDICOS O MATERIAL PROFILÁCTICO. 
+(ii) LOS DOCUMENTOS QUE INGRESAN AL DEBATE. 
+(iii) “NINGUNA NORMA LEGAL HABILITA A LOS FUNCIONARIOS DE POLICÍA JUDICIAL A TRANSCRIBIR EN SUS INFORMES EL CONTENIDO DE LOS DOCUMENTOS HALLADOS EN SUS INVESTIGACIONES, NI A LAS PARTES A OMITIR SU PRESENTACIÓN EN LA AUDIENCIA DEL JUICIO ORAL.”. 
+(iv) EL DELITO DE CONTRABANDO. 
+(v) EL CONTRABANDO ABIERTO Y EL CONTRABANDO TÉCNICO.
+
+---
+
+# PROVIDENCIA DDP 1859
+
+**Número de Providencia (DDP 1859):** SENTENCIA C-592-05
+**Radicación (DDP 1859):** No especificado
+
+**Lista de Temas (DDP 1859):**
+(i) ACTO LEGISLATIVO QUE IMPLEMENTÓ EL SISTEMA PENAL ACUSATORIO. 
+(ii) EL PRINCIPIO DE LEGALIDAD. 
+(iii) EL PRINCIPIO DE FAVORABILIDAD. 
+(iv) COMPETENCIAS DE LA FISCALÍA Y DEFENSORÍA DEL PUEBLO. 
+(v) DECLARATORIA DE PERSONA  .
+
+---
+
+# PROVIDENCIA DDP 1860
+
+**Número de Providencia (DDP 1860):** PROVIDENCIA C-355-06
+**Radicación (DDP 1860):** No especificado
+
+**Lista de Temas (DDP 1860):**
+SENTENCIA DE CONSTITUCIONALIDAD DE LOS ARTÍCULOS 32.7, 122, 123 Y 124 DE LA LEY 599 DE 2000.
+
+---
+
+# PROVIDENCIA DDP 1861
+
+**Número de Providencia (DDP 1861):** No especificado
+**Radicación (DDP 1861):** 28872
+
+**Lista de Temas (DDP 1861):**
+(i) EL ALLANAMIENTO A LA IMPUTACIÓN Y EL INTERÉS PARA RECURRIR. 
+(ii) “LA AGRAVACIÓN DEL HOMICIDIO CONTEMPLADA EN EL NUMERAL 3º DEL ARTÍCULO 104 DEL CÓDIGO PENAL.”. 
+(iii) EL DELITO COMPLEJO. 
+(iv) LOS VERBOS RECTORES EN EL ARTÍCULO 365 DEL CÓDIGO PENAL.
+
+---
+
+# PROVIDENCIA DDP 1862
+
+**Número de Providencia (DDP 1862):** SENTENCIA C-156/16
+**Radicación (DDP 1862):** No especificado
+
+**Lista de Temas (DDP 1862):**
+(i) EL AGENTE ENCUBIERTO. 
+(ii) LOS ALLANAMIENTOS. 
+(iii) “LA INTERVENCION JUDICIAL PARA OBTENCION Y ASEGURAMIENTO DE ELEMENTOS MATERIALES DE PRUEBA.”.
+
+---
+
+# PROVIDENCIA DDP 1864
+
+**Número de Providencia (DDP 1864):** STP1696-2021
+**Radicación (DDP 1864):** 114939
+
+**Lista de Temas (DDP 1864):**
+(i) LAS DILACIONES INJUSTIFICADAS EN LA ADMINISTRACIÓN DE JUSTICIA. 
+(ii) ALTERNATIVAS A SEGUIR ANTE LA MORA INJUSTIFICADA. 
+(iii) LA AFECTACIÓN POR NO DAR INICIO A UN INCIDENTE DE DESACATO.
+
+---
+
+# PROVIDENCIA DDP 1865
+
+**Número de Providencia (DDP 1865):** STP1495-2021
+**Radicación (DDP 1865):** 114742
+
+**Lista de Temas (DDP 1865):**
+(i) LA TEMERIDAD EN LA TUTELA. 
+(ii) “… CUANDO SE EXAMINA SI CON LA PRESENTACIÓN DE UNA NUEVA TUTELA SE CONFIGURA LA TEMERIDAD, ES INDISPENSABLE PRESUMIR LA BUENA FE.”.
+
+---
+
+# PROVIDENCIA DDP 1866
+
+**Número de Providencia (DDP 1866):** STP1283-2021
+**Radicación (DDP 1866):** 114727
+
+**Lista de Temas (DDP 1866):**
+(i) “… CUANDO UNA DE LAS PARTES, O DE LOS INTERVINIENTES INVOLUCRADOS EN UN PROCESO JUDICIAL, DISPONE QUE DETERMINADO PROFESIONAL DEL DERECHO HABRÁ DE REPRESENTARLO EN LA LITIS NO TRASLADA AL ELEGIDO LA TITULARIDAD DE SU DERECHO DE DEFENSA, DE POR SI INALIENABLE E IRRENUNCIABLE, SINO QUE, SIMPLEMENTE LO AUTORIZA PARA EJERCER TAL DERECHO A SU NOMBRE. …”. 
+(ii) SI EL PROCESADO ESTÁ INCONFORME CON EL TRABAJO DE SU DEFENSOR, LO LÓGICO ES REVOCAR EL PODER.
+
+---
+
+# PROVIDENCIA DDP 1867
+
+**Número de Providencia (DDP 1867):** SENTENCIA SU917/13
+**Radicación (DDP 1867):** No especificado
+
+**Lista de Temas (DDP 1867):**
+EL PECULADO POR APLICACIÓN OFICIAL DIFERENTE.
+
+---
+
+# PROVIDENCIA DDP 1868
+
+**Número de Providencia (DDP 1868):** No especificado
+**Radicación (DDP 1868):** 42133
+
+**Lista de Temas (DDP 1868):**
+(i) EL PREVARICATO POR ACCIÓN DE UN GOBERNADOR. 
+(ii) EL PECULADO POR APLICACIÓN OFICIAL DIFERENTE.
+
+---
+
+# PROVIDENCIA DDP 1869
+
+**Número de Providencia (DDP 1869):** SP14985-2017
+**Radicación (DDP 1869):** 50366
+
+**Lista de Temas (DDP 1869):**
+(i) ALLANAMIENTO A CARGOS Y EL ARREPENTIMIENTO. 
+(ii) EL COHECHO PROPIO. 
+(iii) EL PREVARICATO OMISIVO. 
+(iv) LA ASOCIACIÓN PARA LA COMISIÓN DE UN DELITO CONTRA LA ADMINISTRACIÓN PÚBLICA.
+
+---
+
+# PROVIDENCIA DDP 1870
+
+**Número de Providencia (DDP 1870):** No especificado
+**Radicación (DDP 1870):** 20815
+
+**Lista de Temas (DDP 1870):**
+(i) EL PECULADO POR APLICACIÓN OFICIAL DIFERENTE. 
+(ii) EL CONTRATO SIN CUMPLIMIENTO DE REQUISITOS LEGALES. 
+(iii) EL PRESUNTO PREVARICATO POR ACCIÓN DE UN GOBERNADOR. 
+(iv) EL INTERÉS ILÍCITO EN LA CELEBRACIÓN DE CONTRATOS.
+
+---
+
+# PROVIDENCIA DDP 1871
+
+**Número de Providencia (DDP 1871):** No especificado
+**Radicación (DDP 1871):** 6593
+
+**Lista de Temas (DDP 1871):**
+EL PECULADO POR APLICACIÓN OFICIAL DIFERENTE Y EL BIEN JURÍDICO TUTELADO.
+
+---
+
+# PROVIDENCIA DDP 1872
+
+**Número de Providencia (DDP 1872):** STP1673-2021
+**Radicación (DDP 1872):** 115030
+
+**Lista de Temas (DDP 1872):**
+(i) EL DERECHO DE PETICIÓN. 
+(ii) LA FALTA DE CERTEZA RESPECTO A LA VIOLACIÓN DEL DERECHO OBJETO DE TUTELA.
+
+---
+
+# PROVIDENCIA DDP 1873
+
+**Número de Providencia (DDP 1873):** AP559-2021
+**Radicación (DDP 1873):** 58324
+
+**Lista de Temas (DDP 1873):**
+(i) LA REVISIÓN POR “LA APARICIÓN DE HECHOS NUEVOS O EL SURGIMIENTO DE MEDIOS PROBATORIOS DE IGUAL NATURALEZA NO CONOCIDOS AL TIEMPO DE LOS DEBATES CON VIRTUD SUFICIENTE PARA DEMOSTRAR LA INOCENCIA DEL CONDENADO O SU INIMPUTABILIDAD”. 
+(ii)  LA ACCIÓN DE REVISIÓN NO TIENE CARÁCTER SUBSIDIARIO O SUPLETORIO.
+
+---
+
+# PROVIDENCIA DDP 1874
+
+**Número de Providencia (DDP 1874):** AP565-2021
+**Radicación (DDP 1874):** 57183
+
+**Lista de Temas (DDP 1874):**
+(i) ERRORES EN LA APRECIACIÓN DE LOS MEDIOS DE PRUEBA. 
+(ii) LAS REGLAS DE LA EXPERIENCIA.
+
+---
+
+# PROVIDENCIA DDP 1875
+
+**Número de Providencia (DDP 1875):** AP571-2021
+**Radicación (DDP 1875):** 50043
+
+**Lista de Temas (DDP 1875):**
+(i) LA NULIDAD EN CASACIÓN. 
+(ii) LA CONGRUENCIA. 
+(iii) “… LA ACUSACIÓN, EN TANTO ACTO COMPLEJO, SÓLO PUEDE ENTENDERSE CUMPLIDO CON EL ESCRITO PRESENTADO POR LA FISCALÍA Y LA CONSECUENTE REALIZACIÓN DE LA AUDIENCIA EN QUE AQUELLA SE FORMULA, SIENDO POSIBLE EN EL CURSO DE ÉSTA PERFECCIONAR EL PRIMERO, DE MODO QUE LA ACUSACIÓN EN TODA SU EXTENSIÓN Y EFECTOS NO CORRESPONDE APENAS AL CONTENIDO DEL ESCRITO, SINO A ÉSTE MÁS LAS ACLARACIONES, ADICIONES O CORRECCIONES OPERADAS EN LA SUBSIGUIENTE AUDIENCIA.”. 
+(iv) EL TIPO PENAL EN BLANCO.
+
+---
+
+# PROVIDENCIA DDP 1876
+
+**Número de Providencia (DDP 1876):** SP196-2021
+**Radicación (DDP 1876):** 48768
+
+**Lista de Temas (DDP 1876):**
+(i) “… EN EL ÁMBITO DE LOS DELITOS IMPRUDENTES, LA CONCURRENCIA INFRACTORA DE LA VÍCTIMA PUEDE TENER RELEVANCIA, ENTRE OTROS ASPECTOS, EN LA RELACIÓN DE RIESGO.”. 
+(ii) APRECIACIÓN DE LA PRUEBA PERICIAL. 
+(iii) LA CONDUCCIÓN DE VEHÍCULOS ES UNA ACTIVIDAD SOCIALMENTE ADMITIDA, PERO PELIGROSA, POR LO QUE LA EXIGENCIA DE CUIDADO Y PRUDENCIA ES SUPERIOR PARA QUIEN LA REALIZA. 
+(iv) CULPA EXCLUSIVA DE LA VÍCTIMA.
+
+---
+
+# PROVIDENCIA DDP 1877
+
+**Número de Providencia (DDP 1877):** AP286-2021
+**Radicación (DDP 1877):** 53986
+
+**Lista de Temas (DDP 1877):**
+PRECLUSIÓN, EN SEDE CASACIONAL, POR PAGO A LA DIAN.
+
+---
+
+# PROVIDENCIA DDP 1878
+
+**Número de Providencia (DDP 1878):** AP272-2021
+**Radicación (DDP 1878):** 58885
+
+**Lista de Temas (DDP 1878):**
+(i) LA PRISIÓN DOMICILIARIA TRANSITORIA. 
+(ii) LAS EXCLUSIONES DEL ARTÍCULO 6° DEL DECRETO LEGISLATIVO 546 DE 2020. 
+(iii)  LA CONSTITUCIONALIDAD DE DICHA NORMA.
+
+---
+
+# PROVIDENCIA DDP 1879
+
+**Número de Providencia (DDP 1879):** SP4948-2019
+**Radicación (DDP 1879):** 55810
+
+**Lista de Temas (DDP 1879):**
+(i) EL PUENTE PEATONAL Y NO UTILIZARLO. 
+(ii) LA CONCURRENCIA DE CULPAS. 
+(iii) LA VELOCIDAD MÁXIMA EN LAS ZONAS RESIDENCIALES. 
+(iv) LOS ADELANTAMIENTOS A OTROS VEHÍCULOS. 
+(v) LA CONCURRENCIA INFRACTORA DE LA VÍCTIMA, “NECESARIAMENTE INCIDE EN LA APRECIACIÓN DE LA GRAVEDAD DEL INJUSTO, EN TANTO REFLEJA UN MENOR GRADO DE CULPA EN EL COMPORTAMIENTO DEL ENJUICIADO.”. 
+(vi) CULPA EXCLUSIVA DE LA VÍCTIMA.
+
+---
+
+# PROVIDENCIA DDP 1880
+
+**Número de Providencia (DDP 1880):** SP3070-2019
+**Radicación (DDP 1880):** 52750
+
+**Lista de Temas (DDP 1880):**
+(i) EL DELITO IMPRUDENTE. 
+(ii) “EN EL MARCO DE LA TEORÍA DE LA IMPUTACIÓN OBJETIVA, LA INFRACCIÓN DEL DEBER OBJETIVO DE CUIDADO ESTÁ CONCEBIDA DESDE EL RIESGO JURÍDICAMENTE DESAPROBADO.”. 
+(iii) EL RIESGO CREADO. 
+(iv) LA ACCIÓN A PROPIO RIESGO. 
+(v) LA CONCURRENCIA DE CULPAS. 
+(vi) LA FACULTAD DEL JUEZ PARA PRESCINDIR DE LA IMPOSICIÓN DE LA PENA.
+
+---
+
+# PROVIDENCIA DDP 1881
+
+**Número de Providencia (DDP 1881):** SP1945-2019
+**Radicación (DDP 1881):** 50523
+
+**Lista de Temas (DDP 1881):**
+(i) TEORÍA DE LA CREACIÓN DEL RIESGO JURÍDICAMENTE DESAPROBADO O EL INCREMENTO DEL RIESGO PERMITIDO. 
+(ii) “… EL ORDENAMIENTO AUTORIZA A LOS VEHÍCULOS DE EMERGENCIA REBASAR LOS LÍMITES DE VELOCIDAD.”.
+
+---
+
+# PROVIDENCIA DDP 1882
+
+**Número de Providencia (DDP 1882):** SP195-2021
+**Radicación (DDP 1882):** 51313
+
+**Lista de Temas (DDP 1882):**
+“EN LA DETERMINACIÓN DE LA PENA ACCESORIA DE PRIVACIÓN DEL DERECHO A LA TENENCIA Y PORTE DE ARMAS APLICA EL SISTEMA DE CUARTOS”.
+
+---
+
+# PROVIDENCIA DDP 1883
+
+**Número de Providencia (DDP 1883):** SP181-2021
+**Radicación (DDP 1883):** 58115
+
+**Lista de Temas (DDP 1883):**
+(i) “… CUANDO LA PRESCRIPCIÓN ACAECE ANTES DEL FALLO DE SEGUNDA INSTANCIA ES PERTINENTE ADMITIR LA DEMANDA, SI EN ESTA SE ALEGA TAL FENÓMENO, Y RECONOCERLA CASANDO LA SENTENCIA, LO QUE RELEVA EL ESTUDIO DE LOS DEMÁS CARGOS PLANTEADOS EN EL LIBELO.”. 
+(ii) LA PRESCRIPCIÓN EN LOS DELITOS DE CARÁCTER PERMANENTE.
+
+---
+
+# PROVIDENCIA DDP 1884
+
+**Número de Providencia (DDP 1884):** SP4281-2020
+**Radicación (DDP 1884):** 55649
+
+**Lista de Temas (DDP 1884):**
+(i) LA PRESCRIPCIÓN DEPENDIENDO EL MOMENTO DE LA ACTUACIÓN PROCESAL PENAL EN EL CUAL SE VERIFIQUE DICHO FENÓMENO JURÍDICO. 
+(ii) CUANDO SE TRATA DE PRESCRIPCIÓN EN TRIBUNAL O CORTE, PARA LOS CÓMPUTOS DEBE TENERSE EN CUENTA LA CALIFICACIÓN DE LA CONDUCTA PUNIBLE CONSIGNADA EN LA SENTENCIA. 
+(iii) LOS DELITOS DE LESA HUMANIDAD Y EL ARTÍCULO 83 DEL CÓDIGO PENAL. 
+(iv) LA CONGRUENCIA EN LA LEY 600 DE 2000. 
+(v) LA PRUEBA TRASLADADA Y SU CONTROVERSIA.
+
+---
+
+# PROVIDENCIA DDP 1885
+
+**Número de Providencia (DDP 1885):** AP271-2020
+**Radicación (DDP 1885):** 56946
+
+**Lista de Temas (DDP 1885):**
+(i) EL AUTOR Y EL PARTÍCIPE. 
+(ii) EL CÓMPLICE. 
+(iii) EL PRINCIPIO DE UNIDAD TEMÁTICA. 
+(iv) EL ATAQUE CONTRA LA PRUEBA INDICIARIA.
+
+---
+
+# PROVIDENCIA DDP 1886
+
+**Número de Providencia (DDP 1886):** AP562-2021
+**Radicación (DDP 1886):** 52187
+
+**Lista de Temas (DDP 1886):**
+(i) LA PRUEBA NUEVA EN LA ACCIÓN DE REVISIÓN. 
+(ii) “… LOS MEDIOS PROBATORIOS SON LOS ENUNCIADOS EN LOS ESTATUTOS PROCESALES Y LAS SENTENCIAS DE LAS AUTORIDADES JUDICIALES NO LO SON.”.
+
+---
+
+# PROVIDENCIA DDP 1887
+
+**Número de Providencia (DDP 1887):** SP352-2021
+**Radicación (DDP 1887):** 52857
+
+**Lista de Temas (DDP 1887):**
+(i) LA IMPUTACIÓN OBJETIVA DEL RESULTADO. 
+(ii) LA RELEVANCIA DE LA ACTUACIÓN DE LA VÍCTIMA PARA LA RESPONSABILIDAD DEL AUTOR. 
+(iii) INTERRUPCIÓN DEL NEXO DE IMPUTACIÓN DEL RESULTADO. 
+(iv) EL HOMICIDIO PRETERINTENCIONAL. 
+(v) “A FALTA DE INFORMACIÓN PROBATORIA QUE PERMITA LA GRADUACIÓN DE LA SANCIÓN CON FUNDAMENTO EN LA INCAPACIDAD PARA TRABAJAR, ENFERMEDAD O DEFORMIDADES FÍSICAS DE LA VÍCTIMA, QUE SE PUDIERAN DERIVAR DE LA CAUSACIÓN DEL DAÑO EN EL CUERPO O LA SALUD”, SE ADECUA LA CONDUCTA A LO PREVISTO EN EL INCISO PRIMERO DEL ARTÍCULO 112 DEL CÓDIGO PENAL COMO LESIONES PERSONALES SIMPLES. 
+(vi) LA CONGRUENCIA Y LA MEJORA PARA EL PROCESADO. 
+(viii) LA PRESCRIPCIÓN DEL DELITO DE LESIONES.
+
+---
+
+# PROVIDENCIA DDP 1888
+
+**Número de Providencia (DDP 1888):** No especificado
+**Radicación (DDP 1888):** CUI 05-001-60-00-201-2017-01093
+
+**Lista de Temas (DDP 1888):**
+(i) LA DEFENSA TÉCNICA. 
+(ii) LA NULIDAD POR LA VIOLACIÓN AL DERECHO DE DEFENSA. 
+(iii) EL DESCONOCIMIENTO DEL SISTEMA PROCESAL PENAL CON TENDENCIA ACUSATORIA.
+
+---
+
+# PROVIDENCIA DDP 1889
+
+**Número de Providencia (DDP 1889):** AP544-2021
+**Radicación (DDP 1889):** 59025
+
+**Lista de Temas (DDP 1889):**
+(i) EL INCIDENTE DE COMPETENCIA EN LA FUNCIÓN DE CONTROL DE GARANTÍAS. 
+(ii) LAS EXCEPCIONES PARA VARIAR LA COMPETENCIA TERRITORIAL.
+
+---
+
+# PROVIDENCIA DDP 1890
+
+**Número de Providencia (DDP 1890):** AP623–2021
+**Radicación (DDP 1890):** 54757
+
+**Lista de Temas (DDP 1890):**
+(i) LA GARANTÍA DE NO INCRIMINACIÓN DE FAMILIARES PRÓXIMOS. 
+(ii) “… LA NECESIDAD DE PROTEGER EL INTERÉS SUPERIOR DE LOS MENORES DE EDAD CUANDO SON VÍCTIMAS DE DELITOS SEXUALES, CON MIRAS A EVITAR SU REVICTIMIZACIÓN.”. 
+(iii) LA NECESIDAD DE RECAUDAR, EN LOS CASOS DE DELITOS SEXUALES CONTRA NIÑOS, NIÑAS Y ADOLESCENTES, ELEMENTOS DE CONVICCIÓN DISTINTOS A LAS VERSIONES DE LOS AFECTADOS. 
+(iv) LA CORROBORACIÓN PERIFÉRICA.
+
+---
+
+# PROVIDENCIA DDP 1891
+
+**Número de Providencia (DDP 1891):** AP5212-2019
+**Radicación (DDP 1891):** 54366
+
+**Lista de Temas (DDP 1891):**
+“EL PROCESO DE DOSIFICACIÓN PUNITIVA, CUANDO SE PRESENTA UN CONCURSO DE CONDUCTAS PUNIBLES.”. 
+(ii) “… NO ES CIERTO QUE, CUANDO SE PRESENTA UN CONCURSO DE CONDUCTAS PUNIBLES, EL PROCESO DE INDIVIDUALIZACIÓN DE LA PENA DEBA SER IGUAL PARA TODOS LOS DELITOS CONCURSALES …”. 
+(iii) “… FRENTE A CONDUCTAS DELICTIVAS DISTINTAS DE LAS ENLISTADAS EN EL ARTÍCULO 534 DE LA LEY 906 DE 2004, NO HAY LUGAR A PREDICAR LA APLICACIÓN FAVORABLE DE LAS REFORMAS INTRODUCIDAS POR LA LEY 1826 DE 2017 …”.
+
+---
+
+# PROVIDENCIA DDP 1892
+
+**Número de Providencia (DDP 1892):** AP547-2021
+**Radicación (DDP 1892):** 56147
+
+**Lista de Temas (DDP 1892):**
+(i) “… VÍCTIMA ES LA PERSONA RESPECTO DE LA CUAL SE MATERIALIZA LA CONDUCTA TÍPICA —LA TITULAR DEL BIEN JURÍDICO LESIONADO—, MIENTRAS QUE LA CATEGORÍA DE PERJUDICADO COMPRENDE A QUIENES SUFREN UN DAÑO COMO CONSECUENCIA DE LA COMISIÓN DEL DELITO —COMO LOS TERCEROS DE BUENA FE— …”.  
+(ii) “… EL DELITO NO PUEDE SER FUENTE DE DERECHOS FRENTE AL AUTOR DE LA CONDUCTA DELICTIVA NI RESPECTO DE TERCEROS DE BUENA FE, Y EN CASO DE TENSIÓN ENTRE ESTOS Y LOS DE LA VÍCTIMA, SIEMPRE PREVALECEN LOS DE ESTA.”.
+
+---
+
+# PROVIDENCIA DDP 1893
+
+**Número de Providencia (DDP 1893):** AP549-2021
+**Radicación (DDP 1893):** 56440
+
+**Lista de Temas (DDP 1893):**
+(i) LA NULIDAD COMO CAUSAL DE CASACIÓN. 
+(ii) LA DEFICIENTE DEFENSA TÉCNICA. 
+(iii) “… EL HECHO QUE UN ABOGADO HAYA INTERVENIDO EN DIFERENTES ETAPAS DEL PROCESO ESTANDO SUSPENDIDO DISCIPLINARIAMENTE, NO CONDUCE NECESARIAMENTE A LA NULIDAD DE LA ACTUACIÓN …”.
+
+---
+
+# PROVIDENCIA DDP 1894
+
+**Número de Providencia (DDP 1894):** No especificado
+**Radicación (DDP 1894):** 43866
+
+**Lista de Temas (DDP 1894):**
+(i) EL DERECHO DEL ACUSADO A CONFRONTAR A LOS TESTIGOS DE CARGO. 
+(ii) “EL DERECHO A LA CONFRONTACIÓN COMO PARÁMETRO DETERMINANTE PARA ESTABLECER CUÁNDO UNA DECLARACIÓN ANTERIOR AL JUICIO ORAL PUEDE CATALOGARSE COMO PRUEBA DE REFERENCIA.”. 
+(iii) “LA DEMOSTRACIÓN DE LA EXISTENCIA Y CONTENIDO DE LA DECLARACIÓN ANTERIOR QUE PRETENDE SER ADUCIDA COMO PRUEBA DE REFERENCIA.”. 
+(iv) “LA PROHIBICIÓN DE BASAR LA CONDENA ÚNICAMENTE EN PRUEBA DE REFERENCIA.”. 
+(v) LA CORROBORACIÓN PERIFÉRICA. 
+(vi) “ARMONIZACIÓN DE LOS DERECHOS DEL ACUSADO Y LOS DERECHOS DE LOS NIÑOS QUE COMPARECEN A LA ACTUACIÓN PENAL EN CALIDAD DE POSIBLES VÍCTIMAS DE DELITOS SEXUALES.”. 
+(vii) “LOS DERECHOS DE LOS MENORES QUE COMPARECEN A LA ACTUACIÓN PENAL EN CALIDAD DE POSIBLES VÍCTIMAS DE DELITOS SEXUALES (Y OTROS DELITOS GRAVES).”. 
+(viii) “LA ARMONIZACIÓN DE LOS DERECHOS DEL ACUSADO Y LOS DERECHOS DE LOS MENORES, EN EL DERECHO COMPARADO.”. 
+(ix) “LA ARMONIZACIÓN DE LOS DERECHOS DEL ACUSADO Y LOS DERECHOS DE LOS MENORES, EN EL DERECHO INTERNO.”. 
+(x) LA PRUEBA ANTICIPADA. 
+(xi) “REGLAS GENERALES APLICABLES CUANDO UN MENOR COMPARECE A LA ACTUACIÓN PENAL EN CALIDAD DE VÍCTIMA O TESTIGO DE CUALQUIER DELITO.”. 
+(xii) “NORMAS ESPECÍFICAS PARA CUANDO EL MENOR TIENE LA CALIDAD DE POSIBLE VÍCTIMA DE UN DELITO SEXUAL O DE ALGUNO DE LOS DELITOS INCLUIDOS EN LA LEY 1652 DE 2013.”. 
+(xiii) FORMA DE ENTREVISTAR A NIÑOS, NIÑAS O ADOLESCENTES VÍCTIMAS DE VIOLENCIA SEXUAL. 
+(vx) “ANÁLISIS SISTEMÁTICO DE LAS POSIBILIDADES QUE TIENE EL FISCAL EN CUANTO AL MANEJO DE LAS DECLARACIONES DE MENORES DE EDAD.”. 
+(xv) LA CÁMARA GESELL. SP3332 -2016.
+
+---
+
+# PROVIDENCIA DDP 1895
+
+**Número de Providencia (DDP 1895):** No especificado
+**Radicación (DDP 1895):** CUI 66001 60 00 036 2017 05452-02
+
+**Lista de Temas (DDP 1895):**
+(i) “LOS CONTROLES QUE TANTO LAS PARTES COMO LA JUDICATURA PUEDAN EFECTUARLE AL LIBELO ACUSATORIO.”. 
+(ii) FRENTE A IMPRECISIONES O AMBIGÜEDADES DEL ESCRITO DE ACUSACIÓN: ¿ACLARAR, ADICIONAR, CORREGIR O NULIDAD?
+
+---
+
+# PROVIDENCIA DDP 1896
+
+**Número de Providencia (DDP 1896):** SENTENCIA C-431/01
+**Radicación (DDP 1896):** No especificado
+
+**Lista de Temas (DDP 1896):**
+EXEQUIBILIDAD DEL ARTÍCULO 18 DEL CÓDIGO PENAL, LEY 599 DE 2000.
+
+---
+
+# PROVIDENCIA DDP 1897
+
+**Número de Providencia (DDP 1897):** SENTENCIA C-374/97
+**Radicación (DDP 1897):** No especificado
+
+**Lista de Temas (DDP 1897):**
+RETROSPECTIVIDAD EXTINCIÓN DE DOMINIO.
+
+---
+
+# PROVIDENCIA DDP 1898
+
+**Número de Providencia (DDP 1898):** AP741-2021
+**Radicación (DDP 1898):** 57887
+
+**Lista de Temas (DDP 1898):**
+TODA PETICIÓN DEBE TENER UN SUSTENTO NORMATIVO.
+
+---
+
+# PROVIDENCIA DDP 1899
+
+**Número de Providencia (DDP 1899):** AP742-2021
+**Radicación (DDP 1899):** 58461
+
+**Lista de Temas (DDP 1899):**
+(i) VICIOS DEL CONSENTIMIENTO Y DE VULNERACIÓN DE GARANTÍAS FUNDAMENTALES EN EL ALLANAMIENTO A CARGOS. 
+(ii) EL DERECHO A PROBAR LA INEFICACIA DE LA ACEPTACIÓN DE CARGOS.
+
+---
+
+# PROVIDENCIA DDP 1900
+
+**Número de Providencia (DDP 1900):** AP743-2021
+**Radicación (DDP 1900):** 58827
+
+**Lista de Temas (DDP 1900):**
+(i) LA AUDIENCIA PREPARATORIA. 
+(ii) NO CUMPLIR CON EL DEBIDO DESCUBRIMIENTO PROBATORIO. 
+(iii) EN PUNTO DEL DESCUBRIMIENTO PROBATORIO "LA FISCALÍA NO PUEDE RESGUARDAR SU DESATINO TRATANDO DE ENCONTRAR A LO LARGO DEL ESCRITO DE ACUSACIÓN EL APARTE QUE A CONVENIENCIA PARECIERA ACERCARSE A LA PRECISA IDENTIFICACIÓN DEL ELEMENTO MATERIAL PROBATORIO"; LO DEBE RELACIONAR. 
+(iv) “… EL CONTENIDO DEL MEDIO DE PRUEBA ES AQUELLO SOBRE LO CUAL TRANSMITE CONOCIMIENTO, ES DECIR, A LO QUE EL MEDIO SE REFIERE.”. 
+(v) “… LA PERTINENCIA DEL MEDIO DE CONVICCIÓN ESTÁ DETERMINADA POR EL TEMA DE PRUEBA Y ESTE, A SU VEZ, POR LOS HECHOS JURÍDICAMENTE RELEVANTES DE LA ACUSACIÓN, SOBRE LOS CUALES HABRÁ DE VERSAR EL DEBATE EN EL JUICIO ORAL.”. 
+(vi) “… EL GRADO DE ARGUMENTACIÓN REQUERIDO PARA ACREDITAR LA PERTINENCIA DE DETERMINADO MEDIO DE CONOCIMIENTO VARÍA SEGÚN LA RELACIÓN QUE ÉSTE GUARDA CON LOS HECHOS JURÍDICAMENTE RELEVANTES.”.
+
+---
+
+# PROVIDENCIA DDP 1901
+
+**Número de Providencia (DDP 1901):** SP641-2021
+**Radicación (DDP 1901):** 49197
+
+**Lista de Temas (DDP 1901):**
+(i) EL CAMBIO DEL JUEZ DE CONOCIMIENTO. 
+(ii) EL PREVARICATO POR ACCIÓN. 
+(iii) “… CRITERIOS QUE DEBEN ATENDERSE PARA ESTABLECER SI SE ESTÁ ANTE UNA CONDUCTA O ANTE UN CONCURSO DE CONDUCTAS PUNIBLES DE PREVARICATO POR ACCIÓN, EN AQUELLOS EVENTOS EN DONDE SON PLURALES LAS DECISIONES QUE SE ACUSAN DE MANIFIESTAMENTE CONTRARIAS A LA LEY.”. 
+(iv) LAS DISTINTAS MODALIDADES BAJO LAS CUALES SE ESTRUCTURA EL PREVARICATO OMISIVO.
+
+---
+
+# PROVIDENCIA DDP 1902
+
+**Número de Providencia (DDP 1902):** AP550-2021
+**Radicación (DDP 1902):** 56493
+
+**Lista de Temas (DDP 1902):**
+(i) LA SANA CRÍTICA. 
+(ii) EL ERROR DE HECHO POR FALSO JUICIO DE IDENTIDAD. 
+(iii) LA EVENTUAL VULNERACIÓN DE DERECHOS EN LA CAPTURA EN FLAGRANCIA "NO AFECTA LA LEGALIDAD DEL FALLO NI EVIDENCIA QUE LA DECLARACIÓN DE JUSTICIA EN ÉL CONTENIDA SE APARTE DE LAS PRUEBAS ACOPIADAS EN EL PROCESO.".
+
+---
+
+# PROVIDENCIA DDP 1903
+
+**Número de Providencia (DDP 1903):** AP554-2021
+**Radicación (DDP 1903):** 56639
+
+**Lista de Temas (DDP 1903):**
+(i) LA VIOLACIÓN DEL PRINCIPIO IN DUBIO PRO REO. 
+(ii) EL ATAQUE EN SEDE DE CASACIÓN A LA PRUEBA INDIRECTA DE INDICIOS.
+
+---
+
+# PROVIDENCIA DDP 1904
+
+**Número de Providencia (DDP 1904):** SP3210-2017
+**Radicación (DDP 1904):** 45814
+
+**Lista de Temas (DDP 1904):**
+(i) “… LA TARIFA LEGAL NEGATIVA CUANDO SE TRATA DE LAS ACTIVIDADES DE LOS ORGANISMOS DE POLICÍA JUDICIAL AL RECEPCIONAR ENTREVISTAS O EXPOSICIONES DE INFORMANTES Y LA RESTRICCIÓN DE SU APTITUD PROBATORIA AL SER SIMPLEMENTE GUÍA DE LA ACTIVIDAD INVESTIGATIVA, SIN QUE PUEDAN SER UTILIZADOS COMO EVIDENCIA …” 
+(ii) EL DELITO DE TERRORISMO. 
+(iii) LA CONCORDANCIA QUE DEBE CARACTERIZAR LA COEXISTENCIA DE INDICIOS.
+
+---
+
+# PROVIDENCIA DDP 1905
+
+**Número de Providencia (DDP 1905):** SENTENCIA T-233/07
+**Radicación (DDP 1905):** No especificado
+
+**Lista de Temas (DDP 1905):**
+(i) FILMAR UNA REUNIÓN SIN PREVIO AVISO. 
+(ii) LA PRUEBA ILÍCITA. 
+(iii) LA CLAÚSULA DE EXCLUSIÓN.
+
+---
+
+# PROVIDENCIA DDP 1906
+
+**Número de Providencia (DDP 1906):** STP15588-2014
+**Radicación (DDP 1906):** 76636
+
+**Lista de Temas (DDP 1906):**
+(i) La víctima del delito y las grabaciones que realiza sin dar aviso de ello. 
+(ii) El control de legalidad de una grabación realizada por la víctima. 
+(iii) “… las grabaciones realizadas por la víctima cuando está siendo objeto de una conducta punible, pueden ser tenidas en cuenta como elemento de convicción lícito y con la virtualidad de ingresar a la actuación penal, sin ser sometida a control de legalidad …”.
+
+---
+
+# PROVIDENCIA DDP 1907
+
+**Número de Providencia (DDP 1907):** No especificado
+**Radicación (DDP 1907):** 41790
+
+**Lista de Temas (DDP 1907):**
+(i) LAS GRABACIONES MAGNETOFÓNICAS Y SU LEGALIDAD. 
+(ii) ES LEGAL SI QUIEN GRABA ES EL DESTINATARIO DE LA LLAMADA O VÍCTIMA DE LA CONDUCTA PUNIBLE.
+
+---
+
+# PROVIDENCIA DDP 1908
+
+**Número de Providencia (DDP 1908):** SP646-2021
+**Radicación (DDP 1908):** 53174
+
+**Lista de Temas (DDP 1908):**
+(i) La doble conformidad. 
+(ii) El peculado por apropiación. 
+(iii) la apropiación en favor de terceros. 
+(iv) “… la aplicación de medidas como la suspensión de la ejecución de la pena por la edad del condenado siempre debe estudiarse con base en las funciones de la pena.”.
+
+---
+
+# PROVIDENCIA DDP 1909
+
+**Número de Providencia (DDP 1909):** No especificado
+**Radicación (DDP 1909):** CUI. 05 001 60 00 201 2017-01093
+
+**Lista de Temas (DDP 1909):**
+(i) NULIDAD POR FALTA DE DEFENSA TÉCNICA. 
+(ii) LA FLATA DE IDONEIDAD EN EL EJERCICIO DEFENSIVO.
+
+---
+
+# PROVIDENCIA DDP 1910
+
+**Número de Providencia (DDP 1910):** AP557-2021
+**Radicación (DDP 1910):** 56818
+
+**Lista de Temas (DDP 1910):**
+(i) LA REVISIÓN POR EL SURGIMIENTO DE UNA PRUEBA NUEVA. 
+(ii) LA RETRACTACIÓN DE LA VÍCTIMA. 
+(iii) “… «NO SE LE DA TRÁMITE A UNA ACCIÓN DE REVISIÓN, POR EL SÓLO HECHO DE LA RETRACTACIÓN DE UNO O VARIOS DE LOS TESTIMONIOS VERTIDOS EN EL PROCESO COMOQUIERA QUE NO EXISTE CERTIDUMBRE SOBRE EN DÓNDE FUE QUE EL DECLARANTE RESPETÓ LA VERDAD, CONTINUANDO EL FALLO EN CONSECUENCIA, EN POSICIÓN PRIVILEGIADA POR LA DOBLE PRESUNCIÓN DE ACIERTO Y LEGALIDAD CON LA QUE ESTÁ AMPARADO».”.
+
+---
+
+# PROVIDENCIA DDP 1911
+
+**Número de Providencia (DDP 1911):** AP560-2021
+**Radicación (DDP 1911):** 58453
+
+**Lista de Temas (DDP 1911):**
+(i) LEGITIMIDAD PARA INTERPONER LA ACCIÓN DE REVISIÓN. 
+(ii) EL PODER ESPECIAL.
+
+---
+
+# PROVIDENCIA DDP 1912
+
+**Número de Providencia (DDP 1912):** AP561-2021
+**Radicación (DDP 1912):** 56654
+
+**Lista de Temas (DDP 1912):**
+(i) EL CAMBIO FAVORABLE DE JURISPRUDENCIA. 
+(ii) LA INAPLICACIÓN DEL ARTÍCULO 14 DE LA LEY 890 DE 2004.
+
+---
+
+# PROVIDENCIA DDP 1913
+
+**Número de Providencia (DDP 1913):** No especificado
+**Radicación (DDP 1913):** CUI 63 001 60 00 033 2012 05303
+
+**Lista de Temas (DDP 1913):**
+(i) CARACTERÍSTICAS DEL INCIDENTE DE REPARACIÓN INTEGRAL. 
+(ii) EL DESARROLLO DEL INCIDENTE DE REPARACIÓN INTEGRAL. 
+(iii) “… PRETERMISIÓN DE UNA ETAPA PROCESAL DISPUESTA EN EL ORDENAMIENTO JURÍDICO, POR DEMÁS IMPORTANTE, COMO LO ES LA CONCILIACIÓN.”. 
+(iv) LA CONCILIACIÓN EN EL INCIDENTE DE REPARACIÓN INTEGRAL. 
+(v) NULIDAD EN EL INCIDENTE DE REPARACIÓN INTEGRAL.
+
+---
+
+# PROVIDENCIA DDP 1914
+
+**Número de Providencia (DDP 1914):** AP564-2021
+**Radicación (DDP 1914):** 57066
+
+**Lista de Temas (DDP 1914):**
+(i) LOS PRINCIPIOS DE INMEDIACIÓN Y DE CONCENTRACIÓN. 
+(ii) EL CAMBIO DEL JUEZ DE CONOCIMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1915
+
+**Número de Providencia (DDP 1915):** SP3168-2017
+**Radicación (DDP 1915):** 44599
+
+**Lista de Temas (DDP 1915):**
+(I) EL CONCEPTO DE HECHO JURÍDICAMENTE RELEVANTE. 
+(ii) DIFERENCIA ENTRE HECHOS JURÍDICAMENTE RELEVANTES, HECHOS INDICADORES Y MEDIOS DE PRUEBA. 
+(iii) “LA ESTRUCTURACIÓN DE LA HIPÓTESIS DE HECHOS JURÍDICAMENTE RELEVANTES POR PARTE DE LA FISCALÍA GENERAL DE LA NACIÓN.”. 
+(iv) “LA HIPÓTESIS DE HECHOS JURÍDICAMENTE RELEVANTES CONTENIDA EN LA ACUSACIÓN Y LA DELIMITACIÓN DEL TEMA DE PRUEBA.”. 
+(v) “LA PREMISA FÁCTICA DEL FALLO.”. 
+(vi) “LA VERIFICACIÓN DEL ESTÁNDAR DE CONOCIMIENTO PREVISTO POR EL LEGISLADOR PARA LA PROCEDENCIA DE LA CONDENA.”. 
+(vii) “EL DERECHO A NO DECLARAR EN CONTRA DE LOS FAMILIARES, EN LOS GRADOS PREVISTOS POR EL LEGISLADOR.”.
+
+---
+
+# PROVIDENCIA DDP 1916
+
+**Número de Providencia (DDP 1916):** AP569-2021
+**Radicación (DDP 1916):** 56776
+
+**Lista de Temas (DDP 1916):**
+(i) LOS ERRORES DE APRECIACIÓN PROBATORIA. 
+(ii) EL SÍNDROME DE ALIENACIÓN PARENTAL.
+
+---
+
+# PROVIDENCIA DDP 1917
+
+**Número de Providencia (DDP 1917):** No especificado
+**Radicación (DDP 1917):** CUI 99001 60 00 670 2015 00187 01
+
+**Lista de Temas (DDP 1917):**
+(i) “… LA MENCIÓN DE LOS HECHOS JURÍDICAMENTE RELEVANTES EN LA AUDIENCIA DE FORMULACIÓN DE ACUSACIÓN, COMO PRESUPUESTO PARA EL EJERCICIO DE LOS DERECHOS A LA DEFENSA Y CONTRADICCIÓN.”. 
+(ii) LA NECESARIA CLARIDAD EN LOS HECHOS JURÍDICAMENTE RELEVANTES QUE SUSTENTAN LOS CARGOS DE LA ACUSACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1918
+
+**Número de Providencia (DDP 1918):** SP14623-2014
+**Radicación (DDP 1918):** 34282
+
+**Lista de Temas (DDP 1918):**
+(i) EL FUERO DE LOS CONGRESISTAS. 
+(ii) ANÁLISIS DOGMÁTICO DEL DELITO DE TRÁFICO DE INFLUENCIAS DE SERVIDOR PÚBLICO. 
+(iii) ANÁLISIS DOGMÁTICO DEL DELITO DE INTERÉS INDEBIDO EN LA CELEBRACIÓN DE CONTRATOS. 
+(iv) ANÁLISIS DOGMÁTICO DEL DELITO DE CONCUSIÓN. 
+(v) EL DELITO COMPLEJO. 
+(vi) EL CONCURSO DE DELITOS Y LA DOSIFICACIÓN PUNITIVA.
+
+---
+
+# PROVIDENCIA DDP 1919
+
+**Número de Providencia (DDP 1919):** AP7112-2016
+**Radicación (DDP 1919):** 48988
+
+**Lista de Temas (DDP 1919):**
+“LA RENUNCIA NO PONE TÉRMINO AL PODER SINO CINCO (5) DÍAS DESPUÉS DE PRESENTADO EL MEMORIAL DE RENUNCIA EN EL JUZGADO, ACOMPAÑADO DE LA COMUNICACIÓN ENVIADA AL PODERDANTE EN TAL SENTIDO.”.
+
+---
+
+# PROVIDENCIA DDP 1920
+
+**Número de Providencia (DDP 1920):** SENTENCIA T-114/18
+**Radicación (DDP 1920):** No especificado
+
+**Lista de Temas (DDP 1920):**
+ACCESO A LA INFORMACIÓN PÚBLICA Y PRIVADA Y LA NATURALEZA DE LA INFORMACIÓN RECOPILADA POR LOS CIRCUITOS CERRADOS DE TELEVISIÓN.
+
+---
+
+# PROVIDENCIA DDP 1921
+
+**Número de Providencia (DDP 1921):** SENTENCIA C-094/20
+**Radicación (DDP 1921):** No especificado
+
+**Lista de Temas (DDP 1921):**
+EL DERECHO A LA INTIMIDAD Y LAS CÁMARAS DE VIGILANCIA.
+
+---
+
+# PROVIDENCIA DDP 1922
+
+**Número de Providencia (DDP 1922):** AHP802-2021
+**Radicación (DDP 1922):** 59155
+
+**Lista de Temas (DDP 1922):**
+LAS 36 HORAS Y LA LEGALIZACIÓN DE LA CAPTURA.
+
+---
+
+# PROVIDENCIA DDP 1923
+
+**Número de Providencia (DDP 1923):** AP558-2021
+**Radicación (DDP 1923):** 56886
+
+**Lista de Temas (DDP 1923):**
+(i) EL PODER PARA LA ACCIÓN DE REVISIÓN SIN NOTA DE PRESENTACIÓN PERSONAL. 
+(ii) “… LAS DECLARACIONES QUE REALIZAN LAS VÍCTIMAS ANTE LOS EXPERTOS SOBRE LAS CIRCUNSTANCIAS QUE RODEARON LOS HECHOS, CONSTITUYEN PRUEBA DE REFERENCIA …”.
+
+---
+
+# PROVIDENCIA DDP 1924
+
+**Número de Providencia (DDP 1924):** AP137-2020
+**Radicación (DDP 1924):** 55880
+
+**Lista de Temas (DDP 1924):**
+(i) EL TESTIMONIO DEL MENOR. 
+(ii) EL ACCESO CARNAL VIOLENTO CONCURSADO CON INCESTO.
+
+---
+
+# PROVIDENCIA DDP 1925
+
+**Número de Providencia (DDP 1925):** SP3216-2019
+**Radicación (DDP 1925):** 45517
+
+**Lista de Temas (DDP 1925):**
+(i) EL ACCESO CARNAL ABUSIVO CON MENOR DE 14 AÑOS. 
+(ii) DEMOSTRACIÓN Y ELEMENTOS DEL INCESTO. 
+(iii) SECRETO PROFESIONAL.
+
+---
+
+# PROVIDENCIA DDP 1926
+
+**Número de Providencia (DDP 1926):** AP815-2021
+**Radicación (DDP 1926):** 59047
+
+**Lista de Temas (DDP 1926):**
+EL JUZGAMIENTO POR EL DELITO DE FUGA DE PRESOS.
+
+---
+
+# PROVIDENCIA DDP 1927
+
+**Número de Providencia (DDP 1927):** AP572-2021
+**Radicación (DDP 1927):** 54491
+
+**Lista de Temas (DDP 1927):**
+(i) EL INTERÉS JURÍDICO COMO CONDICIÓN DE ADMISIBILIDAD DE LA DEMANDA DE CASACIÓN. 
+(ii) EL FALSO RACIOCINIO.
+
+---
+
+# PROVIDENCIA DDP 1928
+
+**Número de Providencia (DDP 1928):** AP628–2021
+**Radicación (DDP 1928):** 55847
+
+**Lista de Temas (DDP 1928):**
+(i) LA DISMINUCIÓN PUNITIVA DEL ARTÍCULO 269 DEL CÓDIGO PENAL. 
+(ii) LA REPARACIÓN Y “… CRITERIOS COMO LA OPORTUNIDAD, LA FORMA DE REPARACIÓN, EL TIEMPO TRANSCURRIDO DESDE LA OCURRENCIA DE LOS HECHOS Y LA INICIATIVA, ENTRE OTROS FACTORES …”.
+
+---
+
+# PROVIDENCIA DDP 1929
+
+**Número de Providencia (DDP 1929):** AP778
+**Radicación (DDP 1929):** No especificado
+**Decisión (DDP 1929):** –2021. SEGUNDA INSTANCIA 58330. ÚNICA INSTANCIA 30716.
+
+**Lista de Temas (DDP 1929):**
+(i) EL SISTEMA INTEGRAL DE VERDAD, JUSTICIA, REPARACIÓN Y NO REPETICIÓN, SIVJRNR, Y SU RADIO DE ACCIÓN. 
+(ii) EL PROCEDIMIENTO QUE DEBE SEGUIRSE FRENTE AL SOMETIMIENTO VOLUNTARIO DE AGENTES DEL ESTADO NO INTEGRANTES DE LA FUERZA PÚBLICA. 
+(iii) LO QUE LE COMPETE A LA SALA DE CASACIÓN PENAL Y LO QUE LE COMPETE A LA JEP.
+
+---
+
+# PROVIDENCIA DDP 1930
+
+**Número de Providencia (DDP 1930):** AP780-2021
+**Radicación (DDP 1930):** 58653
+
+**Lista de Temas (DDP 1930):**
+COMPETENCIA PARA CONOCER DE LA SOLICITUD DE LIBERTAD POR VENCIMIENTO DE TÉRMINOS EN PROCESOS CONTRA MIEMBROS DE GRUPOS DELICTIVOS ORGANIZADOS Y GRUPOS ARMADOS ORGANIZADOS.
+
+---
+
+# PROVIDENCIA DDP 1931
+
+**Número de Providencia (DDP 1931):** AP779-2021
+**Radicación (DDP 1931):** 47909
+
+**Lista de Temas (DDP 1931):**
+(i) CUANDO LA PRIMERA CONDENA SEA EMITIDA POR LA CORTE, LA SALA PENAL SERÁ DIVIDIDA PARA VELAR POR LA POSIBILIDAD DE QUE SEA IMPUGNADA ANTE UNA SALA DE DECISIÓN CONFORMADA POR TRES MAGISTRADOS. 
+(II) EL RECURSO DE QUEJA.  
+(III) LA QUEJA CONTRA EL AUTO MEDIANTE EL CUAL LA SALA DECLARA “IMPROCEDENTE LA SOLICITUD DE IMPUGNACIÓN ESPECIAL, ES ABIERTAMENTE IMPROCEDENTE.”.
+
+---
+
+# PROVIDENCIA DDP 1932
+
+**Número de Providencia (DDP 1932):** No especificado
+**Radicación (DDP 1932):** CUI 76-001-60-00-193-2012-20101-01
+
+**Lista de Temas (DDP 1932):**
+(i) LA VÍCTIMA EN EL PROCESO PENAL. 
+(ii) EL FRAUDE A RESOLUCIÓN JUDICIAL O ADMINISTRATIVA DE POLICÍA. 
+(iii) LA MERA INOBSERVANCIA DE UNA RESOLUCIÓN JUDICIAL O ADMINISTRATIVA DE POLICÍA.
+
+---
+
+# PROVIDENCIA DDP 1933
+
+**Número de Providencia (DDP 1933):** SENTENCIA C-291/07
+**Radicación (DDP 1933):** No especificado
+
+**Lista de Temas (DDP 1933):**
+(i) Toma de rehenes. 
+(ii) Delito de destrucción o utilización ilícita de bienes culturales y de lugares de culto. 
+(iii) Combatiente en derecho internacional humanitario. 
+(iv) Homicidio en pesona protegida.
+
+---
+
+# PROVIDENCIA DDP 1934
+
+**Número de Providencia (DDP 1934):** AP4225-2017
+**Radicación (DDP 1934):** 47235
+
+**Lista de Temas (DDP 1934):**
+LA NOTIFICACIÓN ELECTRÓNICA EN EL PROCESO PENAL. AP1563-2016. RAD 46628. DDP. 1935. 
+(i) “… NO HAY LUGAR A PREDICAR LA CONFIGURACIÓN DE ERRORES CONSTITUTIVOS DE VIOLACIÓN INDIRECTA DE LA LEY SUSTANCIAL CUANDO SIMPLEMENTE SE PRESENTA UNA APRECIACIÓN PROBATORIA QUE NO SE COMPARTE …”. 
+(ii) LA CONGRUENCIA.
+
+---
+
+# PROVIDENCIA DDP 1936
+
+**Número de Providencia (DDP 1936):** SP16246-2015
+**Radicación (DDP 1936):** 44016
+
+**Lista de Temas (DDP 1936):**
+EL ARTÍCULO 14 DE LA LEY 890 DE 2004 Y EL ARTÍCULO 26 DE LA LEY 1121 de 2006.
+
+---
+
+# PROVIDENCIA DDP 1937
+
+**Número de Providencia (DDP 1937):** SP5197-2014
+**Radicación (DDP 1937):** 41157
+
+**Lista de Temas (DDP 1937):**
+(i) EL ARTÍCULO 14 DE LA LEY 890 DE 2004. 
+(ii)  LA PROHIBICIÓN DE REBAJA DE PENA POR NEGOCIACIONES Y PREACUERDOS. 
+(iii) EL ARTÍCULO 199 DE LA LEY 1098 DE 2006.
+
+---
+
+# PROVIDENCIA DDP 1938
+
+**Número de Providencia (DDP 1938):** AP5441-2019
+**Radicación (DDP 1938):** 56319
+
+**Lista de Temas (DDP 1938):**
+LA CORRUPCIÓN AL SUFRAGANTE.
+
+---
+
+# PROVIDENCIA DDP 1939
+
+**Número de Providencia (DDP 1939):** SP729-2021
+**Radicación (DDP 1939):** 53057
+
+**Lista de Temas (DDP 1939):**
+(i) EL VALOR PROBATORIO DE LAS ACTAS DE INCAUTACIÓN DE ELEMENTOS. 
+(ii) LA PRUEBA DE REFERENCIA. 
+(iii) “… AL ANALIZAR EL TESTIMONIO, LO QUE DESTRUYE SU VALOR Y CREDIBILIDAD ES LA VERDADERA CONTRADICCIÓN, INTERNA O EXTERNA, SOBRE ASPECTOS ESENCIALES RELEVANTES, CUYA DEPRECIACIÓN SERÁ MAYOR CUANDO SEA MENOS EXPLICABLE LA INCONSISTENCIA.”. 
+(iv) LA CREDIBILIDAD DE LOS TESTIGOS.
+
+---
+
+# PROVIDENCIA DDP 1940
+
+**Número de Providencia (DDP 1940):** No especificado
+**Radicación (DDP 1940):** 1435
+
+**Lista de Temas (DDP 1940):**
+DOMICILIARIA POR ENFERMEDAD GRAVE.
+
+---
+
+# PROVIDENCIA DDP 1941
+
+**Número de Providencia (DDP 1941):** SENTENCIA C-232/16
+**Radicación (DDP 1941):** No especificado
+
+**Lista de Temas (DDP 1941):**
+(i) COMITÉ TÉCNICO JURÍDICO EN LA FISCALÍA. 
+(ii) PRINCIPIOS DE UNIDAD DE GESTION Y JERARQUIA.
+
+---
+
+# PROVIDENCIA DDP 1942
+
+**Número de Providencia (DDP 1942):** STP2300-2021
+**Radicación (DDP 1942):** 114911
+
+**Lista de Temas (DDP 1942):**
+PROCEDENCIA DE LA TUTELA POR IRREGULARIDADES EN LA NOTIFICACIÓN EN UN PROCESO PENAL.
+
+---
+
+# PROVIDENCIA DDP 1943
+
+**Número de Providencia (DDP 1943):** AP819-2021
+**Radicación (DDP 1943):** 48987
+
+**Lista de Temas (DDP 1943):**
+LA IMPUGNACIÓN ESPECIAL Y SU TRÁMITE.
+
+---
+
+# PROVIDENCIA DDP 1944
+
+**Número de Providencia (DDP 1944):** AP820-2021
+**Radicación (DDP 1944):** 53533
+
+**Lista de Temas (DDP 1944):**
+(i) “… EN LA VALORACIÓN CONJUNTA CON FINES DE CORROBORACIÓN PUEDEN APRECIARSE TANTO PRUEBAS DIRECTAS COMO EVIDENCIA INDIRECTA …”. 
+(ii) LA DECLARACIÓN ALTAMENTE CONFIABLE. 
+(iii) EL FALSO JUICIO DE EXISTENCIA. 
+(iv) EL ATAQUE A LA DOSIFICACIÓN PUNITIVA. 
+(v) “… DE LA MERA PLURALIDAD DE LESIONES QUE SE INFLIJAN AL SUJETO PASIVO NO ES POSIBLE EN TODOS LOS CASOS DEDUCIR LA SEVICIA.”.
+
+---
+
+# PROVIDENCIA DDP 1945
+
+**Número de Providencia (DDP 1945):** SP668–2021
+**Radicación (DDP 1945):** No especificado
+**Decisión (DDP 1945):** SEGUNDA INSTANCIA 51652.
+
+**Lista de Temas (DDP 1945):**
+(i) EL PRINCIPIO DE CONGRUENCIA EN LA LEY 600 DE 2.000. 
+(ii) EL PREVARICATO POR ACCIÓN. 
+(iii) EL DOLO EN EL PREVARICATO. 
+(iv) EL PECULADO POR APROPIACIÓN EN FAVOR DE TERCEROS. 
+(v) LA PENA DE MULTA EN EL PECULADO POR APROPIACIÓN EN FAVOR DE TERCEROS. 
+(vi) EL PAGO DE LOS PERJUICIOS Y EL DINERO YA RECUPERADO.
+
+---
+
+# PROVIDENCIA DDP 1946
+
+**Número de Providencia (DDP 1946):** STP2385-2021
+**Radicación (DDP 1946):** 114383
+
+**Lista de Temas (DDP 1946):**
+(i) LA SUSTENTACIÓN DE RECURSO POR CORREO ELECTRÓNICO. 
+(ii) LA DOBLE CONFORMIDAD.
+
+---
+
+# PROVIDENCIA DDP 1947
+
+**Número de Providencia (DDP 1947):** AP766-2021
+**Radicación (DDP 1947):** 59024
+
+**Lista de Temas (DDP 1947):**
+EL CAMBIO DE RADICACIÓN Y SU TRÁMITE.
+
+---
+
+# PROVIDENCIA DDP 1948
+
+**Número de Providencia (DDP 1948):** SP657-2021
+**Radicación (DDP 1948):** 50979
+
+**Lista de Temas (DDP 1948):**
+(i) LA DENUNCIA COMO PRUEBA DE REFERENCIA VÁLIDA. 
+(ii) UN ACTO SEXUAL VIOLENTO Y NO UNA INJURIA POR VÍAS DE HECHO.
+
+---
+
+# PROVIDENCIA DDP 1949
+
+**Número de Providencia (DDP 1949):** SP658-2021
+**Radicación (DDP 1949):** 55757
+
+**Lista de Temas (DDP 1949):**
+(i) EL CONCIERTO PARA DELINQUIR. 
+(ii) “… EL JUICIO DE REPROCHE POR LA EJECUCIÓN DEL DELITO DE CONCIERTO PARA DELINQUIR, NO DEMANDA COMO PRESUPUESTO DE SU ESENCIA, LA ATRIBUCIÓN COETÁNEA DE RESPONSABILIDAD POR LOS PUNIBLES OBJETO DEL CONVENIO CRIMINAL, EN TANTO, ES UNA CONDUCTA AUTÓNOMA QUE ÚNICAMENTE REQUIERE LA CONCERTACIÓN PARA LA COMISIÓN DE LA INFRACCIÓN PENAL, INDEPENDIENTEMENTE DE QUE ÉSTA ALCANCE O NO SU CONSUMACIÓN.”. 
+(iii) LA LIBERTAD PROBATORIA. 
+(iv) “… LOS ELEMENTOS PROBATORIOS VARÍAN EN FUNCIÓN DE LO QUE SE BUSQUE ACREDITAR Y EL CONVENCIMIENTO JUDICIAL DEPENDERÁ, ENTONCES, DE LA FUERZA SUASORIA DE AQUÉLLOS.”. 
+(v) “… EL COTEJO DE VOCES NO ES UN MEDIO DE CONVICCIÓN IMPUESTO POR LA LEY, PUES IMPERA EN TODO CASO LA LIBERTAD PROBATORIA PARA DETERMINAR LA IDENTIDAD DE LOS INTERLOCUTORES QUE INTERVIENEN EN LAS CONVERSACIONES TELEFÓNICAS, NO QUEDANDO DUDA A LOS FALLADORES SOBRE TAL ASPECTO.”.
+
+---
+
+# PROVIDENCIA DDP 1950
+
+**Número de Providencia (DDP 1950):** SP669-2021
+**Radicación (DDP 1950):** 56720
+
+**Lista de Temas (DDP 1950):**
+(i) LA CORROBORACIÓN 
+(ii) LA PRUEBA QUE DEBE ACOMPAÑAR A LA DE REFERENCIA PARA QUE LA DECISIÓN CONDENATORIA SE ESTIME VÁLIDA.
+
+---
+
+# PROVIDENCIA DDP 1951
+
+**Número de Providencia (DDP 1951):** No especificado
+**Radicación (DDP 1951):** CUI 470013107201100016
+
+**Lista de Temas (DDP 1951):**
+(i) EL HECHO NOTORIO. 
+(ii) LA PRUEBA INDICIARIA Y SU VALOR PROBATORIO. 
+(iii) “LA PRUEBA DE INDICIOS EN EL DELITO DE DESAPARICIÓN FORZADA, EN LA JURISPRUDENCIA DE LA CORTE INTERAMERICANA DE DERECHOS HUMANOS.”. 
+(iv) “… LAS DECLARACIONES RENDIDAS POR CONFESOS INFRACTORES DE LA LEY PENAL, DEBEN SER VALORADAS CON ESPECIAL CUIDADO, COMOQUIERA QUE POR SU CONDICIÓN SE HA ERIGIDO UNA ESPECIE DE PRESUNCIÓN DE SOSPECHA SOBRE LA VERACIDAD DE SUS DICHOS.”. 
+(v) LOS TESTIGOS DE OÍDAS. 
+(vi) EL INDICIO DE MALA JUSTIFICACIÓN. 
+(vii) LA COAUTORÍA. 
+(viii) LA COAUTORÍA AL INTERIOR DE APARATOS ORGANIZADOS DE PODER.
+
+---
+
+# PROVIDENCIA DDP 1952
+
+**Número de Providencia (DDP 1952):** AP2438-2015
+**Radicación (DDP 1952):** 45952
+
+**Lista de Temas (DDP 1952):**
+FRAUDE A SUBVENCIONES.
+
+---
+
+# PROVIDENCIA DDP 1953
+
+**Número de Providencia (DDP 1953):** AP1516-2019
+**Radicación (DDP 1953):** 55118
+
+**Lista de Temas (DDP 1953):**
+MOMENTO CONSUMATIVO DEL FRAUDE A SUBVENCIONES.
+
+---
+
+# PROVIDENCIA DDP 1954
+
+**Número de Providencia (DDP 1954):** SENTENCIA C-224/19
+**Radicación (DDP 1954):** No especificado
+
+**Lista de Temas (DDP 1954):**
+CONVENIO SOBRE LA CIBERDELINCUENCIA.
+
+---
+
+# PROVIDENCIA DDP 1955
+
+**Número de Providencia (DDP 1955):** No especificado
+**Radicación (DDP 1955):** 2014-22638
+
+**Lista de Temas (DDP 1955):**
+ACCESO ABUSIVO EN SISTEMA INFORMÁTICO AGRAVADO.
+
+---
+
+# PROVIDENCIA DDP 1956
+
+**Número de Providencia (DDP 1956):** SP1245-2015
+**Radicación (DDP 1956):** 42724
+
+**Lista de Temas (DDP 1956):**
+(i) EL HURTO POR MEDIOS INFORMÁTICOS Y SEMEJANTES. 
+(ii) LA REPARACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1957
+
+**Número de Providencia (DDP 1957):** AP2140-2015
+**Radicación (DDP 1957):** 45753
+
+**Lista de Temas (DDP 1957):**
+LA IDENTIFICACIÓN O INDIVIDUALIZACIÓN.
+
+---
+
+# PROVIDENCIA DDP 1958
+
+**Número de Providencia (DDP 1958):** SP836-2019
+**Radicación (DDP 1958):** 48368
+
+**Lista de Temas (DDP 1958):**
+(i) LA IDENTIFICACIÓN O INDIVIDUALIZACIÓN DEL IMPUTADO. 
+(ii) “LA INDIVIDUALIZACIÓN O IDENTIFICACIÓN DEBE ESTABLECERSE DESDE EL INICIO DEL TRÁMITE FORMAL DEL PROCESO CON LA AUDIENCIA DE FORMULACIÓN DE IMPUTACIÓN …”.
+
+---
+
+# PROVIDENCIA DDP 1959
+
+**Número de Providencia (DDP 1959):** SP9225-2014
+**Radicación (DDP 1959):** 37462
+
+**Lista de Temas (DDP 1959):**
+AGRO INGRESO SEGURO.
+
+---
+
+# PROVIDENCIA DDP 1960
+
+**Número de Providencia (DDP 1960):** AP831-2021
+**Radicación (DDP 1960):** 55991
+
+**Lista de Temas (DDP 1960):**
+(i) “… LA DILACIÓN DE LOS TÉRMINOS DE INSTRUCCIÓN O DE JUZGAMIENTO, POR SÍ MISMA NO ACARREA, COMO LO HA SOSTENIDO LA CORTE, LA NULIDAD DE LA ACTUACIÓN, MUCHO MENOS CUANDO RESULTARÍA UN ABSURDO INVALIDARLA SOLO PARA INVERTIR MÁS TIEMPO EN REHACERLA.”. 
+(ii) LA INVESTIGACIÓN INTEGRAL. 
+(iii)  LA DEFENSA TÉCNICA.
+
+---
+
+# PROVIDENCIA DDP 1961
+
+**Número de Providencia (DDP 1961):** AHP852-2021
+**Radicación (DDP 1961):** 59185
+
+**Lista de Temas (DDP 1961):**
+(i) “EN EL TRÁMITE DE LA SEGUNDA INSTANCIA, UN JUEZ NO TIENE SIEMPRE PLENA COMPETENCIA PARA PRONUNCIARSE SOBRE TODOS LOS ASUNTOS QUE TENGAN ALGUNA RELACIÓN CON LA APELACIÓN, PUES PODRÍA ESTAR ACTUANDO POR FUERA DEL MARCO DE SU COMPETENCIA, POR EJEMPLO, CUANDO PROFIERE DECISIONES QUE RESUELVEN DE MANERA DIRECTA UN ASUNTO QUE NO FUE OBJETO DE DECISIÓN POR PARTE DEL A QUO”. 
+(ii) “… LAS DETENCIONES LEGALES PUEDEN VOLVERSE ILEGALES, COMO CUANDO LA PROPIA AUTORIDAD JUDICIAL PROLONGA LA DETENCIÓN POR UN LAPSO SUPERIOR AL PERMITIDO POR LA CONSTITUCIÓN Y LA LEY, U OMITE RESOLVER DENTRO DE LOS TÉRMINOS LEGALES LA SOLICITUD DE LIBERTAD PROVISIONAL PRESENTADA POR QUIEN TIENE DERECHO.”.
+
+---
+
+# PROVIDENCIA DDP 1962
+
+**Número de Providencia (DDP 1962):** AP823-2021
+**Radicación (DDP 1962):** 59033
+
+**Lista de Temas (DDP 1962):**
+(i) “CONTRA EL AUTO QUE DECLARA DESIERTO EL RECURSO EXTRAORDINARIO DE CASACIÓN, SOLO PROCEDE EL RECURSO DE REPOSICIÓN, SIN QUE RESULTE VIABLE INTERPONER EL QUEJA.”. 
+(ii) EL RECURSO DE QUEJA. 
+(iii) EL PRINCIPIO DE CONFIANZA LEGÍTIMA.
+
+---
+
+# PROVIDENCIA DDP 1963
+
+**Número de Providencia (DDP 1963):** No especificado
+**Radicación (DDP 1963):** 56745
+
+**Lista de Temas (DDP 1963):**
+(i) EL INCIDENTE DE REPARACIÓN INTEGRAL Y LA CASACIÓN. 
+(ii) LA CUANTÍA PARA LA CASACIÓN CIVIL. 
+(iii) EL ARTÍCULO 342 DEL CÓDIGO GENERAL DEL PROCESO. 
+(iv) LA POTESTAD DE LA VÍCTIMA PARA SOLICITAR EL INICIO DEL TRÁMITE INCIDENTAL. 
+(v) NO CONFUNDIR LA SOLICITUD DE APERTURA INCIDENTAL CON LA PRETENSIÓN DEL INCIDENTE. 
+(vi) “… LOS TÉRMINOS DE LA PRESCRIPCIÓN PARA RECLAMAR INDEMNIZACIÓN DE PERJUICIOS DENTRO DEL INCIDENTE DE REPARACIÓN EN EL ÁMBITO PENAL, NO PUEDE TENERSE EN CUENTA CONFORME LO CONTEMPLA EL PERIODO DE PRESCRIPCIÓN DE LA ACCIÓN PENAL, ES DECIR DESDE LA OCURRENCIA DE LOS HECHOS, SINO DESDE QUE NACE EL DERECHO, ESTO ES, A PARTIR DE LA SENTENCIA CONDENATORIA DEBIDAMENTE EJECUTORIADA, LA CUAL ES FUENTE DE OBLIGACIONES EN MATERIA CIVIL.”. 
+(vii) LA INCONSONANCIA DE LA SENTENCIA RECURRIDA. AP573–2021.
+
+---
+
+# PROVIDENCIA DDP 1964
+
+**Número de Providencia (DDP 1964):** No especificado
+**Radicación (DDP 1964):** 2015-03597
+**Decisión (DDP 1964):** (077-2017).
+
+**Lista de Temas (DDP 1964):**
+(i) La fuga de presos. 
+(ii) Salir un momento de su lugar de detención residencial.
+
+---
+
+# PROVIDENCIA DDP 1965
+
+**Número de Providencia (DDP 1965):** SP740-2021
+**Radicación (DDP 1965):** 56227
+
+**Lista de Temas (DDP 1965):**
+(i) “El cobro bajo amenazas o violento de un crédito o préstamo por parte del acreedor en vez de acudir a la jurisdicción civil, siempre que el hecho no constituya otro delito configura el tipo penal de constreñimiento ilegal y no el de extorsión.”. 
+(ii) Las estipulaciones probatorias. 
+(iii) “… la impugnación de credibilidad del testimonio con fundamento en una entrevista anterior, por si sola no constituye suficiente motivo de descrédito de él, dado que corresponde al juez en su apreciación tener en cuenta los criterios señalados en el artículo 404 de la ley 906 de 2004, a partir de los cuales establecerá la veracidad o mendacidad de la declaración del testigo.”.
+
+---
+
+# PROVIDENCIA DDP 1966
+
+**Número de Providencia (DDP 1966):** AP576–2021
+**Radicación (DDP 1966):** 53831
+
+**Lista de Temas (DDP 1966):**
+(i) El falso juicio de existencia por preterición. 
+(ii) El principio de corrección material.
+
+---
+
+# PROVIDENCIA DDP 1967
+
+**Número de Providencia (DDP 1967):** AP762-2021
+**Radicación (DDP 1967):** 58005
+
+**Lista de Temas (DDP 1967):**
+(i) La finalidad del recurso de reposición. 
+(ii) “La reposición interpuesta contra el auto que inadmite la demanda de revisión no equivale a un término para subsanar falencias de la misma.”. 
+(iii) “La ausencia de argumentos fácticos o jurídicos que controviertan el sentido de la providencia recurrida” conduce a negar la reposición.
+
+---
+
+# PROVIDENCIA DDP 1968
+
+**Número de Providencia (DDP 1968):** AP768-2021
+**Radicación (DDP 1968):** 57234
+
+**Lista de Temas (DDP 1968):**
+(i) Las víctimas en el proceso penal de la ley 906 de 2004. 
+(ii) La calidad de víctima para los delitos que atentan contra la administración pública.
+
+---
+
+# PROVIDENCIA DDP 1969
+
+**Número de Providencia (DDP 1969):** No especificado
+**Radicación (DDP 1969):** 34494
+
+**Lista de Temas (DDP 1969):**
+DELITO SEXUAL Y ALCOHOL.
+
+---
+
+# PROVIDENCIA DDP 1970
+
+**Número de Providencia (DDP 1970):** AP761-2021
+**Radicación (DDP 1970):** 59010
+
+**Lista de Temas (DDP 1970):**
+(i) EL DELITO MILITAR DE DESERCIÓN. 
+(ii) LA SUSPENSIÓN DE TÉRMINOS DE PRESCRIPCIÓN Y CADUCIDAD POR LA EMERGENCIA SANITARIA NO ES APLICABLE EN MATERIA PENAL. 
+(iii) LA PRESCRIPCIÓN PARA EL DELITO MILITAR DE DESERCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1972
+
+**Número de Providencia (DDP 1972):** No especificado
+**Radicación (DDP 1972):** 24166
+
+**Lista de Temas (DDP 1972):**
+(i) NOTIFICACIÓN DE PROVIDENCIAS EN LA LEY 600 DE 2.000. 
+(ii) LA ADECUADA DEFENSA TÉCNICA. 
+(iii) LA INVESTIGACIÓN INTEGRAL.
+
+---
+
+# PROVIDENCIA DDP 1973
+
+**Número de Providencia (DDP 1973):** SP741-2021
+**Radicación (DDP 1973):** 54658
+
+**Lista de Temas (DDP 1973):**
+(i) “VIOLACIÓN AL DEBIDO PROCESO Y AL PRINCIPIO DE CONGRUENCIA CUANDO NO SE CONCRETAN DE MANERA CLARA Y COMPLETA LOS HECHOS JURÍDICAMENTE RELEVANTES.”. 
+(ii) “LA CORRECTA DELIMITACIÓN DE LOS HECHOS JURÍDICAMENTE RELEVANTES”. 
+(iii) “LA DELIMITACIÓN DE LOS HECHOS JURÍDICAMENTE RELEVANTES ANTE LA PLURALIDAD DE SUJETOS ACTIVOS.”.  
+(iv) ELEMENTOS QUE AGOTAN EL PUNIBLE DE ESTAFA. 
+(v) ORDENAN ADOPTAR “LAS MEDIDAS NECESARIAS PARA QUE TODOS SUS FUNCIONARIOS ESTÉN EN CAPACIDAD DE CUMPLIR ADECUADAMENTE LAS FUNCIONES MEDULARES QUE LES ASIGNAN LA CONSTITUCIÓN POLÍTICA Y LA LEY.”.
+
+---
+
+# PROVIDENCIA DDP 1974
+
+**Número de Providencia (DDP 1974):** AHP944-2021
+**Radicación (DDP 1974):** 59194
+
+**Lista de Temas (DDP 1974):**
+(i) PROCEDENCIA DEL HÁBEAS CORPUS. “… SI BIEN EL RECURSO DE APELACIÓN CONTRA UNA SENTENCIA CONDENATORIA ES CONCEDIDO EN EL EFECTO SUSPENSIVO, ESTE EFECTO NO ES APLICABLE RESPECTO DE LOS ACTOS QUE MATERIALIZAN DICHO FALLO, COMO LO SERÍA LIBRAR LA CORRESPONDIENTE ORDEN DE CAPTURA EN VIRTUD DEL ARTÍCULO 450 DE LA LEY 906 DE 2004; PUES DICHO APARTE TIENE LA CALIDAD DE AUTO Y, AL VERSAR SOBRE LA LIBERTAD DEL CONDENADO, ES DE INMEDIATO CUMPLIMIENTO …”.
+
+---
+
+# PROVIDENCIA DDP 1975
+
+**Número de Providencia (DDP 1975):** SP730-2021
+**Radicación (DDP 1975):** 55287
+
+**Lista de Temas (DDP 1975):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) EL PECULADO POR APROPIACIÓN A FAVOR DE TERCEROS. 
+(iii) LA INMEDIATEZ EN LA TUTELA.
+
+---
+
+# PROVIDENCIA DDP 1976
+
+**Número de Providencia (DDP 1976):** SP770-2021
+**Radicación (DDP 1976):** 49844
+
+**Lista de Temas (DDP 1976):**
+(i) DESARROLLO DEL PRINCIPIO DE CONGRUENCIA EN LA LEY 600 DE 2000. 
+(ii) LA PRESCRIPCIÓN EN PROCESOS REGIDOS POR LA LEY 600 DE 2000. 
+(iii) EL DELITO DE EJECUCCIÓN PERMANENTE Y LA PRESCRIPCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1977
+
+**Número de Providencia (DDP 1977):** SP823-2021
+**Radicación (DDP 1977):** 57194
+
+**Lista de Temas (DDP 1977):**
+(i) NO EXISTE NULIDAD POR FALTA DE COMPETENCIA DEL FISCAL. 
+(ii) EL DERECHO A LA DEFENSA. 
+(iii) LA CITACIÓN A LAS AUDIENCIAS. 
+(iv) LA TRASCENDENCIA DE LA AUDIENCIA PREPARATORIA. 
+(v) LA APATÍA PARA UBICAR AL PROCESADO Y EL DERECHO DE DEFENSA.
+
+---
+
+# PROVIDENCIA DDP 1978
+
+**Número de Providencia (DDP 1978):** AP933-2021
+**Radicación (DDP 1978):** 58996
+
+**Lista de Temas (DDP 1978):**
+(i) LA COLISIÓN DE COMPETENCIA. 
+(ii) PRESUPUESTOS PARA QUE SE ENTIENDA CORRECTAMENTE TRABADO UN CONFLICTO NEGATIVO DE COMPETENCIA.
+
+---
+
+# PROVIDENCIA DDP 1979
+
+**Número de Providencia (DDP 1979):** No especificado
+**Radicación (DDP 1979):** CUI 13430-60-01118-2014-01414
+
+**Lista de Temas (DDP 1979):**
+(i) IMPORTANCIA DEL TESTIMONIO DEL MENOR VÍCTIMA EN LA COMISIÓN DE DELITOS SEXUALES. 
+(ii) EL ERROR DE TIPO EN EL ACCESO CARNAL ABUSIVO CON MENOR DE 14 AÑOS. 
+(iii) EL CONSENTIMIENTO EN EL ACCESO CARNAL ABUSIVO CON MENOR DE 14 AÑOS. 
+(iv) EL DICTAMEN MÉDICO LEGAL EN LOS DELITOS SEXUALES.
+
+---
+
+# PROVIDENCIA DDP 1980
+
+**Número de Providencia (DDP 1980):** SENTENCIA C-177/14
+**Radicación (DDP 1980):** No especificado
+
+**Lista de Temas (DDP 1980):**
+(i) LA ENTREVISTA FORENSE REALIZADA A NIÑOS, NIÑAS Y ADOLESCENTES VÍCTIMAS DE DELITOS CONTRA LA LIBERTAD, INTEGRIDAD Y FORMACIÓN SEXUALES. 
+(ii) LA CÁMARA GESELL.
+
+---
+
+# PROVIDENCIA DDP 1981
+
+**Número de Providencia (DDP 1981):** AP490-2014
+**Radicación (DDP 1981):** 39069
+
+**Lista de Temas (DDP 1981):**
+LA TRANSLITERACIÓN DE LAS GRABACIONES TELFÓNICAS Y SU VALOR PROBATORIO.
+
+---
+
+# PROVIDENCIA DDP 1982
+
+**Número de Providencia (DDP 1982):** SP13792-2016
+**Radicación (DDP 1982):** 46432
+
+**Lista de Temas (DDP 1982):**
+LA TRANSCRIPCIÓN DE LAS GRABACIONES TELEFÓNICAS Y SU LEGALIDAD.
+
+---
+
+# PROVIDENCIA DDP 1983
+
+**Número de Providencia (DDP 1983):** SP903-2021
+**Radicación (DDP 1983):** 56180
+
+**Lista de Temas (DDP 1983):**
+(i) “EL OBJETO DE LAS ESTIPULACIONES SON LOS HECHOS JURÍDICAMENTE RELEVANTES, NO SUS PRUEBAS.” 
+(ii) “UN DOCUMENTO PUEDE CONSTITUIR UN HECHO JURÍDICAMENTE RELEVANTE Y, POR TANTO, SER OBJETO DE ESTIPULACIÓN.”. 
+(iii) “… CUANDO EL DOCUMENTO NO ES TEMA SINO MEDIO DE PRUEBA DEL PROCESO PENAL NO PODRÁ SER OBJETO DE ESTIPULACIÓN, POR LA SENCILLA RAZÓN DE QUE NO CONFIGURA UN HECHO JURÍDICAMENTE RELEVANTE …”. 
+(iv) “ESTIPULACIONES VIABLES EN LOS CASOS DE PREVARICATO POR ACCIÓN.”.
+
+---
+
+# PROVIDENCIA DDP 1984
+
+**Número de Providencia (DDP 1984):** SP824-2021
+**Radicación (DDP 1984):** 54026
+
+**Lista de Temas (DDP 1984):**
+(i) “EL PORCENTAJE DE DESCUENTO DE QUE TRATA EL ARTÍCULO 269 DEL CÓDIGO PENAL”. 
+(ii) “.. PARA EFECTOS DE ESTABLECER EL PORCENTAJE DE DESCUENTO DE QUE TRATA EL ARTÍCULO 269 DEL CÓDIGO PENAL ES PRECISO TENER EN CUENTA EL TIEMPO TRANSCURRIDO ENTRE LA COMISIÓN DE LA CONDUCTA PUNIBLE Y EL MOMENTO QUE SE MATERIALIZA LA REPARACIÓN …”.
+
+---
+
+# PROVIDENCIA DDP 1985
+
+**Número de Providencia (DDP 1985):** STP1953-2021
+**Radicación (DDP 1985):** 115213
+
+**Lista de Temas (DDP 1985):**
+(i) “PARA EFECTOS DE CONTABILIZACIÓN DE TÉRMINOS EN TEMAS DE LIBERTAD PROVISIONAL SE DEBEN TENER EN CUENTA LAS MANIOBRAS DILATORIAS DEL ACUSADO O SU DEFENSOR, COMO ALUDE EL TRIBUNAL DE PRIMERA INSTANCIA, Y TAMBIÉN LAS CAUSAS RAZONABLES FUNDADAS EN HECHOS EXTERNOS Y OBJETIVOS AJENOS AL JUEZ O LA ADMINISTRACIÓN DE JUSTICIA.”. 
+(ii) “… SE VE QUE LOS OPERADORES JURÍDICOS INCURRIERON EN UN ERROR AL RESTAR LOS PERÍODOS DE VACANCIA JUDICIAL DE DICIEMBRE Y SEMANA SANTA, YA QUE ESE CRITERIO DESCONOCE EL PARÁGRAFO 3° DEL ARTÍCULO 317 DEL C.P.P. EN EL ENTENDIDO QUE SE TRATA DE CIRCUNSTANCIAS QUE IMPIDEN NOTORIAMENTE LA INICIACIÓN DEL JUICIO ORAL, LO CIERTO ES QUE SON ATRIBUIBLES A LA ADMINISTRACIÓN DE JUSTICIA Y NO AL PRIVADO DE LA LIBERTAD… “.
+
+---
+
+# PROVIDENCIA DDP 1986
+
+**Número de Providencia (DDP 1986):** No especificado
+**Radicación (DDP 1986):** 56358
+
+**Lista de Temas (DDP 1986):**
+(i) EXCLUSIÓN DE EVIDENCIA DERIVADA DE PRUEBA ILEGAL. 
+(ii) LA AUDIENCIA DE CONTROL DE LEGALIDAD POSTERIOR DEL ARTÍCULO 237 INSTRUMENTAL PENAL. 
+(iii) LA INTERCEPTACIÓN DE COMUNICACIONES.
+
+---
+
+# PROVIDENCIA DDP 1987
+
+**Número de Providencia (DDP 1987):** AP1034–2021
+**Radicación (DDP 1987):** No especificado
+**Decisión (DDP 1987):** IMPEDIMENTO 59134.
+
+**Lista de Temas (DDP 1987):**
+(i) EL IMPEDIMENTO DE UN MAGISTRADO DE LA SALA ESPECIAL DE JUZGAMIENTO DE PRIMERA INSTANCIA. 
+(ii) LA NATURALEZA DE LOS IMPEDIMENTOS Y RECUSACIONES. 
+(iii) EL IMPEDIMENTO POR HABER PARTICIPADO EN EL PROCESO.
+
+---
+
+# PROVIDENCIA DDP 1988
+
+**Número de Providencia (DDP 1988):** AP984-2021
+**Radicación (DDP 1988):** 53990
+
+**Lista de Temas (DDP 1988):**
+(i) LA ACCIÓN DE REVISIÓN. 
+(ii) LA PRUEBA NUEVA O EL HECHO NOVEDOSO.
+
+---
+
+# PROVIDENCIA DDP 1989
+
+**Número de Providencia (DDP 1989):** SP901-2021
+**Radicación (DDP 1989):** 56794
+
+**Lista de Temas (DDP 1989):**
+(i) LA VIOLENCIA INTRAFAMILIAR Y LA AGRAVACIÓN PUNITIVA POR RECAER SOBRE UNA MUJER. 
+(ii) LAS PENAS ACCESORIAS DE PROHIBICIÓN DE ACERCARSE Y/O COMUNICARSE CON LA VÍCTIMA.
+
+---
+
+# PROVIDENCIA DDP 1990
+
+**Número de Providencia (DDP 1990):** SP904-2021
+**Radicación (DDP 1990):** 57887
+
+**Lista de Temas (DDP 1990):**
+(i) TIPICIDAD OBJETIVA DEL DELITO DE PREVARICATO POR OCASIÓN DE LA LIBERTAD OTORGADA A CUATRO SUJETOS CAPTURADOS EN FLAGRANCIA EJECUTANDO UN DELITO DE HURTO. 
+(ii) EL SIGNIFICADO DEL TÉRMINO RAPONAZO. 
+(iii) TIPICIDAD OBJETIVA DEL DELITO DE PREVARICATO POR HABER OTORGADO LA LIBERTAD A UNA PERSONA CAPTURADA EN FLAGRANCIA CON UN ARMA DE FUEGO SIN POSEER PERMISO PARA EL PORTE. 
+(iv) “LA CONSCIENCIA DE ANTIJURIDICIDAD EN LOS DOS DELITOS DE PREVARICATO Y, EN PARTICULAR, LA POSIBLE EXISTENCIA DE UN ERROR DE PROHIBICIÓN”. 
+(v) EL DOLO AL DEJAR EN LIBERTAD A LOS CAPTURADOS. 
+(vi) ANTIJURIDICIDAD MATERIAL DEL DELITO DE FALSEDAD EN DOCUMENTO PÚBLICO.
+
+---
+
+# PROVIDENCIA DDP 1991
+
+**Número de Providencia (DDP 1991):** No especificado
+**Radicación (DDP 1991):** CUI 520016000485201405004-01
+
+**Lista de Temas (DDP 1991):**
+LA SOLICITUD DE PRECLUSIÓN POR IMPOSIBILIDAD DE DESVIRTUAR LA PRESUNCIÓN DE INOCENCIA.
+
+---
+
+# PROVIDENCIA DDP 1992
+
+**Número de Providencia (DDP 1992):** AP2607-2016
+**Radicación (DDP 1992):** 45638
+
+**Lista de Temas (DDP 1992):**
+(i) LA SOLICITUD DE PRECLUSIÓN. 
+(ii) “LA NECESIDAD DE ARGUMENTAR, SUSTENTAR Y DEMOSTRAR EN DEBIDA FORMA LA ESTRUCTURACIÓN DE LA CAUSAL INVOCADA.”. 
+(iii)  LA DUDA PROBATORIA, LA SOLICITUD DE PRECLUSIÓN Y LA FASE DE JUZGAMIENTO.
+
+---
+
+# PROVIDENCIA DDP 1993
+
+**Número de Providencia (DDP 1993):** AP6363-2015
+**Radicación (DDP 1993):** 42949
+
+**Lista de Temas (DDP 1993):**
+(i) EL MECANISMO PROCESAL DE LA PRECLUSIÓN. 
+(ii) EL IN DUBIO PRO REO. 
+(iii) “… SI EVALUADA LA INDAGACIÓN O LA INVESTIGACIÓN NO SE ALCANZA EL ESTÁNDAR DE CONOCIMIENTO NECESARIO PARA QUE LA FISCALÍA ACCEDA AL SIGUIENTE ESTADIO PROCESAL, PROCEDERÁ LA PRECLUSIÓN POR LA CAUSAL SEXTA …”.
+
+---
+
+# PROVIDENCIA DDP 1994
+
+**Número de Providencia (DDP 1994):** No especificado
+**Radicación (DDP 1994):** CUI 520016000487201600614-01
+
+**Lista de Temas (DDP 1994):**
+(i) EL DERECHO A LA INTIMIDAD DE LOS NIÑOS, NIÑAS Y ADOLESCENTES. 
+(ii) LA EXCLUSIÓN PROBATORIA. 
+(iii) “NO HAY LUGAR A EXCLUIRSE POR ILÍCITA LA PRUEBA RELACIONADA CON LOS CHATS DE LAS REDES SOCIALES FACEBOOK Y WHATSAPP A TRAVÉS DE LOS CUALES INTERACTUARON LA MENOR Y EL ACUSADO Y QUE FUERA RECAUDADA POR LA MADRE DE LA VÍCTIMA.”.
+
+---
+
+# PROVIDENCIA DDP 1995
+
+**Número de Providencia (DDP 1995):** SENTENCIA T-043/20
+**Radicación (DDP 1995):** No especificado
+
+**Lista de Temas (DDP 1995):**
+(i) LA PRUEBA ELECTRÓNICA O PRUEBA DIGITAL. 
+(ii) LOS PANTALLAZOS DE WHATSAPP.
+
+---
+
+# PROVIDENCIA DDP 1996
+
+**Número de Providencia (DDP 1996):** No especificado
+**Radicación (DDP 1996):** CUI 0500160002062018-10095
+
+**Lista de Temas (DDP 1996):**
+NULIDAD POR ADELANTAR EL PROCESO BAJO UN ESQUEMA EQUIVOCADO.
+
+---
+
+# PROVIDENCIA DDP 1997
+
+**Número de Providencia (DDP 1997):** SP785-2021
+**Radicación (DDP 1997):** 51202
+
+**Lista de Temas (DDP 1997):**
+LA IMPUGNACIÓN DE LA CREDIBILIDAD DEL TESTIGO.
+
+---
+
+# PROVIDENCIA DDP 1998
+
+**Número de Providencia (DDP 1998):** SENTENCIA C-917-01
+**Radicación (DDP 1998):** No especificado
+
+**Lista de Temas (DDP 1998):**
+(i) EL CONTRATO SIN CUMPLIMIENTO DE REQUISITOS LEGALES. 
+(ii) EL PREVARICATO POR ACCIÓN.
+
+---
+
+# PROVIDENCIA DDP 1999
+
+**Número de Providencia (DDP 1999):** SENTENCIA C-335/08
+**Radicación (DDP 1999):** No especificado
+
+**Lista de Temas (DDP 1999):**
+(i) ELEMENTOS QUE CONFIGURAN EL PREVARICATO POR ACCIÓN. 
+(ii) EL DESCONOCIMIENTO DE LA JURISPRUDENCIA.
+
+---
+
+# PROVIDENCIA DDP 2000
+
+**Número de Providencia (DDP 2000):** No especificado
+**Radicación (DDP 2000):** CUI  523566107457-201200791-01
+
+**Lista de Temas (DDP 2000):**
+(i) EL “… CONTROL FORMAL DE LA VALIDEZ DE LA ACEPTACIÓN DE CARGOS QUE REALIZA EL JUEZ DE CONOCIMIENTO SE PREDICA EXCLUSIVAMENTE DE LOS PREACUERDOS, JAMÁS DEL ALLANAMIENTO …”. 
+(ii)  QUE EL JUEZ DE CONOCIMIENTO LLEVE A CABO EL CONTROL DE LA VALIDEZ AL ALLANAMIENTO A CARGOS QUE YA HIZO UNO DE GARANTÍAS, NO SOLAMENTE VA EN CONTRA DE LA ECONOMÍA PROCESAL AL DUPLICAR INNECESARIAMENTE UN ACTO JUDICIAL QUE YA TUVO LUGAR, DONDE HA OPERADO EL PRINCIPIO DE PRECLUSIVIDAD. 
+(iii) EL PRINCIPIO DE TRASCENDENCIA EN LAS NULIDADES. 
+(iv) “AL FUNCIONARIO JUZGADOR, EN PRINCIPIO Y SALVO CASOS DE EXTREMA EXCEPCIONALIDAD, NO LE ES PERMITIDO ADELANTAR UN CONTROL MATERIAL DEL ALLANAMIENTO AL PLIEGO DE CARGOS, POR CONSIGUIENTE, TAMPOCO PUEDE INVALIDAR LAS IMPUTACIONES Y ACUSACIONES QUE FORMULE LA FISCALÍA, PORQUE EN EL MODELO ADVERSATIVO DE INVESTIGACIÓN Y JUZGAMIENTO PENAL LE OBLIGA A EJERCER UN ROL DE ABSOLUTA E INEXCUSABLE IMPARCIALIDAD.”. 
+(v) LOS PRINCIPIOS QUE ORIENTAN LA DECLARATORIA DE LAS NULIDADES.
+
+---
+
+# PROVIDENCIA DDP 2000
+
+**Número de Providencia (DDP 2000):** SP4088-2020
+**Radicación (DDP 2000):** 55745
+
+**Lista de Temas (DDP 2000):**
+1. 
+(i) FORMA DE CORREGIR EL ERROR DE NO PRONUNCIARSE SOBRE ALGUNOS DE LOS DELITOS POR LOS QUE SE IMPUTÓ, SE ACUSÓ, SE DEBATIÓ PERO NO SE CONCLUYÓ. 
+(ii) EL PREVARICATO POR ACCIÓN. 
+(iii) LA CONCUSIÓN. 
+(iv) EL COHECHO PROPIO. 
+(v) LA VARIACIÓN DE LA CALIFICACIÓN JURÍDICA.
+
+---
+
+# PROVIDENCIA DDP 2001
+
+**Número de Providencia (DDP 2001):** AP1048-2021
+**Radicación (DDP 2001):** 53234
+
+**Lista de Temas (DDP 2001):**
+(i) LAS DECISIONES DE SEGUNDA INSTANCIA, DE CONFORMIDAD CON EL ARTÍCULO 179 DE LA LEY 906 DE 2004, NO SE ENTIENDEN PROFERIDAS EL DÍA EN EL QUE SE LES DA LECTURA. 
+(ii) LA INVALIDACIÓN DE LA SENTENCIA POR VIOLACIÓN DEL DEBER DE MOTIVACIÓN. 
+(iii) EL PRINCIPIO DE RAZÓN SUFICIENTE.
+
+---
+
+# PROVIDENCIA DDP 2002
+
+**Número de Providencia (DDP 2002):** AHP1068-2021
+**Radicación (DDP 2002):** 59288
+
+**Lista de Temas (DDP 2002):**
+(i) “LA PROLONGACIÓN DE LA PRIVACIÓN DE LIBERTAD SE SUSCITA CUANDO TENIÉNDOSE DERECHO A ELLA DE MODO CONCRETO, NO SE MATERIALIZA.”. 
+(ii) LA REDENCIÓN DE PENA.
+
+---
+
+# PROVIDENCIA DDP 2003
+
+**Número de Providencia (DDP 2003):** AP580-2021
+**Radicación (DDP 2003):** 54283
+
+**Lista de Temas (DDP 2003):**
+(i) EL YERRO POR FALSO JUICIO DE IDENTIDAD SE TRATA DE UN DEFECTO DE NATURALEZA EMINENTEMENTE OBJETIVA, POR LO QUE SU PROPOSICIÓN EXIGE ACREDITAR QUE EL SENTIDO LITERAL DE UN MEDIO DE PRUEBA FUE CAMBIADO PARA PONERLO A DECIR LO QUE NO REVELA. 
+(ii) EXIGENCIAS ARGUMENTATIVAS QUE IMPONE ESTE YERRO. 
+(iii) EL PRINCIPIO DE INDEPENDENCIA DE LAS CAUSALES. 
+(iv) EL FALSO RACIOCINIO. 
+(v) SUSTENTACIÓN DEL YERRO POR FALSO RACIOCINIO.
+
+---
+
+# PROVIDENCIA DDP 2004
+
+**Número de Providencia (DDP 2004):** SP977-2021
+**Radicación (DDP 2004):** 53849
+
+**Lista de Temas (DDP 2004):**
+(i) LOS FUNCIONARIOS DE HECHO Y LA VALIDEZ DE SUS ACTUACIONES. 
+(ii) LOS DESACIERTOS EN LOS FUNDAMENTOS Y/O CONCLUSIONES DE UN DICTAMEN PERICIAL. 
+(iii) BALÍSTICA FORENSE.
+
+---
+
+# PROVIDENCIA DDP 2005
+
+**Número de Providencia (DDP 2005):** SP342-2020
+**Radicación (DDP 2005):** 52283
+
+**Lista de Temas (DDP 2005):**
+(i) EL PREVARICATO POR ACCIÓN. 
+(ii) ALCANCES Y REQUISITOS DE LA NOCIÓN DE PADRE O MADRE CABEZA DE FAMILIA. 
+(iii) EL DOLO EN EL PREVARICATO ACTIVO. 
+(iv) LA DESTRUCCIÓN, SUPRESIÓN U OCULTAMIENTO DE DOCUMENTO PÚBLICO. 
+(v) “… SI LA ACTUACIÓN ESPECÍFICA DEL FUNCIONARIO PÚBLICO REPRESENTA CONTRARIAR LA VERDAD EN EJERCICIO DE ESAS FUNCIONES A ÉL DEFERIDAS Y ASÍ SE PLASMA EN UN DOCUMENTO QUE PUEDA SERVIR DE PRUEBA, ELLO POR SÍ SOLO CONFIGURA PERFECTA LA ILICITUD DE FALSEDAD IDEOLÓGICA, AUNQUE OTROS COMETIDOS FINALÍSTICOS NO SEAN ALCANZADOS.”. 
+(vi) EL COHECHO PROPIO. 
+(viii) LA PRUEBA DE REFERENCIA. 
+(ix) LA COMPULSA DE COPIAS NO ES SUCEPTIBLE DE IMPUGNACIÓN. 
+(X) FALSEDAD MATERIAL EN DOCUMENTO PÚBLICO.
+
+---
+
+# PROVIDENCIA DDP 2006
+
+**Número de Providencia (DDP 2006):** No especificado
+**Radicación (DDP 2006):** 36422
+
+**Lista de Temas (DDP 2006):**
+(i) LA SOCIEDAD ANÓNIMA DE ECONÓMIA MIXTA. 
+(ii) EL CAPITAL PRIVADO EN EMPRESAS DONDE EL ESTADO TIENE PARTE. 
+(iii) EL PECULADO CULPOSO. 
+(iv) “… LA JURISDICCIÓN DISCIPLINARIA Y LA PENAL TIENEN AUTONOMÍA CONSTITUCIONAL, LEGAL, PROCESAL, Y ESA INDEPENDENCIA SIN LIMITANTES NI RESTRICCIONES RECÍPROCAS SE HACE EXTENSIVA A LOS JUICIOS Y DECISIONES INTERLOCUTORIAS Y DE FONDO QUE SE PROFIERAN POR SEPARADO, DE DONDE EL CRITERIO EXPUESTO EN EL PROCESO DISCIPLINARIO NO OBLIGABA EN FORMA ALGUNA AL JUZGADOR PENAL.”. 
+(v) EL PRINCIPIO DE CONFIANZA.
+
+---
+
+# PROVIDENCIA DDP 2007
+
+**Número de Providencia (DDP 2007):** AP1703-2014
+**Radicación (DDP 2007):** 38690
+
+**Lista de Temas (DDP 2007):**
+(i) EL PECULADO CULPOSO DE UN MILITAR. 
+(ii) EL REENVÍO A LA LEGISLACIÓN PENAL ORDINARIA. 
+(iii) EL DELITO DE PECULADO CULPOSO, NO HA SIDO DESCRIMINALIZADO PARA LOS MILITARES, PUESTO QUE AUNQUE YA NO ESTÁ CONSAGRADO ENTRE LOS PUNIBLES TÍPICAMENTE DE ESTOS, SIGUE ESTANDO CONSAGRADO EN EL ARTÍCULO 400 DE LA LEY 599 DE 2000, QUE TAMBIÉN APLICA A LOS MIEMBROS DE LA FUERZA PÚBLICA. 
+(iv) LAS NULIDADES. 
+(v) LA CONSULTA EN LA JUSTICIA PENAL MILITAR.
+
+---
+
+# PROVIDENCIA DDP 2008
+
+**Número de Providencia (DDP 2008):** STP2582-2021
+**Radicación (DDP 2008):** 114494
+
+**Lista de Temas (DDP 2008):**
+(i) AGENCIAR UN DERECHO DE UN TERCERO. 
+(ii) “LA AUDIENCIA DE REVOCATORIA DE LA MEDIDA DE ASEGURAMIENTO TIENE UN FIN DISTINTO AL DE DISCUTIR LA LEGALIDAD DE LA DECISIÓN QUE LA IMPUSO.”. 
+(iii) “LOS CUESTIONAMIENTOS O SOLICITUDES DE NULIDAD DERIVADAS DE PRESUNTAS IRREGULARIDADES EN LA ETAPA PRELIMINAR TIENEN CABIDA EN EL ALUDIDO ESCENARIO, O BIEN EN UNA FUTURA FASE, COMO LO ES LA FORMULACIÓN DE ACUSACIÓN, POR LO QUE ES ALLÍ DONDE PUEDEN PROPONERSE.” Y NO MEDIANTE LA ACCIÓN DE TUTELA.
+
+---
+
+# PROVIDENCIA DDP 2009
+
+**Número de Providencia (DDP 2009):** AP844-2021
+**Radicación (DDP 2009):** 58739
+
+**Lista de Temas (DDP 2009):**
+(i) EL JUZGAMIENTO POR EL DELITO DE INASISTENCIA ALIMENTARIA. 
+(ii) LA COMPETENCIA TERRITORIAL Y LA COMPETENCIA FUNCIONAL. 
+(iii) CAMBIAR DE DOMICILIO DURANTE EL PROCESO NO TIENE INCIDENCIA AL MOMENTO DE DEFINIRSE LA COMPETENCIA PARA CONOCER DEL ASUNTO.
+
+---
+
+# PROVIDENCIA DDP 2010
+
+**Número de Providencia (DDP 2010):** SP975-2021
+**Radicación (DDP 2010):** 58210
+
+**Lista de Temas (DDP 2010):**
+(i) LA PRESCRPCIÓN DE LA ACCIÓN PENAL. 
+(ii) LA SUSPENSIÓN DE LA PRESCRIPCIÓN CON LA DECISIÓN DE SEGUNDO GRADO. 
+(iii) “… LA FECHA DE LA EMISIÓN DEL FALLO, CUANDO SE TRATA DE UN CUERPO COLEGIADO, NO ES CUANDO SE EFECTÚA LECTURA AL MISMO SINO AQUELLA EN LA QUE SE DA SU APROBACIÓN.”; NO CUANDO SE REGISTRA EL PROYECTO.
+
+---

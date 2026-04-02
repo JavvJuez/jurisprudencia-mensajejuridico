@@ -1,0 +1,6857 @@
+# PROVIDENCIA DDP 8121
+
+**Número de Providencia (DDP 8121):** CP232-2025
+**Radicación (DDP 8121):** 68890
+
+**Lista de Temas (DDP 8121):**
+(i) “De acuerdo con el concepto emitido por el Ministerio de Relaciones Exteriores, en este caso se debe proceder conforme al «Acuerdo sobre Extradición», suscrito en Caracas el 18 de julio de 1911 y aprobado en Colombia a través de la Ley 26 de 1913.”. 
+(ii) “Por consiguiente, en armonía con lo previsto en el referido instrumento internacional, para establecer la viabilidad de la petición de extradición elevada debe examinarse el cumplimiento de los siguientes requisitos: …”. 
+(iii) “Igualmente, resulta imperativo atender las disposiciones contenidas en el Código de Procedimiento Penal (Ley 906 de 2004), salvo aquellas que sean incompatibles con los términos consagrados en el Acuerdo Bolivariano sobre Extradición. Esto se deduce de lo estipulado en el inciso 3º del artículo VIII de dicho convenio, el cual establece que la extradición de los prófugos se realizará conforme a las leyes de extradición del Estado requirente. Esta interpretación ha sido respaldada por fallos judiciales previos, tales como el CSJ AP del 27 de noviembre de 2013, Rad. 42.334 y CSJ AP7631 - 2014.”. 
+(iv) “El Acuerdo sobre extradición suscrito por los Gobiernos de la República del Ecuador y de la República de Colombia exige que la solicitud se acompañe de la respectiva sentencia condenatoria, si el requerido ha sido juzgado y condenado, o del mandato de detención, en el caso que tenga la calidad de procesado, donde se determine con exactitud el delito que lo motiva, la fecha de su perpetración y las declaraciones o elementos probatorios que lo sustentan.”. 
+(v) “Las autoridades judiciales del país requirente consideraron que el comportamiento de EDUARDO LUIS MENÉNDEZ MACAY se adecua típicamente al delito de «asesinato», el cual se encuentra consignado y sancionado en el artículo 140, del Código Orgánico Integral Penal del Ecuador, que dispone: …”. 
+(vi) “Causales de improcedencia de la solicitud de extradición, contenidas en el Acuerdo Bolivariano sobre Extradición.”.
+
+---
+
+# PROVIDENCIA DDP 8122
+
+**Número de Providencia (DDP 8122):** SP1947-2025
+**Radicación (DDP 8122):** 60423
+**Decisión (DDP 8122):** SMS DEL 22.10.2025
+
+**Lista de Temas (DDP 8122):**
+(i) “La Sala casa parcialmente y de oficio la sentencia impugnada, por cuanto la determinación de la sanción impuesta a R.D.M.P., internamiento en medio semicerrado por 3 años, vulnera los criterios de proporcionalidad e idoneidad que la rigen -art. 179 C.I.A-.”. 
+(ii) “Las sanciones dentro del Sistema de Responsabilidad Penal para Adolescentes (SRPA) tienen finalidad protectora, educativa y restaurativa -artículo 178 C.I.A.-.”. 
+(iii) “La finalidad protectora parte de considerar que los niños, niñas y adolescentes (NNA) son sujetos de especial protección constitucional y sus derechos e intereses tienen carácter superior y prevalente, por lo tanto, la sanción debe preservarlos y velar por su desarrollo integral. De ahí la importancia de considerar en su imposición las necesidades y particularidades del infractor, para su rehabilitación y reintegración social.”. 
+(iv)  “Bajo el entendido que el adolescente es una persona en formación, la sanción debe tener un enfoque educativo, que priorice el desarrollo de sus capacidades para una vida autónoma y propenda por su reflexión y la responsabilización de sus actos. En ese sentido, “deben apuntar y sin desconocer el curso de vida por la cual atraviesa el adolescente o joven y que lo sitúa como ser en formación, a movilizar su responsabilidad sobre el hecho que lo vincula al SRPA y las consecuencias para la víctima, la comunidad, su familia y para sí mismo.”.”. 
+(v) “En lo que respecta a la finalidad restaurativa, la sanción en el SRPA debe poner su énfasis en reparar, simbólica o materialmente, el daño causado a la víctima y la sociedad esto es, lograr generar en el infractor acciones de compensación o resarcimiento, de ser posible, en un trabajo conjunto con la víctima.”. 
+(vi) “Por consiguiente, para la imposición de la sanción en el SRPA el juez tiene un amplio margen de discrecionalidad, en el que debe ecuánimemente ponderar los criterios para definirla, de conformidad con sus finalidades, velando por equilibrar los derechos y necesidades de los infractores, con los derechos de las víctimas y el interés de la sociedad, a través de la aplicación del principio de proporcionalidad. Así lo establece las Reglas de Beijing -17.1. a)-:”. 
+(vii) “Todas las sanciones tienen una finalidad protectora, educativa y restaurativa. Sin embargo, se diferencian en el nivel de intervención estatal frente a los derechos del infractor, por eso, su determinación depende de los criterios relacionados en la ley que deben estudiarse en conjunto e imponen realizar un ejercicio de ponderación, a fin de concretar la sanción más apropiada, en lo cualitativo y cuantitativo, respecto al adolescente infractor.”.
+
+---
+
+# PROVIDENCIA DDP 8123
+
+**Número de Providencia (DDP 8123):** STP15080-2025
+**Radicación (DDP 8123):** 148136
+
+**Lista de Temas (DDP 8123):**
+(i) El derecho de postulación. 
+(ii) “Esta Corporación ha sostenido que, ante solicitudes elevadas por las partes al funcionario judicial competente, carentes de respuesta y tratándose de actuaciones regladas como lo es el proceso penal, el derecho fundamental que encontraría conculcación es el debido proceso, en su manifestación concreta de postulación …”. 
+(iii) La mora judicial. 
+(iv) “«la administración de justicia debe ser pronta y cumplida. Los términos procesales serán perentorios y de estricto cumplimiento por parte de los funcionarios judiciales. Su violación constituye causal de mala conducta, sin perjuicio de las sanciones penales a que haya lugar».”. 
+(v) “Es así como esa Corporación ha decantado que la mora judicial o administrativa que vulnera el debido proceso, debe reunir las siguientes características: 
+(i) el incumplimiento de los términos señalados en la ley para adelantar alguna actuación por parte del funcionario competente; 
+(ii) que la mora desborde el concepto de plazo razonable que involucra análisis sobre la complejidad del asunto, la actividad procesal del interesado, la conducta de la autoridad competente y el análisis global de procedimiento; 
+(iii) la falta de motivo o justificación razonable en la demora.”.
+
+---
+
+# PROVIDENCIA DDP 8124
+
+**Número de Providencia (DDP 8124):** No especificado
+**Radicación (DDP 8124):** 148228
+
+**Lista de Temas (DDP 8124):**
+(i) “Del acceso a la administración de justicia y la mora judicial.”. 
+(ii) “En ese orden de ideas, una de las manifestaciones del derecho al debido proceso se materializa a través del adelantamiento sin dilaciones injustificadas de las actuaciones judiciales y administrativas, bajo el entendido que el derecho a una pronta y cumplida administración de justicia es propio de un Estado Social de Derecho. En consecuencia, la autoridad judicial está en la obligación de ofrecer una respuesta oportuna a los administrados con base en un prudente y razonado criterio y con apego a la ley, independientemente de su sentido, pues no de otra forma puede entenderse satisfecha la garantía elevada a rango constitucional.”. 
+(iii) “Sin embargo, los funcionarios judiciales tienen la obligación de respetar los turnos establecidos para fallar los procesos a su cargo y emitir las decisiones según el orden en que se ha asumido el conocimiento del asunto o ha ingresado al despacho, con lo que se garantiza a los usuarios de la administración de justicia su acceso en condiciones de igualdad; al tiempo que se «impide que el juez, por sí y ante sí, pueda anticipar o posponer decisiones a su propio arbitrio, lo que sumiría a la administración de justicia en un manto de duda sobre las razones que hubieren impulsado al funcionario judicial de alterar el orden para proferir las sentencias que son de su resorte. Es decir, se trata de una medida que se relaciona, entre otros, con los principios de moralidad y publicidad, de que trata el artículo 208 de la Constitución» (CC T-429 de 2005).”. 
+(iv) “Se advierte que Juan Manuel Borré Barreto está inconforme con la mora del Juzgado Décimo de Ejecución de Penas y Medidas de Seguridad de Ibagué en proferir una decisión sobre la solicitud de libertad condicional que presentó el “26 de mayo de 2025”, tras considerar que, esa omisión, vulnera sus derechos fundamentales al debido proceso, acceso a la administración de justicia y libertad.”. STP15130- 2025.
+
+---
+
+# PROVIDENCIA DDP 8125
+
+**Número de Providencia (DDP 8125):** STP15137-2025
+**Radicación (DDP 8125):** 148650
+
+**Lista de Temas (DDP 8125):**
+(i) "En el sub judice, el problema jurídico se contrae a verificar si se vulneró el derecho al debido proceso de Nancy Esperanza Ramírez Castro en calidad de Procuradora 137 Judicial II Penal de Neiva al interior del proceso penal 730016099355-2019-01024-01, en el que la Sala Penal del Tribunal Superior del Distrito Judicial de Neiva en providencia del 22 de julio de 2025, resolvió abstenerse de resolver la apelación propuesta por la aquí actora, luego de advertir que carecía de legitimación o interés para recurrir, por no haber asistido a la audiencia en la que se verificó y legalizó el preacuerdo acordado entre las partes.". 
+(ii) “De la procedencia de la tutela contra providencias judiciales.”. 
+(iii) “Facultades del Ministerio Público.”. 
+(iv) “De manera que, aunque existen ciertas restricciones para apelar la sentencia antecedida de un preacuerdo entre los procesados y la Fiscalía; cuando se trata de refutar temas relacionados con 
+(i) la dosificación de la pena, 
+(ii) la concesión o no de subrogados o, 
+(iii) cuando se alega la vulneración de derechos fundamentales, esta posibilidad se encuentra latente para las partes e intervinientes.”. 
+(v) “Del anterior contexto jurisprudencial se concluye que el Ministerio Público está legitimado para apelar las sentencias que se originan en preacuerdos y allanamiento, única y exclusivamente, cuando advierta vulneración de derechos fundamentales.”. 
+(vi) “De la legitimación para impugnar providencias en cabeza del Ministerio Público.”.  
+(vii) “De lo expuesto, se tiene que, aun cuando el delegado del Ministerio Público no hubiese participado en la etapa de alegatos de conclusión, tiene interés legítimo para recurrir decisiones absolutorias o condenatorias, en pro de los derechos fundamentales de las víctimas.”. 
+(viii) “En ese mismo orden, en sentencia CSJ SP2566-2021. Rad. 52755. 16 de jun de 2021, la Sala resolvió la demanda de casación presentada por un delegado de Ministerio Público, previó a casar la decisión, analizó la legitimación de recurrente, en el cual advirtió: …”.
+
+---
+
+# PROVIDENCIA DDP 8126
+
+**Número de Providencia (DDP 8126):** STP15120-2025
+**Radicación (DDP 8126):** 148564
+
+**Lista de Temas (DDP 8126):**
+(i) “El problema jurídico por resolver consiste en determinar si es procedente la acción de tutela para ordenar que se dé cumplimiento al sustituto de prisión domiciliaria concedido a Edgar de Jesús Carreño León en la sentencia emitida el 11 de abril de 2025 por el Juzgado Promiscuo Municipal con Funciones Conocimiento de González.”. 
+(ii) La temeridad. 
+(iii) “Para efectos de concluir que se verifica un accionar temerario, la Corte Constitucional ha señalado que se debe comprobar la “triple identidad” , esto es, que deben concurrir los siguientes requisitos: «
+(i) identidad de partes; 
+(ii) identidad de hechos; 
+(iii) identidad de pretensiones; 
+(iv) ausencia de justificación razonable y objetiva frente al ejercicio de la nueva acción de amparo y 
+(v) mala fe o dolo del accionante en la interposición de la nueva tutela».”. 
+(iv) “De otra parte, si bien se trata de un proceso en curso, lo cierto es que el recurso de apelación, propuesto por el coprocesado, no se ataca o vincula la concesión del beneficio de prisión domiciliaria. Tampoco resulta dable exigirle al actor que acudiera a los mecanismos de defensa judicial ordinarios con los que contaba, como el recurso de apelación, a fin de exponer el alegato que trae vía tutela, ya que la decisión de la primera instancia le resultó favorable y, justamente, lo que busca con el amparo es que se ejecute en iguales términos a como fue ordenada en la sentencia de primer grado.”. 
+(v) “Considera la Sala que el entendimiento que propone la autoridad accionada, impone una barrera para el acceso al beneficio concedido al procesado, que excede la literalidad de la providencia de primera instancia. Esto es así, ya que esa sede judicial desconoció el contenido de la sentencia que emitió, al no advertir que, en los términos en que la profirió, no supeditó la materialización de la prisión domiciliaria a su ejecutoria.”. 
+(vi) “La Sala, en un caso similar al aquí estudiado, donde el juzgado de ejecución de penas no adoptó las medidas para materializar la prisión domiciliaria, señaló que “una evidente e injustificada demora en la adaptación de las medidas sustitutivas para hacer menos aflictiva la ejecución de la pena, traduce una verdadera vulneración de los derechos fundamentales del sujeto privado de la libertad, pues dichos mecanismos constituyen una herramienta que permite la resocialización del individuo en la sociedad””.
+
+---
+
+# PROVIDENCIA DDP 8127
+
+**Número de Providencia (DDP 8127):** No especificado
+**Radicación (DDP 8127):** 148152
+**Decisión (DDP 8127):** SMS DEL 23.10.2025
+
+**Lista de Temas (DDP 8127):**
+(i) “En ese orden, al estar dirigida las pretensiones de la acción de tutela a cuestionar la sentencia condenatoria proferida por el Juzgado Tercero Penal del Circuito Especializado de Santa Marta, también las presuntas irregularidades cometida al interior del proceso penal, a continuación, se analizarán los presupuestos generales de procedencia de la acción de tutela contra providencias judiciales, aplicadas al caso concreto.”. 
+(ii) “Presupuestos generales de procedencia de la acción de tutela para cuestionar decisiones y actuaciones adoptadas y surtidas al interior de un proceso judicial.”. 
+(iii) “Como reiteradamente lo ha precisado la jurisprudencia de la Corte Constitucional, la procedencia de la acción de tutela contra decisiones o actuaciones procesales surtidas al interior de un trámite ordinario debe estar sujetas a la constatación de presupuestos generales y específicos, donde, unos y otros, deben concurrir en su totalidad, para declarar procedente el amparo deprecado.”. 
+(iv) “Los primeros, hacen alusión; a. Que la cuestión que se discuta resulte de evidente relevancia constitucional. b. Que se hayan agotado todos los medios -ordinarios y extraordinarios- de defensa judicial al alcance de la persona afectada, salvo que se trate de evitar la consumación de un perjuicio ius fundamental irremediable. c. Que se cumpla el requisito de la inmediatez, esto es, que la acción de tutela se hubiere interpuesto en un término razonable y proporcionado a partir del hecho que originó la vulneración. d. Cuando se trate de una irregularidad procesal, debe comprobarse que esta tiene un efecto decisivo o determinante en la sentencia que se impugna y que afecta los derechos fundamentales de la parte actora. e. Que la parte actora identifique de manera razonable tanto los hechos que generaron la vulneración como los derechos vulnerados y que hubiere alegado tal vulneración en el proceso judicial, siempre que esto hubiere sido posible. f. Que no se trate de sentencias de tutela (Corte Constitucional C-590 de 2005 y Sentencia SU128/21).”.  
+(v) “No obstante, la Sala debe descartar que, el derecho de defensa se divide en técnica y material, lo cual significa que, la representación judicial en el proceso no depende exclusivamente de un abogado, pues, el ordenamiento jurídico también faculta la intervención del procesado.”. 
+(vi) “La apoderada judicial que interviene en este trámite aduce que existió negligencia por parte del abogado que participó en el proceso penal porque por espacio de un año no tuvo contacto con el procesado, también cuestiona su omisión por no promover recurso de apelación, empero, no se advierte que Armando José Ortega Atencio en ejercicio de derecho de defensa material hubiere puesto esta situación al interior del proceso penal.”.  
+(vii) “En lo tocante con el derecho a la defensa material, y la posibilidad de interponer recursos de ley, la Sala de Casación Penal de la Corte Suprema de Justicia en providencia del 26 de octubre de 2011, Rad. 37659 indicó: …”. 
+(viii) “Además, si fue por espacio de un año que presuntamente dejó de recibir asesoría por el sistema de la Defensoría del Pueblo, cuestionable resulta que una vez instalada la audiencia de traslado del artículo 447 de la Ley 906 de 2004 y lectura de sentencia no hubiere puesto de presente esa presunta inconformidad que tenía hacia el defensor que lo venía representando.”. 
+(ix) “Por tanto, esta omisión, junto con la no interposición del recurso de apelación en ejercicio del derecho de defensa material, es lo que permite advertir que el presupuesto de subsidiaridad de la acción de tutela se encuentra quebrantado, sin posibilidad que sea en este escenario constitucional que se deba habilitar el estudio de las diferentes controversias planteadas por la apoderada judicial -indebida defensa técnica,  ausencia de elementos materiales probatorios y negación del sustituto de la prisión domiciliaria etc- pues ello era un tema propio del proceso penal.”. STP15112- 2025.
+
+---
+
+# PROVIDENCIA DDP 8128
+
+**Número de Providencia (DDP 8128):** SP1948-2025
+**Radicación (DDP 8128):** 59065
+
+**Lista de Temas (DDP 8128):**
+(i) Prescripción de la acción penal para el delito de falsedad ideológica en documento público. 
+(ii) “Contrato sin cumplimiento de requisitos legales”. 
+(iii) “Peculado por apropiación”.  
+(iv) “Falsedad ideológica en documento público”. 
+(v) “Así las cosas, no parece razonable negar la concesión de la pena sustitutiva y diferir su reconocimiento hasta los trámites ante los jueces de ejecución de penas, por ausencia de una dirección de residencia con nomenclatura más precisa, mucho menos cuando, al momento de suscribir la diligencia de compromiso, se podrá precisar con mayor detalle la ubicación de la residencia en la vereda Capellanía de Fúquene, si acaso ello es posible, o incluso señalar una nueva dirección para el cumplimiento de la medida.”.
+
+---
+
+# PROVIDENCIA DDP 8129
+
+**Número de Providencia (DDP 8129):** SP1949-2025
+**Radicación (DDP 8129):** 59882
+
+**Lista de Temas (DDP 8129):**
+(i) “El Tribunal Superior del Distrito Judicial de San Gil condenó por primera vez a MANUEL ENRIQUE RÍOS GALVIS por la conducta punible de actos sexuales con menor de catorce años, de modo tal que corresponde a la Sala resolver la impugnación especial formulada por su defensor en contra de esa determinación, según lo dispuesto en el artículo 235, numeral 2.° de la Constitución Política.”. 
+(ii) “La controversia reside en establecer si en este evento es viable predicar la hipotética configuración del error de tipo, por el cual la primera instancia absolvió al procesado.”. 
+(iii) “Este último reseñó cuáles fueron los parámetros que guiaron el cálculo de la edad clínica de aproximadamente trece años, siendo factores relevantes para ello: i) el desarrollo de los caracteres sexuales como el pene y los testículos, acorde con la pubertad, y ii) la erupción dental, en línea con la aparición de piezas permanentes, cuyo reemplazo es paulatino. En concreto, en el experticio se indica que los genitales de D.J.D.D. eran de configuración masculina normal para la edad reportada, trece años, y que el último diente erupcionado era el segundo molar superior derecho (permanente). Ahora, si bien podría pregonarse que estas características no son fáciles de advertir a simple vista, aparece en el dictamen que el vello facial -el cual también constituye un aspecto indicativo del desarrollo- está «ausente».”. 
+(iv) “La defensa pretende que los parámetros en comento respaldados por criterios científicos, sean relegados en favor de la percepción que sobre la edad puedan adquirir las personas con ocasión de interacciones cotidianas, en un espacio social específico. Tal apreciación no puede ser acogida no solo por soportarse en la subjetividad, sino además por ser infundada al basarse en la supuesta incompatibilidad de referencias clínicas estandarizadas, con la realidad colombiana. Se dice que los baremos para la determinación de la edad clínica son cosecha exclusiva de los profesionales de la medicina, pero estos provienen de escalas de crecimiento y desarrollo validadas en nuestro territorio y adoptadas reglamentariamente, entre otros, por el Ministerio de la Salud,  el Instituto Colombiano de Bienestar Familiar  y el Instituto Nacional de Salud.”. 
+(v) “En este aspecto, el impugnante sugiere abordar la discusión relativa a la edad física y a la edad mental como nociones distintas, con miras a controvertir la configuración del artículo 209 del Código Penal, sin parar mientes en que para efectos de esta ilicitud opera la presunción de ausencia de capacidad para disponer de la sexualidad, tratándose de las personas menores de catorce años, la cual, es de pleno derecho. Así lo ha sentado la jurisprudencia:  …”.
+
+---
+
+# PROVIDENCIA DDP 8130
+
+**Número de Providencia (DDP 8130):** AP6771-2025
+**Radicación (DDP 8130):** 70466
+
+**Lista de Temas (DDP 8130):**
+(i) “El régimen de impedimentos constituye una garantía del debido proceso, en tanto busca preservar la independencia, imparcialidad, objetividad y lealtad procesal de los jueces dentro de las actuaciones penales.”. 
+(ii) “Las causales específicas que configuran impedimento o recusación se encuentran consagradas en el artículo 56 de la Ley 906 de 2004, como situaciones concretas y externas que obligan al funcionario judicial a apartarse del conocimiento del proceso, ya sea de manera voluntaria o a petición de los sujetos procesales, siempre que puedan afectar su imparcialidad.”. 
+(iii) “Así, cuando el servidor judicial advierta su incursión en alguna de las causales previstas en la ley que le impidan conocer del proceso asignado, debe manifestarlo oportunamente, de manera unilateral y bajo el postulado de la buena fe.”. 
+(iv) “La causal aquí invocada es la prevista en el numeral 15 del artículo 56 del estatuto procedimental de 2004, según la cual constituye causal de impedimento: “que el juez o fiscal haya sido asistido judicialmente, durante los últimos tres (3) años, por un abogado que sea parte en el proceso”.”. 
+(v) “… se ha señalado que dicha causal está compuesta por dos elementos, a saber: 
+(i) que el juez o el fiscal haya sido asistido por un abogado dentro de los últimos 3 años; y, 
+(ii) que ese mismo profesional del derecho, actualmente, actúe como parte en el proceso sometido al conocimiento del funcionario que se declara inhibido (CSJ, AP2061-2019, 29 may. 2019, rad. 55386).”. 
+(vi) “En tal orden de ideas, la Corte considera que no le asiste razón a los restantes integrantes de la Sala Penal del Tribunal Superior de Cali cuando supeditaron la configuración de la causal a que la asistencia judicial se hubiera iniciado con anterioridad al reparto de la actuación. Dicha interpretación introduce un presupuesto no contemplado en la norma y se aparta de la finalidad de la causal, que es la salvaguarda de la imparcialidad judicial.”. 
+(vii) “En efecto, la causal debe examinarse desde un punto de vista objetivo, de modo que el impedimento surge cuando concurren dos condiciones: 
+(i) que el funcionario judicial haya sido asistido jurídicamente dentro de los últimos 3 años y 
+(ii) que el mismo abogado sea parte en el proceso de su conocimiento.”. 
+(viii) “Verificados ambos presupuestos, resulta irrelevante, frente a la causal de impedimento, aunque no respecto de la ética del servicio público de administración de justicia, que el vínculo profesional entre el funcionario y el abogado se haya causado después de la asignación del asunto que le corresponde decidir. Lo determinante, para la realización de la causal, se repite, es la existencia de una relación de apoderamiento, que se halle dentro del marco temporal establecido, que pueda razonablemente generar dudas sobre la neutralidad del juez frente a las decisiones que ha de adoptar.”.
+
+---
+
+# PROVIDENCIA DDP 8131
+
+**Número de Providencia (DDP 8131):** AP7233-2025
+**Radicación (DDP 8131):** 66342
+
+**Lista de Temas (DDP 8131):**
+(i) “En primer lugar, como se vio, formuló dos errores por falso juicio de identidad por tergiversación frente a los testimonios de Oscar Iván Montero Castro y de Estela Reinoso Palacio.”. 
+(ii) “No obstante, el adecuado planteamiento de dicho error de apreciación u observación probatoria impone la carga de señalar, en concreto, cuál fue la prueba que se distorsionó o se cercenó. Así mismo, indicar lo que ella decía y demostrar que el entendimiento que obtuvo el juzgador del medio de conocimiento fue distinto.”. 
+(iii) “Se trata, entonces, de un ejercicio de confrontación que, a la manera de una doble columna, reproduce en la primera lo que textualmente dijo la prueba y, en la segunda, lo que se le hizo decir, para destacar luego la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido el error, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(iv) “Por lo tanto, quien denuncia un yerro de esa naturaleza, además de cotejar el tenor literal de la prueba concernida con la aprehensión de su contenido que se consignó en la sentencia, tiene el deber de enseñar su trascendencia.”. 
+(v) “Ello supone demostrar cómo la contemplación del exacto tenor de aquélla, en conjunto con los demás elementos de convicción que sustentan la sentencia, llevaría a una conclusión jurídica diversa y favorable a los intereses del impugnante.”. 
+(vi) “En otras palabras, el memorialista tiene la carga de: i) señalar, en concreto, cuál fue la prueba cuyo contenido se alteró materialmente, ya sea porque fue adicionado, cercenado o tergiversado lo que ella decía, de modo manifiesto y trascendente; y ii) demostrar que el entendimiento que obtuvo el juzgador del medio de conocimiento fue distinto.”. 
+(vii) “Del mismo modo, el demandante critica que el ad quem incurrió en un error por falso juicio de existencia al suponer la presencia de unas letras de cambio, “cuando, material y legalmente nunca ingresaron a la actuación”.”. 
+(viii) “No obstante, cuando se depreca un error de la tipología advertida, es cierto que se puede incurrir en él en alguna de sus dos modalidades, a saber: i) por omisión, que ocurre cuando el fallador ignora el contenido de una prueba legalmente aportada al proceso; o ii) por suposición, que se presenta cuando se hacen precisiones fácticas construidas con soporte en un medio de convicción que no forma parte del proceso.”. 
+(ix) “Ello, claro está, no puede ser de manera coincidente respecto de un mismo elemento de persuasión, en tanto una cosa no puede ser y no ser a la vez.”. 
+(x) “Sin embargo, para la demostración del error de hecho por falso juicio de existencia por suposición, es del resorte del casacionista acreditar que la autoridad judicial valoró una prueba o un supuesto fáctico que materialmente no aparece objetivo en el proceso y que, de no haber sido inventado, el sentido de la decisión habría variado radicalmente.”. 
+(xi) “Por otro lado, el libelista también denuncia que el ad quem incurrió en un error por falso raciocinio, pero esta modalidad de error de hecho tiene ocurrencia cuando el Tribunal observa o aprecia la prueba en su integridad, pero, al valorarla o escrutarla, desconoce los postulados de la sana crítica, es decir, una concreta ley científica, un principio lógico o una máxima de la experiencia.”. 
+(xii) “Por lo anterior, para acreditar la existencia del yerro, el censor, en primer lugar, debe señalar la prueba o la inferencia en la cual recayó el error. Posteriormente, debe identificar el principio lógico, la máxima de la experiencia o el postulado científico que, en concreto, el juzgador desconoció en el proceso de valoración probatoria, con indicación clara y precisa de las razones por las cuales su aplicación resultaba necesaria para la corrección de la conclusión cuestionada en el caso concreto.”. 
+(xiii) “Finalmente, las reglas de la experiencia no pueden invocarse de cualquier manera, pues la construcción de una máxima fundada en el ordinario devenir de los acontecimientos de la vida en sociedad requiere de una estructura general y abstracta, definida por la Corte en los siguientes términos: …”. 
+(ivx) “Por lo tanto, el punto de partida formal para analizar la incursión en un falso raciocinio es la formulación de una proposición con estructura de regla, apta para ser aplicada en términos generales y abstractos, con pretensión de universalidad, para así verificar si, al analizar el mérito de las pruebas, el razonamiento del juzgador deviene falso.”.
+
+---
+
+# PROVIDENCIA DDP 8132
+
+**Número de Providencia (DDP 8132):** AHP7085-2025
+**Radicación (DDP 8132):** 70765
+**Decisión (DDP 8132):** SMS DEL 24.10.2025
+
+**Lista de Temas (DDP 8132):**
+(i) “El artículo 30 de la Constitución Política consagra el derecho fundamental de hábeas corpus, mecanismo de protección que ha sido ampliamente reconocido en el ámbito internacional como un derecho intangible y de aplicación inmediata por la Declaración Universal de los Derechos Humanos (artículos 8º y 9º), el Pacto Internacional sobre Derechos Civiles y Políticos (artículo 9º), la Convención Americana sobre Derechos Humanos (artículo 7º), la Declaración Americana de Derechos y Deberes del Hombre (artículo XXV) y la Convención Americana de Derechos Humanos (artículo 27-2), cuyos instrumentos en virtud del artículo 93 de la Carta Política hacen parte del bloque de constitucionalidad.”. 
+(ii) “En este sentido, la acción pública de hábeas corpus participa de una doble connotación: como derecho fundamental y como acción constitucional, para reclamar la libertad personal de quien es privado de ella con violación de las garantías establecidas en la Constitución o en la ley, o cuando la restricción de la libertad se prolonga de manera ilegal, más allá de los términos otorgados a las autoridades para realizar las actuaciones que correspondan dentro del respectivo proceso judicial.”. 
+(iii) “De manera que, cuando existe un proceso judicial en trámite, el hábeas corpus no puede utilizarse con ninguna de las siguientes finalidades: i) sustituir los procedimientos judiciales comunes dentro de los cuales deben formularse las peticiones de libertad; ii) reemplazar los recursos ordinarios de reposición y apelación a través de los cuales deben impugnarse las decisiones que interfieren el derecho a la libertad personal; iii) desplazar al funcionario judicial competente; y iv) obtener una opinión diversa –a manera de instancia adicional- de la autoridad llamada a resolver lo atinente a la libertad de las personas.”. 
+(iv) “Igualmente, se recuerda que en los casos en que la privación de la libertad está respaldada en providencia judicial, las solicitudes de libertad deben formularse dentro del cauce ordinario respectivo y haciendo uso de los recursos legales existentes, admitiéndose que sólo en eventos extraordinarios se justifica la procedibilidad de la acción de hábeas corpus, cuando la actuación judicial constituya una auténtica vía de hecho y contra la misma no proceda algún recurso.”. 
+(v) “Por tanto, a partir del momento en que se impone medida de aseguramiento, todas las peticiones que tengan relación con la libertad del procesado, se deben elevar al interior del proceso penal, no a través del mecanismo constitucional de hábeas corpus, a menos que, valga reiterarlo, se esté frente a una vía de hecho.”. 
+(vi) “… el actor pretende reemplazar las instancias del proceso ordinario a través del hábeas corpus. Enfila su impugnación a destacar que no hay una decisión de instancia que fundamente la medida de aseguramiento. Por ello sostiene que la medida restrictiva de la libertad no se encuentra motivada.”. 
+(vii) “Por lo tanto, se advierte que el accionante pretende imponer su interpretación, pero sin demostrar la existencia de un defecto que conduzca a concluir que las decisiones adoptadas por esas autoridades son una vía de hecho y, por consiguiente, que eventualmente pueda predicarse que ha sido privado injustamente de su libertad. Como ya se explicó, la acción constitucional de hábeas corpus no puede ser utilizada como una tercera instancia, ni como una excusa para imponer un criterio diverso al del juez competente.”. 
+(viii) “Con mayor razón resulta improcedente utilizarla cuando lo que se pretende es sustituir o esquivar una discusión propia del trámite ordinario y en supresión de las instancias legalmente previstas, tal y como el accionante pretende en este caso, al punto que intenta argüir la ausencia de la inferencia razonable de autoría que llevó a privarlo intramuros, sin demostrar que haya sido ilegalmente afectado ese derecho. En consecuencia, no es acertada su postura de que se encuentra ilegalmente detenido, pues aún no está en firme la decisión de segunda instancia.”.
+
+---
+
+# PROVIDENCIA DDP 8133
+
+**Número de Providencia (DDP 8133):** providencias. CUI 2021 50183 01
+**Radicación (DDP 8133):** No especificado
+
+**Lista de Temas (DDP 8133):**
+(i) “De la supuesta extinción de la acción penal por prescripción” para el delito de violencia intrafamiliar. 
+(ii) “Nulidad por violación al derecho fundamental de defensa técnica”. 
+(iii) “La violación al derecho a la defensa real o material, se configura por el absoluto estado de abandono del defensor, esto es, una situación de indefensión generada por la inactividad categórica del abogado, por lo que no basta, de cara a la prosperidad del cargo, con la simple convicción de que la asistencia del profesional del derecho pudo haber sido mejor, toda vez que se tiene decantado que la estrategia defensiva varía según el estilo de cada profesional, en el entendido de que no existen fórmulas uniformes o estereotipos de acción. Es decir, la simple disparidad de criterios sobre un punto no tiene la fuerza de configurar una violación al estudiado derecho.”. 
+(iv) “En materia probatoria, se ha establecido que invocar la violación del derecho a la defensa en casación requiere que el demandante enuncie las pruebas que dejaron de practicarse por omisión del abogado defensor, con indicación de su pertinencia, conducencia y utilidad, así como la exposición de una debida argumentación tendiente a evidenciar la posibilidad de haber sacado adelante una defensa más favorable al procesado”.  
+(v) “Violencia intrafamiliar vs lesiones personales dolosas, respecto de parejas que no conviven bajo un mismo techo, al momento de los hechos. Visión jurisprudencial”. 
+(vi) “Violencia intrafamiliar sobre una mujer, vista en perspectiva de género”. 
+(vii) Motivación de las
+
+---
+
+# PROVIDENCIA DDP 8134
+
+**Número de Providencia (DDP 8134):** No especificado
+**Radicación (DDP 8134):** CUI 05 001 60 00206 2020 14690-01
+
+**Lista de Temas (DDP 8134):**
+(i) El homicidio. 
+(ii) El porte ilegal de armas. 
+(iii) El hurto. 
+(iv) “Se debe tener en cuenta que en la actual sistemática acusatoria adoptada mediante la Ley 906 de 2004, las inferencias lógicas fundadas en hechos indicadores efectivamente probados, pueden llevar a una conclusión contundente al punto que se pueda asegurar que la persona procesada cometió los delitos que se le enrostran, esto es que su accionar final estuvo dirigido a la consumación de los delitos de la acusación”. 
+(v)  Los indicios y su “eficacia probatoria”. 
+(vi) “Según el artículo el artículo 35 de la Ley 1801 de 2016, existen varios comportamientos que afectan las relaciones entre las personas y las autoridades y su realización da lugar las medidas correctivas pertinentes. En el numeral 3 de este canon se establece que una de ellas es: “3. Impedir, dificultar, obstaculizar o resistirse a procedimiento de identificación o individualización, por parte de las autoridades de Policía.” La persona que incurra en cualquiera de los comportamientos señalados puede ser objeto de multa, impuesta por la Policía.”. 
+(vii) “A criterio de esta Magistratura el reconocimiento que la víctima Wilson Velásquez hizo del detenido que era transportado en un carro de la policía fue irregular, toda vez que el mismo debió surtirse por el reconocimiento en fila de personas, y no como un simple señalamiento, máxime cuando habían transcurrido cerca de dos horas desde el momento del hurto. El reconocimiento que debió agotarse fue el estipulado en el artículo 253 del C.P.P., toda vez que el mero hecho de que García Lopera estuviera aprehendido y le fuera exhibido a lo lejos a Velásquez sembraba en él, el prejuicio que era esa la persona que momentos antes lo había privado de su patrimonio y era menester agotar esa identificación con imparcialidad.”. 
+(viii) “El reconocimiento de personas”. 
+(ix) La duda probatoria.
+
+---
+
+# PROVIDENCIA DDP 8135
+
+**Número de Providencia (DDP 8135):** No especificado
+**Radicación (DDP 8135):** CUI 11001-60-00-098-2014-00175-01 (
+**Decisión (DDP 8135):** AC-531).
+
+**Lista de Temas (DDP 8135):**
+(i) Momento procesal para alegar nulidades. 
+(ii) “Sobre la nulidad y sus cargas argumentativas”. 
+(iii) “Sobre la ausencia de defensa técnica”. 
+(iv) “En este orden, resulta más complejo para un defensor plantear una concreta hipótesis alternativa que habría preferido el acusado sin que pudiera conocer su versión. Por supuesto, eso dependerá de cada caso, pero, para proponer una nulidad como la aquí planteada, no bastaba con criticar ese preciso aspecto. Era indispensable dar cuenta de las razones por las que el abogado que antecedió al recurrente, en sus condiciones y con el conocimiento que para ese momento tenía, le resultaba exigible asumir cierta actitud frente a las solicitudes probatorias.”.
+
+---
+
+# PROVIDENCIA DDP 8136
+
+**Número de Providencia (DDP 8136):** No especificado
+**Radicación (DDP 8136):** CUI 76-001-6000-199-2017-01458-01 (
+**Decisión (DDP 8136):** AC-482).
+
+**Lista de Temas (DDP 8136):**
+(i) “Sobre la legitimidad del apelante para recurrir.”. 
+(ii) “De esta forma, la Corte Suprema de Justicia, en decisión CSJ AP5651 7 dic. 2022, rad. 62678, precisó que “quienes por carecer de la postulación de la preclusión quedan inhabilitados para alzarse respecto de una decisión contraria a sus intereses”, lo que significa que la defensa no podría recurrir la decisión que decide sobre la preclusión elevada por la Fiscalía antes de la etapa de juzgamiento o respecto de la determinación sobre las causales diferentes a las previstas en los numerales 1 y 3 ya citados, luego de que se presente el escrito de acusación.”. 
+(iii) “Esto tiene una razón de ser. Si la defensa no puede promover, por sí misma, una solicitud de preclusión, permitirle interponer los recursos en contra de la decisión, significaría permitir la introducción subrepticia de una postulación propia, no legitimada por la ley.”. 
+(iv) “Es decir, la radicación del escrito de acusación no constituye una atribución completa de los delitos objeto de cuestionamiento. Para ese momento, la Fiscalía puede retirar el escrito de acusación o, inclusive, modular el sentido de la audiencia, por ejemplo, a la realización de un acto de negociación, o la solicitud de preclusión, sin consideración a la causal.”. 
+(v) “En este orden de ideas, la radicación del escrito de acusación es una actividad exclusiva de la Fiscalía, no así su formulación, pues requiere del aval del juez de conocimiento. La Corte Suprema de Justicia, en decisión CSJ AP4099, 29 jun. 2016, rad. 48343, que reiteró la providencia CSJ AP 21 mar. 2012, rad. 38256, precisó que:  …”. 
+(vi) “Esto quiere decir que la expresión “durante el juzgamiento” prevista en el parágrafo del artículo 332 del Código de Procedimiento Penal se refiere al momento en que es formulada la acusación (radicación del escrito y formalización oral), por lo que la defensa, todavía, no estaba facultada para interponer una solicitud propia y, según las reglas antes mencionadas, para recurrir.”. 
+(vii) “Sobre la prescripción de la acción penal y la calidad de servidor público.”.
+
+---
+
+# PROVIDENCIA DDP 8137
+
+**Número de Providencia (DDP 8137):** No especificado
+**Radicación (DDP 8137):** CUI 76520-60-00-181-2012-02747-01 (
+**Decisión (DDP 8137):** AC-553-25). SMS DEL 27.10.2025
+
+**Lista de Temas (DDP 8137):**
+(i) “la viabilidad de aplicar por favorabilidad el artículo 19 de la Ley 2466 de 2025 a actividades de trabajo penitenciario previas a su vigencia.” 
+(ii) “… requisitos concurrentes para que opere el principio de favorabilidad, así: …”. 
+(iii)  La Corte Constitucional y algo de lo escrito respecto al principio de favorabilidad. 
+(iv) “Respecto a la redención de la sanción penal, esta es una institución jurídica “que se constituye en la única fuente de materialización de la resocialización del penado, que accede al descuento de días de prisión física por realizar determinadas actividades”. La redención por trabajo se encuentra regulada en diferentes disposiciones que, bajo la lógica expuesta, tienen el carácter de normas sustanciales; a continuación, se mencionan algunas de estas que son relevantes para el caso concreto.”. 
+(v) “En este orden de ideas, se revocará la decisión del juzgado de primer grado, en el sentido de aplicar, por favorabilidad, la Ley 2466 de 2025 y, en este sentido, declarar que JAIRO ARISTIZÁBAL CORRAL ha ejecutado 4.754 días de prisión.”.
+
+---
+
+# PROVIDENCIA DDP 8138
+
+**Número de Providencia (DDP 8138):** SP1925-2025
+**Radicación (DDP 8138):** 59278
+
+**Lista de Temas (DDP 8138):**
+(i) La estafa. 
+(ii) “En ese orden, el provecho patrimonial obtenido por el sujeto actor y el perjuicio correlativo sufrido por el sujeto pasivo - la víctima, debe ser consecuencia del error en que ésta es inducida o mantenida; el error, a su vez, debe ser consecuencia de los artificios o engaños desplegados por aquél.”. 
+(iii) “Adicionalmente, como bien citó el Tribunal, la Corte tiene definido que la conducta de estafa puede tener ocurrencia en la celebración de contratos de naturaleza civil cuando la mentira o el silencio de los contratantes recae sobre elementos fundamentales del convenio.”. 
+(iv) “También, que en el marco de “negocios jurídicos, la actuación del sujeto pasivo consiste en intervenir en el acuerdo de voluntades, en suscribir luego el respectivo contrato y, finalmente, en desprenderse de su patrimonio económico, producto de la inducción en error de que es objeto en virtud de las maniobras engañosas del agente”.”. 
+(v) “En ese contexto, la Corte reconsideró el criterio fijado con anterioridad en punto de la posibilidad de aplicar en el delito de estafa la teoría de la acción a propio riesgo, bajo la comprensión de que esta reprocha”.
+
+---
+
+# PROVIDENCIA DDP 8139
+
+**Número de Providencia (DDP 8139):** No especificado
+**Radicación (DDP 8139):** CUI 110016000102202000276-09
+**Decisión (DDP 8139):** CON SALVAMENTO PARCIAL DE VOTO.
+
+**Lista de Temas (DDP 8139):**
+Sentencia de Segunda Instancia en el proceso adelantado contra el expresidente ÁLVARO URIBE VÉLEZ.
+
+---
+
+# PROVIDENCIA DDP 8140
+
+**Número de Providencia (DDP 8140):** No especificado
+**Radicación (DDP 8140):** CUI 05 001 31 07003 2013 02365 00
+**Decisión (DDP 8140):** SENTENCIA DE PRIMER GRADO.
+
+**Lista de Temas (DDP 8140):**
+Proceso en contra de JOSÉ MIGUEL NARVÁEZ MARTÍNEZ por la presunta comisión del delito de secuestro extorsivo agravado, siendo víctima PIEDAD ESNEDA CÓRDOBA RUIZ.
+
+---
+
+# PROVIDENCIA DDP 8141
+
+**Número de Providencia (DDP 8141):** AP7222-2025
+**Radicación (DDP 8141):** 62609
+
+**Lista de Temas (DDP 8141):**
+(i) La petición de nulidad en sede casacional. 
+(ii)  “Retómese que en este cargo el censor propende por la invalidación de la actuación, pues, en su criterio, los falladores no emitieron sentencia en consonancia con el delito objeto de llamamiento a juicio, sino que, a partir de la variación jurídica de la conducta, que no era procedente, lesionaron el principio de congruencia.”. 
+(iii) “Para empezar, la Sala ha señalado que el principio de congruencia se constituye en una garantía del debido proceso que implica asegurarle al procesado una efectiva defensa, de modo que solo podrá ser condenado por los hechos y los delitos contenidos en la acusación. Se evita, así, sorprenderlo con imputaciones respecto de las cuales no se defendió y no ejerció su derecho de contradicción.”. 
+(iv) “Ahora bien, la jurisprudencia de la Sala  también ha registrado que el aludido postulado puede ser infringido por vía de acción o de omisión, esto es, cuando el funcionario judicial condena por: …”. 
+(v) “Sin embargo, esta Corporación , de manera pacífica y reiterada, ha señalado que dicho principio no es absoluto y que, por tanto, el juzgador puede alterar la delimitación típica realizada por el ente de persecución penal en la acusación, sin quebrantar las garantías fundamentales, siempre que: …”.
+
+---
+
+# PROVIDENCIA DDP 8142
+
+**Número de Providencia (DDP 8142):** AP6864-2025
+**Radicación (DDP 8142):** 70354
+**Decisión (DDP 8142):** SMS DEL 28.10.2025
+
+**Lista de Temas (DDP 8142):**
+(i) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para, en caso de duda, precisar, de manera perentoria y definitiva, cuál de los distintos jueces o magistrados es el llamado a conocer de la fase procesal del juzgamiento, o para ocuparse de un trámite determinado.”. 
+(ii) “Previo a abordar el estudio de fondo, conviene recordar que la Sala de Casación Penal —en auto CSJ AP2863, 17 jun. 2019, Rad. 55616 — precisó el trámite aplicable dentro del incidente de impugnación de competencia. Allí se indicó que, cuando alguna de las partes o intervinientes controvierte la competencia del juez —ya sea en sede de conocimiento o de control de garantías—, se pueden presentar dos escenarios: …”. 
+(iii) La competencia territorial. 
+(iv) “Por su parte, cuando concurren conductas delictivas conexas, como ocurre en el presente asunto, la competencia se define con arreglo a los presupuestos previstos en el artículo 52 del mismo estatuto procesal.”. 
+(v) La competencia funcional. 
+(vi) “La conducta punible más grave”. 
+(vii) “Sobre la consumación del delito de tráfico, fabricación o porte de estupefacientes, la jurisprudencia de la Sala ha decantado que la conducta punible es de carácter alternativo, comoquiera que contempla varios verbos rectores, a saber: i) introducir al país, ii) transportar, iii) llevar consigo, iv) almacenar, v) conservar, vi) elaborar, vii) vender, viii) ofrecer, ix) adquirir y x) financiar o suministrar droga que produzca dependencia. Lo anterior conduce a que su ejecución comprende «todos los lugares en donde se produce la actuación típica».”.
+
+---
+
+# PROVIDENCIA DDP 8143
+
+**Número de Providencia (DDP 8143):** AP6838-2025
+**Radicación (DDP 8143):** 69883
+
+**Lista de Temas (DDP 8143):**
+(i) “Exigencias para el decreto probatorio”. 
+(ii) “En su disertación sostuvo la defensa que le resultaba necesario abordar el estudio de convergencias y divergencias derivadas del análisis de los medios probatorios ofrecidos por la Fiscalía en los que obran diversas manifestaciones de los hechos por ACAG. Con ello, pretende incorporar a juicio «los insumos necesarios para que se llegue a la verdad sobre lo acaecido, ejerciendo el derecho que tiene la defensa a que científicamente se sustente la diferencia entre una versión estructurada y objetiva y otra que no lo es».”. 
+(iii) “Resaltó que el estudio ofrecido de convergencias y divergencias es sobre la psicología del testimonio, no para descalificar a la víctima, ni sus dichos, sino que con este busca que, de forma objetiva, se pueda plasmar con probabilidad suficiente que sus percepciones se vieron afectadas por multiplicidad de factores.”. 
+(iv) “Además, como también lo refirió la primera instancia, es al juez al que le corresponde llevar a cabo un ejercicio de valoración probatoria y, con base en los postulados de la sana critica, determinar el grado de credibilidad que le otorga a cada medio probatorio. A partir de allí, determinar si la teoría del caso de la Fiscalía se encuentra acreditada o si por el contrario existe duda.”. 
+(v) “En esa medida, que se pretenda con un peritaje relevar de sus funciones al juez, es a todas luces inconducente. Por lo que no se advierte yerro en los condicionamientos impuestos por el a quo para la práctica de la prueba pericial solicitada por la defensa.”. 
+(vi) “Recuérdese que el recurso de apelación no está edificado para mejorar o modificar la sustentación que se hace de una solicitud, sino que, en su ejercicio, corresponde al recurrente mostrar por qué la decisión que censura es equivocada. Tal proceder, sin embargo, no fue desplegado por la defensa.”.
+
+---
+
+# PROVIDENCIA DDP 8144
+
+**Número de Providencia (DDP 8144):** AP6879-2025
+**Radicación (DDP 8144):** 61305
+
+**Lista de Temas (DDP 8144):**
+(i) La acción de revisión. 
+(ii) “La Sala insiste en que por mandato legal se debe adjuntar certificación expresa y directa en la que se haga una declaración en este sentido . Es el elemento que permite certidumbre sobre la firmeza material de la decisión que se reclama examinar para remover sus efectos si se advierte su injusticia. No es posible acudir en revisión bajo la suposición de la ejecutoria del fallo, de manera que la constancia no es un mero formalismo, sino un requisito esencial, pues la acción procede únicamente contra decisiones en firme.”. 
+(iii) “La Sala tiene conocimiento de la decisión CSJ AP4436-2015 a través de la cual inadmitió la demanda de casación que se interpuso contra la sentencia objeto de revisión. Pero tal situación no satisface el requerimiento señalado en la ley como requisito para el trámite de la acción. Como se explicó, se exige el aporte de la constancia de ejecutoria que contenga una declaración expresa y directa al respecto, mas no que, en gracia de discusión, con piezas procesales como las referidas, se invite a inferirla. Sobre ello, la Corte ha expresado lo siguiente …”. 
+(iv) La prueba nueva. 
+(v) “Cuando la acción de revisión se fundamenta en la causal referida, no es posible la realización de un nuevo examen a la actuación procesal o a los supuestos fácticos, jurídicos y probatorios que sustentaron la decisión demandada. El cuestionamiento debe centrarse y sustentarse con elementos de juicio novedosos; es decir, que los funcionarios judiciales no los conocieron en las instancias y menos fueron argüidos o debatidos por los sujetos procesales durante el proceso.”. 
+(vi) “La causal prevista en el numeral 6º autoriza la remoción de la cosa juzgada cuando se demuestre que el fallo objeto de pedimento de revisión se basó, en todo o en parte, en prueba falsa. Sin embargo, en el presente asunto no se acreditó la existencia de una decisión judicial en firme  que haya declarado la falsedad de los testimonios de la víctima menor de edad y de los testigos. Estos fueron los medios de conocimiento fundantes de la decisión de condena.”.
+
+---
+
+# PROVIDENCIA DDP 8145
+
+**Número de Providencia (DDP 8145):** AP6837-2025
+**Radicación (DDP 8145):** 48133
+
+**Lista de Temas (DDP 8145):**
+(i) “La Sala resuelve el recurso de reposición interpuesto por el defensor de RDSM contra el Auto AP5905-2025, con el que la Sala de Casación Penal no accedió a la solicitud de reserva de datos presentada por este último.”. 
+(ii) “La Sala ha señalado que el recurso de reposición, como manifestación del derecho de acceso a la administración de justicia, tiene el propósito de que la autoridad judicial que emitió la decisión objeto de reproche reconsidere su postura y la revoque o reforme, cuando ha incurrido en algún yerro trascendente. Lo anterior impone al recurrente expresar, de forma clara, precisa y fundada, las razones de hecho o de derecho que hagan evidente que el funcionario jurisdiccional incurrió en un error que debe ser corregido. Este mecanismo de contradicción no está instituido para remediar las falencias en las que hubiera incurrido el solicitante …”. 
+(iii) “En el asunto objeto de pronunciamiento, el abogado de RDSM incumplió esos parámetros, por cuanto no solo no rebatió los argumentos expuestos por la Sala en la decisión recurrida, sino que manifestó estar de acuerdo con los mismos y aportó documentos para asumir la carga procesal incumplida por su representado.”. 
+(iv) “Sin embargo, dado que se trata de un trámite administrativo, la Sala considera que es viable ordenar en esta misma providencia la reserva de datos pretendida por RDSM. Esto, de conformidad con el principio de prevalencia del derecho sustancial, previsto en el artículo 228 de la Constitución Política, y los principios de celeridad y eficiencia establecidos en los artículos 4 y 7 de la Ley 270 de 1996. También, para optimizar los recursos de la Rama Judicial, garantizar el derecho fundamental de acceso a la administración de justicia y no incurrir en un defecto procedimental por exceso ritual manifiesto.”. 
+(v) “A pesar de que su abogado debió presentar una nueva solicitud y no interponer el recurso de reposición, la Sala advierte que materialmente se encuentra acreditado que el Juzgado Dieciséis de Ejecución de Penas y Medidas de Seguridad de Bogotá, a través de Auto de 24 de enero de 2022, declaró la extinción -por prescripción- de las penas de prisión y de inhabilitación para el ejercicio de derechos y funciones públicas impuestas en contra de RDSM y la otra persona condenada en el marco del proceso CUI 11001600001320140140601.”.
+
+---
+
+# PROVIDENCIA DDP 8146
+
+**Número de Providencia (DDP 8146):** AP6788-2025
+**Radicación (DDP 8146):** 62442
+
+**Lista de Temas (DDP 8146):**
+(i) “De entrada, se advierte que la abogada incumplió la obligación de darle a conocer a la Corte los antecedentes de la actuación y quiénes fueron las partes e intervinientes en este asunto. Igualmente, omitió hacer referencia a los hechos objeto de acusación, menos, dio a conocer aquellos que consideraron probados las instancias y el razonamiento que se tuvo en cuenta para la condena. Ello es suficiente para rechazar la demanda.”. 
+(ii) “A lo anterior se suma que el único cargo propuesto por la demandante lo dirige por la senda del numeral 2º del artículo 181 del estatuto penal adjetivo, encontrándose obligada a puntualizar si lo denunciado es la vulneración del debido proceso o de las garantías fundamentales, disertación que debe descansar, como lo tiene establecido esta Corte, en la realidad de lo que exhibe el proceso, precisamente, porque no cualquier anomalía acarrea la necesidad de anular la actuación.”. 
+(iii) “En esa tarea, quien así lo propone, tiene la carga de demostrar que se trata de una irregularidad sustancial capaz de derrumbar las bases propias del juicio o quebrantar algún derecho fundamental, lo que le impone ajustar el discurso a parámetros lógicos que permitan comprender la razón del disenso, el yerro alegado y la manera como el mismo quebranta la estructura del proceso o afecta las garantías.”. 
+(iv) “Para alcanzar los mencionados cometidos es imperativo observar el cumplimiento de los postulados que orientan las nulidades, tales como taxatividad , así como, convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad, los que, pese a no estar expresamente previstos en el Código de Procedimiento Penal de 2004, siguen guiando el debate (CSJ SP2364-2018, rad. 45098).”. 
+(v) “Entonces, si lo pretendido era demostrar un falso raciocinio en el proceso de valoración de los medios de prueba, ha debido acudir a la causal tercera del artículo 181 de la Ley 906 de 2004. Bajo esa óptica, tenía la carga de señalar qué postulado de la sana crítica fue vulnerado, es decir, acreditar si los jueces al momento de valorar las pruebas desconocieron una concreta ley científica, un principio de la lógica o una máxima de la experiencia.”. 
+(vi) “Sobre este tipo de error, la Sala tiene dicho que quien pretenda acreditar su configuración ha de señalar la prueba o inferencia en la cual recayó el error. Posteriormente, debe identificar el principio lógico, la máxima de experiencia o el postulado científico que el juzgador desconoció en el proceso de valoración probatoria, con indicación clara y precisa de las razones por las cuales su aplicación resultaba necesaria para la corrección del fallo.”. 
+(vii) “En igual yerro incurre cuando incorpora en la misma causal segunda, sin sustento legal alguno, la falta de aplicación de los artículos 3, 5, 7, 26 y 381 de la Ley 906 de 2004. Así mismo el 11, 2 y 8 de la Convención Americana de Derechos Humanos, entre otras normas de tratados internacionales ratificados por Colombia, que hacen parte del bloque de constitucionalidad.”. 
+(viii) “En tal caso la propuesta se ha debido encasillar por la vía de la violación directa de la ley sustancial, camino que debió construir la jurista por la ruta de la causal 1ª del artículo 181 de la Ley 906de 2004. En su desarrollo, estaba obligada a señalar si, los yerros demandados ocurrieron por falta de aplicación o exclusión evidente, aplicación indebida o interpretación errónea, no obstante, ningún debate hizo al respecto, simplemente, de nuevo, se limitó a mencionar las normas presuntamente vulneradas, sin realizar alguna propuesta, en el plano estrictamente jurídico, que muestre el yerro contenido en los fallos.”.
+
+---
+
+# PROVIDENCIA DDP 8147
+
+**Número de Providencia (DDP 8147):** AP6882-2025
+**Radicación (DDP 8147):** 67956
+**Decisión (DDP 8147):** SMS DEL 29.10.2025
+
+**Lista de Temas (DDP 8147):**
+(i) La víctima no abogada y la sustentación del recurso de apelación. 
+(ii) “De la preclusión en la Ley 906 de 2004”. 
+(iii) “En relación con la causal prevista en el numeral cuarto del artículo 332 de la Ley 906 de 2004 –atipicidad del hecho investigado–, por la cual se accedió a la preclusión en este evento, la Sala reiteradamente ha explicado que (Cfr. CSJ AP3976–2024, 17 jul. 2024, rad. 64139): …”. 
+(iv) El prevaricato por acción. 
+(v) El prevaricato omisivo. 
+(vi) “Del abuso de autoridad por acto arbitrario e injusto”.
+
+---
+
+# PROVIDENCIA DDP 8148
+
+**Número de Providencia (DDP 8148):** AP6866-2025
+**Radicación (DDP 8148):** 68510
+
+**Lista de Temas (DDP 8148):**
+(i) “La Corte ha explicado que, dado que la Ley 906 de 2004, no contempla la posibilidad de aclaración y adición de los autos, perfectamente, sin que ello amenace la estructura del procedimiento penal en la materia, se puede acudir a lo que respecto del tema consagra el Código General del Proceso.”. 
+(ii) “El artículo 1° del estatuto en mención –Ley 1564 de 2012–, de forma complementaria dispone que se extiende «[a] todos los asuntos de cualquier jurisdicción o especialidad, (…) en cuanto no estén regulados expresamente en otras leyes»; norma aplicable al procedimiento penal establecido en la Ley 906 de 2004, en virtud del principio de integración previsto en su artículo 25.”. 
+(iii) “Es así, que el artículo 285 del Código General del Proceso, dispone que la aclaración de la sentencia o de los autos procede, de oficio o a solicitud de parte, cuando contenga conceptos o frases que ofrezcan verdadero motivo de duda, siempre que estén contenidas en la parte resolutiva de la sentencia o influyan en ella.”. 
+(iv) “Por su parte, el artículo 287 ibidem, prevé que la adición procede cuando la sentencia omita resolver sobre cualquiera de los extremos de la litis o sobre cualquier otro punto que de conformidad con la ley debía ser objeto de pronunciamiento.”. 
+(v) “En ese contexto, la aclaración de la sentencia se ocupa del esclarecimiento de conceptos o frases contenidos en la motivación que por su indeterminación o falta de claridad impiden su entendimiento y comprensión cimentando, como claramente lo señala el artículo 285 del CGP, un verdadero motivo de duda que irrogue efectos en la parte resolutiva de la decisión.”. 
+(vi) “Significa lo anterior, que la procedencia excepcional de aclaración de una providencia está condicionada a que exista «una razón objetiva de duda que nuble el entendimiento de la misma, siempre que tal perplejidad repercuta en la parte resolutiva del fallo, o en la parte motiva cuando de manera directa esta última influya sobre aquélla, de no cumplir este requisito, se mantiene el principio de intangibilidad de las sentencias»”. 
+(vii) “Por tanto, contradice el espíritu del legislador que la parte que solicita la aclaración de la providencia aproveche la oportunidad para cuestionar la decisión judicial, insistir en temas probatorios ya resueltos, perseguir la emisión de consideraciones adicionales a las contenidas en la decisión original, o procurar un nuevo abordaje de la discusión probatoria en orden a conseguir una decisión contraria y favorable a sus intereses.”. 
+(viii) “Permitir que la aclaración de la decisión judicial sea la vía para discutir su motivación o reabrir el análisis probatorio, no es menos que relativizar la seguridad jurídica y contrariar la prohibición legal que impone al juzgador abstenerse de hacer pronunciamientos nuevos o emitir conceptos una vez proferida la sentencia.”. 
+(ix) “La adición de la sentencia dispuesta por el artículo 287 del CGP corre una suerte similar, pues es claro que ese mecanismo no es una puerta para que la parte persiga un pronunciamiento adicional y extemporáneo, por fuera de la controversia tejida en el ejercicio de impugnación.”.
+
+---
+
+# PROVIDENCIA DDP 8149
+
+**Número de Providencia (DDP 8149):** AP6790-2025
+**Radicación (DDP 8149):** 69150
+
+**Lista de Temas (DDP 8149):**
+(i) La acción de revisión. 
+(ii) “De acuerdo con el artículo 193 de la Ley 906 de 2004, están legitimados para presentar la acción de revisión los representantes de la Fiscalía y del Ministerio Público, al igual que el defensor y los demás intervinientes, «siempre que ostenten interés jurídico y hayan sido legalmente reconocidos dentro de la actuación materia de revisión. Estos últimos podrán hacerlo directamente si fueren abogados en ejercicio. En los demás casos, se requerirá poder especial para el efecto.».”. 
+(iii) “Cuando se busca derrumbar la cosa juzgada del asunto fallado, la representación judicial por parte de un profesional del derecho reclama siempre de poder especial y legitimación, por la potísima razón de que es el condenado quien directamente posee interés para el efecto y la voluntad encaminada a dicho fin, sin que sea posible suplirlas. Exigencia que se obliga insoslayable, pues solo de esa manera se entenderá que representa el interés del condenado y no el suyo.”. 
+(iv) Los requisitos “formales” en la acción de revisión. 
+(v) “En esas condiciones, si el ordenamiento procesal que rigió el asunto -Ley 906 de 2004- establece taxativamente las causales de procedencia de la acción de revisión contra sentencias ejecutoriadas, resulta inviable que el accionante haga abstracción de ellas y, en cambio, acuda a otras disposiciones legales o constitucionales para derruir la firmeza de la sentencia condenatoria.”. 
+(vi) “Ahora, lo que resulta notorio es que la defensa, bajo el ropaje de causales de revisión inexistentes -debido proceso, error judicial y principio de non bis in idem-, pretende cuestionar la valoración probatoria efectuada por los falladores de instancia con miras a lograr la absolución de su defendido o, eventualmente, la variación de la calificación jurídica atribuida como así lo señala en la demanda, sin parar mientes que tal debate está circunscrito para ser adelantado al interior del proceso penal y no en sede de este mecanismo excepcional.”.
+
+---
+
+# PROVIDENCIA DDP 8150
+
+**Número de Providencia (DDP 8150):** AP6992-2025
+**Radicación (DDP 8150):** 61594
+
+**Lista de Temas (DDP 8150):**
+(i) “La demanda de revisión en forma debe cumplir con las formalidades del artículo 194 de la Ley 906 de 2004 y que un sujeto procesal legitimado la promueva. Así, quien la presenta debe acompañarla de copia de las providencias de única, primera y segunda instancia, según corresponda, junto con las respectivas constancias de ejecutoria que acrediten la firmeza de tales decisiones.”. 
+(ii) “Esta exigencia no constituye un simple formalismo procesal. Por el contrario, responde a la necesidad de que la Sala tenga certidumbre sobre la firmeza de la decisión cuya rescisión se pretende. Es así, porque la revisión solo procede respecto de sentencias ejecutoriadas.”. 
+(iii) “En el presente asunto, el demandante allegó copia de la sentencia condenatoria del 10 de septiembre de 2020, pero omitió adjuntar la constancia de ejecutoria, con lo cual se desconoce si el fallo adquirió firmeza material. Esta falencia configura un incumplimiento insubsanable de los requisitos formales, que impide la admisión de la demanda.”. 
+(iv) “La Sala ha reiterado que la constancia de ejecutoria constituye un requisito esencial para comprobar la firmeza de la sentencia cuya revisión se solicita, dado que esta vía solo procede una vez se han agotado todos los medios ordinarios de impugnación. La omisión de dicho requisito ha motivado en precedentes similares la inadmisión de la acción extraordinaria, porque sin él no es posible verificar el presupuesto de cosa juzgada material.”. 
+(v) “En línea con lo anterior, la Sala de Casación Penal ha precisado que la querella es un presupuesto de procedibilidad que se entiende satisfecho con la manifestación de voluntad del directamente ofendido por la conducta punible, sin que se exijan fórmulas sacramentales, siempre que se exteriorice el interés de activar la acción penal (CSJ SP, rad. 30592, 5 oct. 2011).”. 
+(vi) “Conforme al artículo 135 de la Ley 906 de 2004, el juez puede reconocer la condición de víctima en cualquier etapa del proceso cuando la persona acredite un daño derivado de la conducta punible. Esa facultad no altera el núcleo fáctico de la imputación ni modifica los cargos formulados, por lo que no vulnera en sí misma los principios de congruencia o legalidad. En este caso, el reconocimiento fue objeto de debate en el juicio y la defensa dispuso de medios para oponerse o recurrir, de modo que no se evidencia una afectación real y trascendente del derecho de defensa. Entonces, una eventual irregularidad que pudo alegarse oportunamente no revive por la vía extraordinaria de la revisión.”. 
+(vii) “En cuanto al reconocimiento de víctimas adicionales, el artículo 135 de la Ley 906 de 2004 autoriza al juez para admitir su intervención en cualquier etapa, siempre que acrediten un daño derivado de la conducta punible. En el caso concreto, esa decisión fue debatida en el juicio y la defensa contó con mecanismos de oposición y recurso. Por ende, no se advierte una afectación trascendente del derecho de defensa. En todo caso, la jurisprudencia ha resaltado que la acción de revisión no es una tercera instancia ni un recurso adicional para replantear controversias ya definidas, pues su carácter es extraordinario y restrictivo (CSJ SP, rad. 52056, 22 nov. 2017).”.
+
+---
+
+# PROVIDENCIA DDP 8151
+
+**Número de Providencia (DDP 8151):** SP1946-2025
+**Radicación (DDP 8151):** 63558
+
+**Lista de Temas (DDP 8151):**
+(i) “Adicionalmente, el fallo confutado se soportó, para asumir violado el derecho de igualdad, en la postura jurisprudencial de la Sala, que asimilaba la aceptación unilateral de cargos a la terminación anticipada de la actuación, vía preacuerdo, Con ello, acorde con el artículo 349 de la Ley 906 de 2004, para la procedencia de acuerdos o negociaciones con el imputado o acusado se exige, en conductas delictivas en las que el sujeto activo obtuvo incremento patrimonial fruto el mismo, el reintegro, por lo menos, del cincuenta por ciento y el aseguramiento del recaudo del remanente.”. 
+(ii) “Empero, conforme lo resaltó la Fiscal Delegada, la Sala de Casación Penal, recientemente, recogió ese criterio para establecer que, en tratándose de allanamiento a cargos no se aprecia aplicable la exigencia decantada en el artículo 349 de la Ley 906 de 2004, conforme se videncia en el siguiente fragmento del proveído CSJ SP1901-2024, 17 de julio de 2024, Rad. 64214: …”. 
+(iii) “Así las cosas, al no encontrarse condicionada la terminación anticipada del proceso, adoptada por las implicadas bajo la arista del allanamiento a cargos, a la exigencia consagrada en el artículo 349 del código adjetivo penal de 2004, surge palpable, en contravía de la tesis planteada en el fallo confutado, que a su favor si deviene procedente inaplicar, en la tasación punitiva, el incremento punitivo consagrado en el artículo 14 de la Ley 890 de 2004, razón por la que, no existe alternativa diversa a la de ajustar la sanciones impuestas a las implicadas.”.
+
+---
+
+# PROVIDENCIA DDP 8152
+
+**Número de Providencia (DDP 8152):** AHP7564-2025
+**Radicación (DDP 8152):** 70903
+**Decisión (DDP 8152):** SMS DEL 30.10.2025
+
+**Lista de Temas (DDP 8152):**
+(i) “La acción de habeas corpus”. 
+(ii) “De la subsidiariedad en la acción de habeas corpus.”. 
+(iii) “Igualmente, cuando una providencia judicial respalda la detención del procesado, este debe pedir su libertad en el trámite ordinario mediante los recursos legales existentes. Solo en casos extraordinarios procede la acción de habeas corpus, como cuando la actuación judicial constituya una auténtica vía de hecho y no haya ningún recurso disponible en su contra (CSJ AHP1906-2018).”.
+
+---
+
+# PROVIDENCIA DDP 8153
+
+**Número de Providencia (DDP 8153):** SENTENCIA SU-176-25
+**Radicación (DDP 8153):** No especificado
+
+**Lista de Temas (DDP 8153):**
+(i) “Derecho a una vida libre de violencia y acceso a la administración de justicia”. 
+(ii) “Principio iura novit curia”. 
+(iii) “Carencia actual de objeto por daño consumado”. 
+(iv) “Dignidad humana de la mujer”. 
+(v) “Discriminación y violencia contra la mujer”. 
+(vi) “Derechos de las niñas víctimas de violencia, especialmente de violencia sexual”. 
+(vii) “Menores victimas de delitos sexuales”. 
+(viii) “Entrevista y testimonio de niños, niñas y adolescentes víctimas de delitos contra la libertad, integridad y formación sexual en procesos penales”. 
+(ix) “Medios de prueba de violencia sexual”. 
+(x) “Prueba indiciaria y prueba testimonial en investigaciones por delitos sexuales de víctimas menores de edad”. 
+(xi) “Víctimas de delitos sexuales”.
+
+---
+
+# PROVIDENCIA DDP 8154
+
+**Número de Providencia (DDP 8154):** SENTENCIA SU-315 DE 2025
+**Radicación (DDP 8154):** No especificado
+
+**Lista de Temas (DDP 8154):**
+(i) “El derecho de los niños, niñas y adolescentes a no ser objeto de violencia y abuso ”. 
+(ii) “La reparación de los NNA víctimas de delitos sexuales. El incidente de reparación integral en el proceso penal”. 
+(iii) “La responsabilidad civil extracontractual de la Iglesia Católica por los daños causados por abusos sexuales a NNA cometidos por párrocos o sacerdotes. Régimen civil y jurisprudencia ordinaria”.
+
+---
+
+# PROVIDENCIA DDP 8155
+
+**Número de Providencia (DDP 8155):** SENTENCIA T-371 DE 2025
+**Radicación (DDP 8155):** No especificado
+
+**Lista de Temas (DDP 8155):**
+“La Corte Constitucional le ordenó al INPEC y a un establecimiento penitenciario permitir el ingreso de los visitantes que son ciudadanos venezolanos en situación migratoria irregular con la presentación de su cédula de ciudadanía venezolana”.
+
+---
+
+# PROVIDENCIA DDP 8156
+
+**Número de Providencia (DDP 8156):** SENTENCIA T-391 DE 2025
+**Radicación (DDP 8156):** No especificado
+
+**Lista de Temas (DDP 8156):**
+(i) Se ordenó “a la fiscal general de la Nación que, dentro del término de cuarenta y ocho (48) horas siguientes a la notificación de esta providencia, realice la variación de la asignación de la indagación penal identificada con NUNC: **** de tal forma que se asigne a una unidad especializada en delitos contra la mujer y/o feminicidios de acuerdo con el procedimiento establecido en la Resolución 985 de 2018.”. 
+(ii) Se ordenó a “La unidad a la que sea trasladada la investigación deberá garantizar su priorización e impulso. Adicionalmente, esta unidad deberá determinar, en un término no mayor a los quince (15) días siguientes a la asignación del caso si, a partir de los estándares de debida diligencia, de la Directiva 0004 de 2023 y de la perspectiva de género, existen actos investigativos omitidos o que ameritan realizarse de nuevo con el ánimo de esclarecer el contexto, de determinar al responsable del hecho y de esclarecer los móviles del asesinato de la joven Camila.”. 
+(iii) Se insta “a la Fiscalía General de la Nación a que, en cumplimiento de los deberes referidos en las consideraciones de esta providencia, actúe con debida diligencia para prevenir, investigar y promover la judicialización de los hechos de violencia contra la mujer y, especialmente, de aquellos en los que se ejerce violencia letal. Para ello, la entidad podrá desplegar acciones como jornadas de capacitación y sensibilización en materia de género y los deberes derivados del estándar de debida diligencia; promover ajustes institucionales y espacios de difusión de los lineamientos internos como la Directiva 0004 de 2023 y, generar espacios de articulación con otras autoridades del Estado para garantizar medidas de protección a las mujeres sometidas a cualquier tipo de violencia y su acceso oportuno y efectivo a la administración de justicia.”.
+
+---
+
+# PROVIDENCIA DDP 8157
+
+**Número de Providencia (DDP 8157):** AUTO 1667 DE 2025. SMS DEL 31.10.2025
+**Radicación (DDP 8157):** No especificado
+
+**Lista de Temas (DDP 8157):**
+“La Sala Especial de Seguimiento al Estado de Cosas Inconstitucional Penitenciario y Carcelario invitó a las Facultades de Derecho del país a través de la Asociación Colombiana de Facultades de Derecho (ACOFADE), así como a los establecimientos educativos acreditados de formación jurídica a nivel nacional, las organizaciones dedicadas a brindar asistencia jurídica y a las agremiaciones de abogados, para que participen de manera activa en la realización de las brigadas jurídicas.”.
+
+---
+
+# PROVIDENCIA DDP 8158
+
+**Número de Providencia (DDP 8158):** AP7003-2025
+**Radicación (DDP 8158):** 15595
+
+**Lista de Temas (DDP 8158):**
+(i) “Se pronuncia la Sala frente al recurso de reposición presentado por ICTM en contra del auto AP5621-2021, por medio del cual se negó la solicitud de anonimización por ella presentada.”. 
+(ii) “Según lo tiene pacíficamente decantado esta Sala, el recurso de reposición tiene como finalidad permitir al funcionario que dictó la decisión que se ataca, a través del mecanismo horizontal, que corrija los posibles yerros en que hubiese podido incurrir en el proveído impugnado.”. 
+(iii) “Por tanto, es indispensable que la parte inconforme con la providencia aduzca los motivos de su disenso frente a la providencia que se ataca y plantee las razones, de hecho y de derecho, que sustentan su pretensión revocatoria.”. 
+(iv) “A juicio de la Sala, en este caso, el medio de controversia horizontal interpuesto por ICTM no está llamado a prosperar, toda vez que, lejos de señalar cuál fue el error en el que incurrió esta Corte al interior del auto recurrido, este se circunscribe a subsanar la falencia detectada en aquella oportunidad.”. 
+(v) “Empero, debe indicarse que, si bien no se procederá a reponer la decisión adoptada, en virtud del principio de prevalencia del derecho sustancial , y en vista de que la peticionaria sí acreditó, en esta oportunidad, que la pena que le fue impuesta actualmente se haya extinta , la Sala procederá a acceder a sus pretensiones.”. 
+(vi) “Ello, también, para optimizar los recursos de la Rama Judicial, garantizar el derecho fundamental de acceso a la administración de justicia y no incurrir en un defecto procedimental por exceso ritual manifiesto.”.
+
+---
+
+# PROVIDENCIA DDP 8159
+
+**Número de Providencia (DDP 8159):** SP1954-2025
+**Radicación (DDP 8159):** 66187
+
+**Lista de Temas (DDP 8159):**
+(i) “Frente a esta temática, es necesario precisarle al Procurador que la postura vigente y pacífica de la Sala ha reiterado que, a efecto de la contabilización del término de prescripción de la acción penal en procesos penales militares, aplica el aumento del término previsto en el artículo 83 inciso 6° del Código Penal (de la tercera parte o la mitad a partir de la Ley 1474 de 2011), pues se trata de conductas punibles cometidas por un servidor público «en ejercicio de sus funciones, de su cargo o con ocasión de ellos.”. 
+(ii) “Así las cosas, aunque el delito de abandono del servicio es típicamente militar, por tratarse de una conducta que solo puede ser ejecutada por miembros de la Fuerza Pública, resulta procedente aplicar el incremento del término de prescriptivo de la acción penal, en virtud de la condición de servidor público  del procesado.”. 
+(iii) “Lo anterior toda vez que, tratándose de servidores públicos, está legalmente contemplado un criterio diferenciador para el cómputo del término prescriptivo durante todas las fases del proceso, mismo que irradia una más amplia vigencia para la acción penal, precisamente fundada en la teleología que emana de los valores que representa la integridad del servicio en lo público, independientemente, desde luego, de que el delito objeto de valoración sea común, o, como en este caso, típicamente militar.”. 
+(iv) “En efecto, en providencia CSJ AP 5 feb. 2020, rad. 56940, reiterada, recientemente, en providencia CSJ SP 19 mar. 2025, rad. 64147, la Sala insistió en las siguientes reglas: …”. 
+(v) Una supuesta “nulidad por falta de congruencia”. 
+(vi) “De conformidad con el artículo 29 Ley 836 de 2003, el conducto regular “es el procedimiento que debe seguirse ante el inmediato superior, consistente en exponer de manera verbal o escrita asuntos del servicio o personales que afecten el mismo, con el propósito que les sean resueltos. (…)”. Se trata, entonces, de una disposición que reconoce la estructura jerárquica de la organización castrense, estableciendo una vía reglada mediante la cual los miembros de la Fuerza Pública pueden poner en conocimiento de sus superiores, peticiones, quejas o situaciones particulares, bien de índole funcional o personal, que incidan en el adecuado cumplimiento o desarrollo del servicio, con miras a que éstas sean superadas.”. 
+(vii) “En otras palabras, la activación del conducto regular no exime al uniformado de continuar ejerciendo las funciones propias de su cargo, salvo que exista orden formal y expresa del superior jerárquico competente, que lo releve formalmente de tales deberes. Por tanto, el hecho de que a un miembro de la Fuerza Pública se le autorice acudir ante una instancia superior con el propósito de exponer determinada situación, no implica, en modo alguno, que quede eximido o relevado de continuar cumpliendo los deberes asignados.”. 
+(viii) La prisión domiciliaria para este caso.
+
+---
+
+# PROVIDENCIA DDP 8160
+
+**Número de Providencia (DDP 8160):** AP6870-2025
+**Radicación (DDP 8160):** 68459
+
+**Lista de Temas (DDP 8160):**
+(i) La casación y el Código Penal Militar. 
+(ii) “Cuando el ataque contra la sentencia se encamina por la vía de la violación directa de la ley sustancial, como lo propone la demandante en este asunto, no se pueden cuestionar los supuestos fácticos declarados en la sentencia, ni los criterios de ponderación o las deducciones probatorias de los juzgadores; pues, la discusión debe ser de estricto orden jurídico y encaminada a demostrar que frente al supuesto fáctico reconocido en la sentencia y con apego a la valoración de los elementos de juicio allí plasmada, el sentenciador incurrió en alguno de los siguientes desaciertos: …”. 
+(iii) “Además, constituye un despropósito cuestionar la ausencia de prueba de uno cualquiera de los elementos constitutivos de la especie delictiva por la que se hizo la declaración de justicia, como en no pocas aserciones de la réplica lo hace la aquí demandante, ya que discusiones de esa factura no ilustran sobre algún desatino propio de la violación directa de la ley sustancial, y apuntan es a cuestionar los hechos declarados, modo de razonar que conspira contra la necesaria claridad y precisión que se espera en quejas como la propuesta.”. 
+(iv) “De la prisión domiciliaria en trámites seguidos por la vía de la justicia penal y procesal penal militar.”.
+
+---
+
+# PROVIDENCIA DDP 8161
+
+**Número de Providencia (DDP 8161):** AP7234-2025
+**Radicación (DDP 8161):** 63689
+
+**Lista de Temas (DDP 8161):**
+(i) “La causal invocada, esto es, la violación indirecta de la ley sustancial (prevista en el numeral 3° del artículo 181 de la Ley 906 de 2004) obliga a desvirtuar la apreciación o el escrutinio de las pruebas, a fin de acreditar un supuesto de hecho diverso, que consecuencialmente deba ser subsumido en normas diferentes. Los errores que se pueden cometer en la actividad probatoria pueden ser de hecho o de derecho (CSJ AP2256-2025).”. 
+(ii) “Los errores de hecho implican el desconocimiento de una situación fáctica, producto de la incursión en falsos juicios de existencia o identidad, o falso raciocinio, mientras que los errores de derecho presuponen la violación de una norma probatoria (falsos juicios de legalidad o convicción) …” . 
+(iii) “El falso juicio de convicción presupone un medio de prueba legalmente admitido y practicado en el juicio, en relación con el cual el juez yerra en la corroboración de su aptitud o idoneidad legal (conducencia) para dar por probado el hecho o aspecto regulado por la ley …”. 
+(iv) “Es decir, surge en un ámbito intermedio, entre 
+(i) la fase de aducción o incorporación probatoria, y 
+(ii) las etapas de apreciación y valoración (CSJ SP114-2023, SP163-2023 y AP3789-2023).”. 
+(v) “Por tanto, no tiene relación con la falta de valoración o suposición de un medio de prueba (falso juicio de existencia), la deformación del mismo por el juez (falso juicio de identidad), ni con la ruptura de las reglas de la sana crítica (falso raciocinio) (CSJ AP1534-2023 y AP925-2024).”. 
+(vi) “El falso juicio de convicción es un error propio de los sistemas probatorios tarifados, en los cuales la ley determina previamente los valores para cada medio de conocimiento, sin que al fallador le sea dado apartarse de los mismos (CSJ AP615-2022, AP663-2022 y AP1196-2024).”. 
+(vii) “De tal manera, es un error de ocurrencia excepcional en el sistema de la Ley 906 de 2004 (CSJ AP3637-2022 y AP2145-2023), el cual se rige por el principio de libertad probatoria (artículos 373 y 382; Cfr. CSJ AP2397-2022, AP7665-2024 y AP4169-2025), y en el que la estimación probatoria está sujeta a la persuasión racional (CSJ AP663-2022 y AP925-2024).”. 
+(viii) “Así, a diferencia de los sistemas probatorios tarifados, en la Ley 906 de 2004, por regla general, los medios de prueba no tienen asignado un grado de persuasión determinado (CSJ AP1849-2022), por lo que es el juez, y no la norma, quien fija el mérito probatorio para cada uno de los medios de conocimiento mencionados en el artículo 382 (con sujeción a los criterios establecidos en la Ley: artículo 380; Cfr. CSJ AP3637-2022), los cuales debe apreciar en conjunto y de conformidad con los postulados de la sana crítica -principios de la lógica, leyes de la ciencia y máximas de la experiencia- (CSJ AP1849-2022 y AP5589-2025).”. 
+(ix) “En general, la Sala ha establecido que el falso juicio de convicción se configura cuando se desconocen dos supuestos: …”. 
+(x) “Como la Sala mencionó en el examen del anterior cargo, uno de los errores de hecho es el falso raciocinio. Este error se configura cuando el juez observa la prueba en su integridad, pero al valorarla desconoce los postulados de la sana crítica, es decir, una concreta ley científica, un principio lógico o una máxima de la experiencia (CSJ AP5164-2022, AP1381-2023, AP3666-2024 y AP4891-2025).”. 
+(xi) “Por tanto, quien lo alegue debe 
+(i) señalar con exactitud el medio de conocimiento sobre el que recae el yerro, 
+(ii) identificar aquello que expresamente dice y se deduce de él, 
+(iii) el mérito persuasivo otorgado al mismo por el juzgador, 
+(iv) indicar y desarrollar con precisión la regla lógica, la ley de la ciencia o la máxima de la experiencia aplicada de manera equivocada al realizar el proceso valorativo, 
+(v) así como la que apropiadamente le debió servir de apoyo, 
+(vi) la norma de derecho sustancial que de forma indirecta resultó excluida o indebidamente aplicada o interpretada, y por último 
+(vii) probar que, de no haberse incurrido en el defecto, el sentido de la decisión adversa hubiera sido sustancialmente opuesto (CSJ AP668-2023, AP4923-2024 y AP4891-2025).”.
+
+---
+
+# PROVIDENCIA DDP 8162
+
+**Número de Providencia (DDP 8162):** AP7223-2025
+**Radicación (DDP 8162):** 62657
+**Decisión (DDP 8162):** SMS DEL 4.11.2025
+
+**Lista de Temas (DDP 8162):**
+(i) “El planteamiento central del censor es que, cada uno de los testigos de cargo presentó un distinto punto de vista de los hechos materia de la acusación y, por tanto, incurrieron en contradicción, y el Tribunal, al haber acogido sus atestaciones, desconoció el postulado lógico de no contradicción.”. 
+(ii) “Luego, si el censor consideraba que el Tribunal le hizo decir a la prueba algo distinto a lo que la misma expresaba, bien sea por supresión, adición o tergiversación de su contenido, debió plantear y demostrar la existencia de un error de hecho por falso juicio de identidad.”. 
+(iii) “Por otra parte, así entre diferentes medios de prueba se adviertan ciertas discrepancias, el juzgador está facultado para acoger algunos aspectos de su contenido y desechar otros, en ejercicio de una valoración conjunta del acervo probatorio, empleando los dictados de la sana crítica, sin que ello conduzca al quebrantamiento del postulado lógico de no contradicción. Sin embargo, lo cierto es que, como acaba de ser visto, en este caso el tribunal encontró que los declarantes fueron coincidentes en los aspectos nucleares de sus respectivos relatos.”. 
+(iv) “También se advierte que no es admisible el cotejo que el demandante hace de los dichos del menor D.M.Z.G., de su progenitora y de su abuela, con los de la médico forense que le efectuó valoración sexológica, ni con los de la psicóloga que lo valoró en esa área, porque dichas profesionales no percibieron los hechos materia de la acusación, ni los que transmitieron las familiares de la víctima, sino que dieron sus impresiones diagnósticas sobre los temas sobre los cuales se les solicitó dictaminar y, además, el Tribunal, acertadamente, consideró que no podía valorar las declaraciones previas al juicio oral, que el menor víctima hizo ante dichas profesionales, “(…) porque estas no fueron incorporadas como prueba de referencia por ninguna de las partes, ni utilizadas en juicio en concreto por la defensa para impugnar credibilidad o refrescar memoria (…)”.”.
+
+---
+
+# PROVIDENCIA DDP 8163
+
+**Número de Providencia (DDP 8163):** STP15949-2025 RAD 148107
+**Radicación (DDP 8163):** 
+
+**Lista de Temas (DDP 8163):**
+(i) “El derecho a un juicio en un plazo razonable en la justicia transicional”; “En el derecho convencional”. 
+(ii) “El derecho a un juicio en un plazo razonable en la justicia transicional”; “En el derecho constitucional”. 
+(iii) “La Ley de Justicia y Paz”. 
+(iv) “El incumplimiento del plazo razonable en los procesos de LJP”. 
+(v) La mora judicial. 
+(vi) “Con todo, el Magistrado precisó su compromiso de culminar la fase de juzgamiento en lo que resta de este año. La Sala considera que esta manifestación es indicativa de que sí está en capacidad de presentar ante la sala de decisión el proyecto de sentencia en un plazo máximo de tres meses. Este término será vinculante si se acredita el último presupuesto de procedencia del amparo constitucional por mora judicial injustificada.”.
+
+---
+
+# PROVIDENCIA DDP 8164
+
+**Número de Providencia (DDP 8164):** STP16804-2025
+**Radicación (DDP 8164):** 149225
+
+**Lista de Temas (DDP 8164):**
+(i) “Procedencia excepcional de la tutela frente a decisiones judiciales.”. 
+(ii) “Del estándar de motivación de la orden de captura derivada del artículo 450 de la Ley 906 de 2004.”. 
+(iii) “Requisito de subsidiariedad tratándose de la decisión que dispone la captura inmediata a partir del artículo 450 de la Ley 906 de 2004”. 
+(iv) “Por lo expuesto, la Sala amparará el derecho fundamental al debido proceso de Wilton Alexander Restrepo Henao al encontrar que con la orden de captura emitida en su contra en ocasión a la sentencia del 19 de marzo de 2025 por la Sala Penal del Tribunal Superior del Distrito Judicial de Medellín, incurrió en el defecto específico de decisión sin motivación, al no enunciar motivos distintos a la expresa prohibición legal, cuando lo procedente era sustentar la necesidad de privarlo de la libertad desde ese momento, aunque la misma no esté en firme.”. 
+(v) “En consecuencia, la Sala dejará sin efectos el numeral tercero de la parte resolutiva de la providencia adoptada el 19 de marzo de 2025, que profirió la orden de captura inmediata en contra de Wilton Alexander Restrepo Henao, ordenando al Tribunal accionado que, dentro de los tres (3) días siguientes a la notificación de esta providencia, motive adecuadamente la necesidad inmediata de privar o no de la libertad al procesado, de conformidad con lo establecido por la Corte Constitucional en la Sentencia SU 220 de 2024.”. 
+(vi) “La decisión que emita la mentada Corporación en cumplimiento de la orden descrita anteriormente tendrá el carácter de sentencia complementaria, y, en ese sentido, debe garantizarse la posibilidad de que sea recurrida mediante apelación, cuya sustentación, de realizarse, deberá integrar la impugnación especial promovida previamente respecto del fallo de segunda instancia.”.
+
+---
+
+# PROVIDENCIA DDP 8165
+
+**Número de Providencia (DDP 8165):** STP16418-2025
+**Radicación (DDP 8165):** 148868
+
+**Lista de Temas (DDP 8165):**
+(i) “El accionante expuso que, desde el 5 de diciembre de 2017, el “Juzgado 4° de Ejecución de Penas” decretó la extinción de la ejecución de su pena y notificó a las entidades competentes para que realizarán las actualizaciones correspondientes en sus bases de datos. No obstante, las autoridades guardaron silencio y omitieron cumplir con lo ordenado, lo que ha generado que aún aparezcan restricciones en los registros de la Policía-Sijin, donde figura un “punto rojo” que lo somete a constantes interrogatorios para “exigir plata para no ser trasladado”, por parte de algunos uniformados.”. 
+(ii) “Y la alegada existencia de un «punto rojo» en la base de datos de la Policía Nacional, se trata de una afirmación sin ningún soporte probatorio. Del ejercicio realizado y la información entregada por la Policía Nacional, no se registra ningún dato que deje ver anomalía que sugiera detenciones por agentes de policía por cuenta de la condena que aparece extinta.”. 
+(iii) “Si lo dicho por el actor ha ocurrido, indiscutiblemente le corresponde formular la correspondiente denuncia ante las autoridades competentes, mientras tanto, al juez de tutela no le asiste competencia para emitir pronunciamiento sobre el particular.”. 
+(iv) “Si lo dicho por el actor ha ocurrido, indiscutiblemente le corresponde formular la correspondiente denuncia ante las autoridades competentes, mientras tanto, al juez de tutela no le asiste competencia para emitir pronunciamiento sobre el particular.”. 
+(v) “Todo lo anterior permite a la Sala concluir que sin razón se muestra el quejoso al pretender la protección constitucional cuando, conforme quedó demostrado, actualmente no registra ninguna anotación en la página de la Policía Nacional relativa a la existencia de antecedentes penales o requerimiento de alguna autoridad judicial. Lo anterior, igualmente, permite sostener que se dio cumplimiento a la decisión adoptada por el Juzgado Cuarto de Ejecución de Penas y Medidas de Seguridad de Bogotá en la decisión del 15 de noviembre de 2017 que declaró la extinción de la pena.”.
+
+---
+
+# PROVIDENCIA DDP 8166
+
+**Número de Providencia (DDP 8166):** STP16417-2025
+**Radicación (DDP 8166):** 148835
+
+**Lista de Temas (DDP 8166):**
+(i) “Del acceso a la administración de justicia y la mora judicial.”. 
+(ii) “En ese sentido, para determinar cuándo se dan dilaciones injustificadas en la administración de justicia y, por consiguiente, procede la acción de tutela frente a la protección del acceso a la administración de justicia y la jurisprudencia constitucional colombiana (CC T- CC 052 de 2018, T-186 de 2017, T-803 de 2012 y T-945 de 2008), ha señalado que debe estudiarse: …”. 
+(iii) “[A] fin de que proceda la acción de tutela, es indispensable que determinada dilación o mora judicial sean injustificadas, pues el mero incumplimiento de los términos dentro de un proceso, no constituye per se una violación al debido proceso, salvo que el peticionario se encuentre ante un perjuicio irremediable. Así entonces, la mora judicial sólo se justifica si la autoridad correspondiente, a pesar de actuar con diligencia y celeridad, se encuentra ante situaciones "imprevisibles e ineludibles", tal como, el exceso de trabajo, que no le permitan cumplir con los términos señalados por la ley. De lo expuesto se concluye que constituye una violación de los derechos fundamentales al debido proceso y al acceso a la administración de justicia, aquella denegación o inobservancia de los términos procesales que se presenten sin causa que las justifiquen o razón que las fundamenten.”. 
+(iv) “Entonces, en atención a dichos derroteros, es claro que no toda dilación en el curso de una determinada actuación judicial es desconocedora de los derechos fundamentales y, en consecuencia, la petición de amparo no procede automáticamente por el solo hecho que el servidor judicial incumpla los plazos legales, pues es necesario que se acredite la falta de diligencia y, además, que con la mora se produzca un perjuicio irremediable que haga imperiosa la intervención del juez de tutela (CSJ STP1336-2024, STP5195-2024 y STP8554-2024).”. 
+(v) Casi catorce años de indagación.
+
+---
+
+# PROVIDENCIA DDP 8167
+
+**Número de Providencia (DDP 8167):** ATP2034-2025
+**Radicación (DDP 8167):** 148307
+**Decisión (DDP 8167):** SMS DEL 5.11.2025
+
+**Lista de Temas (DDP 8167):**
+(i) “En particular, y por ser la norma pertinente para resolver el asunto objeto de estudio, es necesario mencionar que la Ley 906 de 2004 establece en su artículo 56 quince causales de impedimento, entre ellas la alegada por los magistrados GERARDO BARBOSA CASTILLO, HUGO QUINTERO BERNATE Y JOSÉ JOAQUÍN URBANO MARTÍNEZ: «6. Que el funcionario haya dictado la providencia de cuya revisión se trata, o hubiere participado dentro del proceso, (…)».”. 
+(ii) “Respecto de dicha causal, la Corte Suprema de Justicia ha sostenido pacíficamente que la participación en el asunto no se limita al contenido literal de haber: i) actuado, ii) concurrido formalmente a la actuación o iii) adoptado alguna decisión precedente en el proceso o que tenga incidencia en el mismo, sino que debe corresponder a una intervención esencial, de fondo, sustancial, trascendente, que lo vincule con la actuación puesta en consideración de tal manera que tenga la suficiente entidad para comprometer la objetividad, imparcialidad y ecuanimidad, exigible de quien obra como juez.”. 
+(iii) “También, la Corte ha precisado que la intervención procesal debe ser evaluada en cada caso concreto, con el fin de determinar si la misma resulta esencial, de modo que la imparcialidad se vea comprometida a la hora de decidir el asunto (AP 5084, 28 ago. 2014, rad. 44472).”. 
+(iv) “Siendo así, esta Sala advierte que, en efecto, los magistrados GERARDO BARBOSA CASTILLO, HUGO QUINTERO BERNATE Y JOSÉ JOAQUÍN URBANO MARTÍNEZ, integrantes de la Sala de Tutelas n.° 2, profirieron la sentencia STP12001-2025, del 24 de junio de 2025, rad. 146222, mediante la cual, en primera instancia, negaron el amparo solicitado en previa oportunidad por LUIS CARLOS ALBARRACÍN JARAMILLO. En relación con dicha decisión, en esta nueva solicitud de amparo, el actor cuestiona su indebida notificación, lo que conllevó a la imposibilidad de impugnarla.”. 
+(v) “Tal situación implica que la participación de la Sala de Tutelas n.° 2 es trascendente, porque es respecto de la decisión proferida por aquella que se soporta uno de los reproches del accionante. En ese sentido, esta Sala encuentra fundado el impedimento manifestado.”.
+
+---
+
+# PROVIDENCIA DDP 8168
+
+**Número de Providencia (DDP 8168):** AP7551-2025
+**Radicación (DDP 8168):** 70261
+
+**Lista de Temas (DDP 8168):**
+(i) “Así, lo primero que se verifica es que el libelista enunció la causal primera del artículo 181 del Código de Procedimiento Penal para reprobar la sentencia emitida por la Sala Penal del Tribunal Superior de Bogotá, sin embargo, no hizo un desarrollo argumentativo compatible con ella, pues se remitió a cuestionar el proceso de valoración probatoria.”. 
+(ii) “Sobre este aspecto, es necesario recordar que la causal en cita, se remite a la violación directa de ley, infracción que se presenta bajo tres modalidades, a saber: 
+(i) falta de aplicación, que se configura cuando el sentenciador omite aplicar la disposición que se ocupa de la situación en concreto, o yerran acerca de su existencia, 
+(ii) indebida aplicación, que ocurre cuando realizan una equívoca adecuación de los hechos probados a los supuestos que contempla el precepto y 
+(iii) errónea interpretación, esto es, le atribuyen a la norma un sentido que no tiene o le asignan efectos diversos o contrarios a su contenido.”. 
+(iii) “Tipologías de yerro que, en todo caso, parten de una premisa fundamental, esto es, la correspondiente obligación del censor de admitir los hechos y pruebas según fueron considerados en la respectiva sentencia, comoquiera que el debate en sede de casación en ese ámbito es exclusivamente jurídico, lo cual excluye la posibilidad de exponer motivos de disenso relacionados con la valoración probatoria efectuada en la providencia.”. 
+(iv) “Ello, en tanto, los defectos relacionados con el proceso de apreciación de pruebas, deben promoverse por vía de la causal tercera del artículo 181 del Código de Procedimiento Penal que se remite al «manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia de segunda instancia», lo que supone argumentar, la infracción de la ley, en alguna de sus especies. Así, de hecho, por incurrir en falsos juicios de existencia, identidad o falso raciocinio, o de derecho, por falsos juicios de legalidad o de convicción, y sustentar, de acuerdo con su naturaleza, la forma en que se configuraron y su trascendencia en la decisión reprobada, en el entendido que de no haberse desplegado el resultado de la actuación sería diverso.”.
+
+---
+
+# PROVIDENCIA DDP 8169
+
+**Número de Providencia (DDP 8169):** AP7321-2025
+**Radicación (DDP 8169):** 60443
+
+**Lista de Temas (DDP 8169):**
+(i) “Tratándose de la causal segunda de nulidad por desconocimiento de la estructura del debido proceso, o por afectación de la garantía debida a cualquiera de las partes con capacidad de invalidar la actuación, es imperioso para el demandante: 
+(i) indicar el motivo de nulidad que se configura (incompetencia, violación del debido proceso o violación del derecho de defensa) ; 
+(ii) identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–; 
+(iii) demostrar su configuración; 
+(iv) precisar la norma o normas violadas; 
+(v) especificar su cobertura invalidatoria; 
+(vi) justificar la procedencia de su declaración de cara a los principios de taxatividad, acreditación, convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad; y, 
+(vii) acreditar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(ii) “La simple enunciación de supuestos errores de procedimiento o de garantía no es suficiente para quebrar la presunción de acierto y legalidad que ampara la sentencia. Es menester indicar en qué consistió en concreto la irregularidad y demostrar que, frente a los principios ya indicados y las particularidades del caso, no existe alternativa distinta de solución que la invalidación del trámite.”. 
+(iii) La alegada prescripción en este caso. 
+(iv) “Así, la interesada postura del demandante simplemente contraviene preceptos legales y precedentes jurisprudenciales, los cuales de forma consistente han advertido que, tratándose de términos de años y meses, como en este caso, el primero y el último día del término han de tener el mismo número de los respectivos meses, en otras palabras, deben contarse de fecha a fecha.”. 
+(v) “De la vulneración a los derechos a ser oído y a la igualdad de armas”. 
+(vi) "Por demás, que la práctica probatoria de la Fiscalía tardara años, a diferencia de las pocas sesiones utilizadas para el efecto por el extremo defensivo, no es argumento válido para enrostrar una supuesta afrenta al principio de igualdad de armas pues, en últimas, la defensa contó con el tiempo necesario para ejercer su labor. Cuestión distinta es que la prueba de descargo resultara de menguado valor suasorio, de cara a la robustecida de cargo, suficiente para atribuir responsabilidad al procesado.". 
+(vii) “Error de hecho por falso juicio de identidad”. 
+(viii) “La forma de acreditar este yerro es elemental. Se trata, como ya lo ha explicado la Corte, de realizar un ejercicio de confrontación, en el que, de una parte, se reproduce lo que textualmente la prueba expresa, y de otra, se muestra lo que el juzgador afirma que ella dice, con el fin de evidenciar que entre una y otra no existe identidad, y que el fallo le puso a decir «más de lo que su texto reza, menos de lo que su contenido encierra, o algo totalmente distinto de aquello que en realidad expresa» (Cfr. CSJ AP, 7 oct. 1997, rad. 10115).”. 
+(ix) “Importa señalar que el anterior error es objetivo y, por tanto, ninguna relación guarda con los dislates que se presentan en el proceso de apreciación del mérito de las pruebas, o en la construcción de las inferencias lógicas probatorias, que son de naturaleza valorativa, cuya alegación en casación debe orientarse por la vía del error de hecho por falso raciocinio.”.
+
+---
+
+# PROVIDENCIA DDP 8170
+
+**Número de Providencia (DDP 8170):** AP7231-2025
+**Radicación (DDP 8170):** 62837
+
+**Lista de Temas (DDP 8170):**
+(i) “Ahora, aunque el recurrente anunció la presentación de dos cargos contra la sentencia del Tribunal, esto es, tanto la violación directa de la ley sustancial como la nulidad del proceso por afectación del debido proceso, mezcló en una sola argumentación su reparo cifrado, exclusivamente en el no reconocimiento a favor de su representado de la prisión domiciliaria por la condición de padre cabeza de familia.”. 
+(ii)  “Obviamente, tal manera de proceder, mediante la cual mezcla distintas causales previstas en el artículo 181 de la Ley 906 de 2004, sin percatarse de la distinción y diferencia entre cada una de ellas, desconociendo que poseen una naturaleza y finalidad diferentes, que obligan, por demás, a especificar de manera separada cada uno de los vicios, contraría los principios de claridad, debida sustentación y autonomía de las causales, lo cual, desde luego, trunca la aspiración de admisibilidad del libelo, en tanto se aparta por completo de los parámetros lógicos, argumentales y de postulación propios de la demanda de casación.”. 
+(iii) “Sin perjuicio de lo anterior, si se asumiera que el reproche entraña una propuesta de violación directa de la ley sustancial, observa la Sala que la censura se quedó en un mero enunciado. El demandante no distinguió, como era su deber, el sentido de la violación de juicio atribuido al fallador, esto es, si incurrió en yerro por selección de una norma que no era la llamada a gobernar el asunto (aplicación indebida); omisión de otra que sí resolvía los extremos de la relación jurídico procesal (falta de aplicación o exclusión evidente); o porque, habiéndola seleccionado correctamente, al aplicarla al caso le atribuyó un sentido jurídico que no tiene o le extendió consecuencias contrarias a su naturaleza jurídica (interpretación errónea). Menos aún, hizo alusión a cuál fue la norma aplicada de manera indebida por el Tribunal o cual fue la dejada de aplicar al caso concreto. Y, por supuesto, en su defecto, tampoco consignó ninguna referencia en relación con una supuesta interpretación errónea de algún disposición legal.”. 
+(iv) “Igual sucede con el cargo subsidiario. Si lo que pretendía el censor era acusar la sentencia de ser violatoria del debido proceso, lo cierto es que no identificó con claridad cuál fue la irregularidad advertida, ni cómo esta afectó la estructura del proceso o alguna de sus garantías fundamentales. No explicó la trascendencia del vicio, en cuanto a la inexistencia de opción distinta a la anulación de la etapa en la que se materializó el supuesto yerro y, en general, los principios que configuran la nulidad.”. 
+(v) “En suma, bien puede concluirse que lejos de presentar una demanda de casación, revestida de cada uno de los requerimientos legales y jurisprudenciales que la puedan viabilizar, el actor limitó su actuación a ofrecer un escrito de alegación propio de las instancias, con la vana pretensión de obtener una decisión favorable a sus intereses, interponiendo su personal crítica probatoria a la asumida por los falladores en sus decisiones.”.
+
+---
+
+# PROVIDENCIA DDP 8171
+
+**Número de Providencia (DDP 8171):** AP7235-2025
+**Radicación (DDP 8171):** 68344
+
+**Lista de Temas (DDP 8171):**
+Proceso en contra de EMIRO ROJAS GRANADOS  y NÉSTOR JAVIER PACHÓN BERMÚDEZ, integrantes del DAS, por los “seguimientos, hostigamientos y amenazas a la periodista Claudia Julieta Duque Orrego como retaliación por su labor periodística y activismo judicial en torno al homicidio de Jaime Garzón Forero y por los señalamientos que hizo en contra del DAS por participar en tal homicidio y entorpecer la investigación de éste …”.
+
+---
+
+# PROVIDENCIA DDP 8172
+
+**Número de Providencia (DDP 8172):** AP7528-2025
+**Radicación (DDP 8172):** 63935
+**Decisión (DDP 8172):** SMS DEL 6.11.2025
+
+**Lista de Temas (DDP 8172):**
+(i) “El recurrente no formuló un cargo en concreto. Alegó la causal de «manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia», que se ocupa de la violación indirecta de la ley sustancial. Pero no concretó cuál fue la forma en que se produjo, en contravía del principio de debida sustentación. Su desarrollo, necesariamente, implicaba exponer cuál fue el tipo de error -falso juicio de existencia, de identidad o falso raciocinio- y desarrollarlo conforme a la técnica correspondiente.”. 
+(ii) “De la lectura de la demanda se infiere que hubo inconformidades del recurrente con la valoración que hizo el Tribunal de las pruebas practicadas y que llevaron a la condena por el punible de feminicidio agravado en grado de tentativa. Ese escenario es propio del falso raciocinio.”. 
+(iii) “Este tipo de error, para su demostración, requiere un ejercicio argumentativo que agote las siguientes fases: La identificación de la prueba cuya valoración se reprocha. Luego, el señalamiento de forma objetiva de lo que dice el medio probatorio. Seguido a esto, la precisión de la inferencia a la que erradamente llegó el juzgador y de la identificación de la correcta. Esto se conecta con la concreción de la regla desconocida y de su trascendencia en el sentido del fallo. Por último, el censor debe acreditar que las demás pruebas no desvirtúan la apreciación propuesta. Esto es precisamente lo que se extraña de la demanda.”.
+
+---
+
+# PROVIDENCIA DDP 8173
+
+**Número de Providencia (DDP 8173):** AP7527-2025
+**Radicación (DDP 8173):** 63729
+
+**Lista de Temas (DDP 8173):**
+(i) “La Corte recuerda que la violación indirecta de la ley sustancial en su vertiente de falso juicio de identidad, se verifica si el juzgador, pese a que consideró legal y oportunamente recaudada la prueba, la apreció alterando su contenido material. A este error comúnmente se llega porque se adicionan afirmaciones o negaciones que la prueba no contiene, se cercenan apartes sustanciales de su contenido o se distorsiona su literalidad, haciéndole decir lo que materialmente no expresa. En otras palabras, el fallador aprehende la prueba de manera diversa a lo que su expresión objetiva contiene.”. 
+(ii) “La forma de acreditar este yerro es elemental. Se trata, como ya lo ha explicado en múltiples oportunidades la Corte, de realizar un ejercicio de confrontación. Consiste en que, de una parte, se reproduce lo que textualmente expresa la prueba, y de otra, se muestra lo que el juzgador afirma que ella dice. De tal manera debe quedar evidenciado de manera ostensible que entre una y otra no existe identidad, y que el fallo le puso a decir «más de lo que su texto reza, menos de lo que su contenido encierra, o algo totalmente distinto de aquello que en realidad expresa» (Cfr. CSJ AP, 7 oct. 1997, rad. 10115).”. 
+(iii) “Es importante recalcar que el anterior error es objetivo. Esto significa que ninguna relación guarda con los yerros que se presentan en el proceso de apreciación del mérito de las pruebas. Tampoco con la construcción de las inferencias lógicas probatorias que son de naturaleza eminentemente valorativa, cuya alegación en casación debe orientarse por la vía del error de hecho por falso raciocinio.”. 
+(iv) “Si lo pretendido por el demandante consistía en hacer ver que el tribunal adicionó indebidamente el testimonio de Vladimir Enrique Villamizar Herrera alias «Júcaro», le correspondía demostrarlo mediante el cotejo objetivo entre lo realmente dicho por ese testigo y lo consignado en la sentencia. Sin embargo, en lugar de realizar tal confrontación, se limitó a resaltar contradicciones, retractaciones y ambigüedades propias de la valoración de la credibilidad, lo cual se corresponde con un falso raciocinio y no con un falso juicio de identidad. De esta manera, el reproche no satisface los requisitos de claridad y precisión exigidos por los artículos 212 y 213 de la Ley 600 de 2000. Esto, ya que confunde el contenido del error invocado con una simple inconformidad frente al criterio de valoración del tribunal; es decir, se limitó a efectuar sus propias e interesadas apreciaciones sobre cuál de las versiones de Villamizar Herrera debía recibir mayor crédito y  por qué el ad quem debió restarle fuerza probatoria a las demás en razón de las contradicciones que, a su juicio, se advertían en sus declaraciones.”. 
+(v) “Ahora, según el artículo 239 de la Ley 600 de 2000, las pruebas practicadas válidamente en una actuación judicial pueden trasladarse a otra en copia auténtica y ser valoradas de acuerdo con las reglas previstas en esa misma norma. En tales condiciones, la declaración en cuestión fue un medio de conocimiento legítimamente incorporado al proceso y, por ello, podía ser valorado por las autoridades judiciales.”. 
+(vi)  “Sobre el particular, la Sala ha sostenido que el derecho de contradicción frente a la prueba trasladada no depende solo del ejercicio del contrainterrogatorio. También se ejerce mediante la solicitud de pruebas, la formulación de objeciones, la impugnación de decisiones o la presentación de alegatos, entre otras actuaciones defensivas . Este derecho incluye, además, la posibilidad de repetición de la prueba en audiencia pública.”. 
+(vii) “De igual forma, en el sistema procesal penal regulado por la Ley 600 de 2000 rige el principio de permanencia de la prueba. Según este postulado, los medios de conocimiento recaudados durante la instrucción, o incluso antes, preservan su valor probatorio para sustentar la sentencia. Por ello, no se exige que el juez que profiere el fallo sea quien practique la prueba, ni que esta se produzca de forma ininterrumpida o exclusivamente en el juicio.”. 
+(viii) “Tampoco le asistió razón al casacionista cuando afirmó que no se podía dictar sentencia con base en una sola prueba. Con esta postulación, el libelista desconoció la posición pacífica de la Corte frente a la inexistencia de una tarifa legal probatoria que prohíba la valoración de una única prueba incriminatoria. En oposición, como lo ha explicado la Sala (CSJ AP4012-2022), en el sistema procedimental penal colombiano rige el principio de persuasión racional según el cual, el estándar de conocimiento para condenar que la ley exige puede provenir de un único medio de conocimiento, siempre y cuando este resulte coherente, verosímil y contenga serios criterios que le confieran credibilidad.”.
+
+---
+
+# PROVIDENCIA DDP 8174
+
+**Número de Providencia (DDP 8174):** AP7496-2025
+**Radicación (DDP 8174):** 67355
+
+**Lista de Temas (DDP 8174):**
+(i) “El demandante acudió de manera expresa a la causal prevista en el numeral 3º del artículo 181 de la Ley 906 de 2004. En su sentir, el Tribunal incurrió en la violación indirecta de la ley sustancial por error de hecho derivado de un falso raciocinio.”. 
+(ii) “Respecto de aquel, la Corte ha sido enfática en indicar qué aspectos corresponde acreditar al recurrente: …”. 
+(iii) “Lo que se advierte es el desacuerdo del demandante con el mérito probatorio otorgado por las instancias a los testimonios de M.S.V.C., Claudia Marcela Chipatecua, William Chipatecua Bernal –mamá y hermano de la menor, respectivamente- y Liliana Yaneth Orjuela, psicóloga del ICBF, sin que mencionara cuáles principios de la sana crítica se desconocieron o fueron indebidamente aplicados, y la entidad de las supuestas contradicciones en que incurrió la afectada de cara a lo inferido por el Tribunal a partir de sus manifestaciones.”. 
+(iv) “En el falso raciocinio, el error no se configura por la simple divergencia que el demandante pueda mostrar con relación al mérito persuasivo conferido por el sentenciador a los elementos de juicio obrantes en el proceso, sino que debe evidenciarse con precisión si en ese ejercicio intelectivo se conculcaron los parámetros de la sana crítica como medio de formación del conocimiento.”. 
+(v) “Finalmente, el defensor reprocha que la Fiscalía renunció al testimonio del doctor Richard Enessey Preciado, pues indica que su declaración e informe médico legal sexual que elaboró «constituirían la prueba reina para determinar el abuso sexual»; sin embargo, no desarrolló tal recriminación y se quedó en un simple enunciado. En el fallo atacado, sobre el particular se consideró lo siguiente: …”.
+
+---
+
+# PROVIDENCIA DDP 8175
+
+**Número de Providencia (DDP 8175):** AP7364-2025
+**Radicación (DDP 8175):** 62254
+
+**Lista de Temas (DDP 8175):**
+(i) “Tratándose de la causal segunda de nulidad por desconocimiento de la estructura del debido proceso, o por afectación de la garantía debida a cualquiera de las partes con capacidad de invalidar la actuación, es imperioso para el demandante: 
+(i) indicar el motivo de nulidad que se configura (incompetencia, violación del debido proceso o violación del derecho de defensa); 
+(ii) identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–; 
+(iii) demostrar su configuración; 
+(iv) precisar la norma o normas violadas; 
+(v) especificar su cobertura invalidatoria; 
+(vi) justificar la procedencia de su declaración de cara a los principios de taxatividad, acreditación, convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad; y, 
+(vii) acreditar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(ii) “La simple enunciación de supuestos errores de procedimiento o de garantía no es suficiente para quebrar la presunción de acierto y legalidad que ampara la sentencia. Es menester indicar en qué consistió en concreto la irregularidad y demostrar que, frente a los principios ya indicados y las particularidades del caso, no existe alternativa distinta de solución que la invalidación del trámite.”. 
+(iii) “… la facultad de renunciar o desistir de práctica probatoria: …”. 
+(iv) “La autónoma determinación de desistir de la práctica de una prueba, per se, no afecta los derechos de la contraparte como lo sugiere el casacionista, máxime cuando la Fiscalía en este asunto cumplió con la carga que le incumbía, esto es, «suministrar todos los elementos probatorios e informes de que tenga noticia, incluidos los que sean favorables al procesado» –artículo 15 de la Ley 906 de 2004–.”. 
+(v) “Por tanto, si la Fiscalía descubre un elemento material probatorio que beneficia al procesado, no significa que esté obligada a su solicitud en la audiencia preparatoria o práctica en el juicio oral y, por el contrario, corresponderá a la defensa pedirlo como propio, si es que en realidad le reporta alguna utilidad para su estrategia defensiva.”. 
+(vi) “La Sala ha de recordar que los errores que se presentan en la producción de la prueba son de derecho, su ataque se debe hacer por la vía de la violación indirecta de la ley sustancial como errores de derecho por falso juicio de legalidad y su consecuencia debe ser la exclusión.”. 
+(vii) “El juicio de legalidad respecto del proceso de producción de la prueba dice relación con las normas que regulan su formación y la manera legítima de incorporarla al proceso, esto es, con el principio de legalidad en materia probatoria y la observancia de los presupuestos y formalidades exigidos para cada medio.”. 
+(viii) “El falso juicio de legalidad se presenta cuando el juzgador valora la prueba porque considera que cumple los requerimientos formales exigidos para su validez jurídica, no obstante incumplirlos –falso juicio de legalidad positivo–, o cuando no la valora porque considera que no los cumple, a pesar de reunirlos –falso juicio de legalidad negativo–.”. 
+(ix) “Frente a las leyes de la ciencia, en proveído CSJ AP5053–2025, 25 jul. 2025, rad. 69192, la Sala recordó que están: …”.
+
+---
+
+# PROVIDENCIA DDP 8176
+
+**Número de Providencia (DDP 8176):** AP7245-2025
+**Radicación (DDP 8176):** 64737
+
+**Lista de Temas (DDP 8176):**
+(i) Una supuesta “nulidad por afectación de los derechos a la defensa y al debido proceso -numeral 2º del artículo 181 de la Ley 906 de 2004”. 
+(ii) “A su vez, la fundamentación de una solicitud de esta índole debe hacerse conforme a los principios que la rigen, taxatividad, acreditación, protección, convalidación, trascendencia, instrumentalidad y residualidad , pues si se avizora que el defecto denunciado no alcanza a transgredir, en grado suficiente, el desarrollo de la actuación, ni alterar lo decidido en el fallo censurado, no hay lugar a la admisión del reproche (CSJ, SP185-2024, AP3814-2023, AP668-2023, AP3081-2022, entre otras).”. 
+(iii) “Con respecto a la lesión del debido proceso, la Corte ha sostenido que ocurre cuando se “omite un acto procesal expresamente señalado por la ley como requisito sine qua non para adelantar el subsiguiente, o llevarlo a cabo sin que cumpla los requisitos sustanciales inherentes a su validez o eficacia” (AP3646-2025).”. 
+(iv) “Por otra parte, cuando se invoca la nulidad por violación del derecho a la defensa, la Sala ha precisado que se debe especificar la actuación que conculca esa prerrogativa, sin que sea suficiente realizar descalificaciones de la actividad de quien ejerció la defensa técnica, como equivocado, descuidado o inepto. Tampoco tener como sustento el desacuerdo en la estrategia ejercida, más aún, desconociendo la actividad procesal y el conjunto probatorio existente en el expediente. Por ello, la Corte ha sostenido pacíficamente que, la simple discrepancia de criterios en torno a la maniobra defensiva no configura una nulidad (CSJ, AP668-2023, CSJ SP3949-2019 y SP3052-2015).”. 
+(v) “Afirmó que la negativa, llevó a la defensa de la época a renunciar a sus testigos de descargo, los cuales eran determinantes para poner “en duda la versión de la víctima”. Agregó que, el juez debió informar al profesional del derecho de la época de las consecuencias adversas de la decisión, pero no lo hizo. En consecuencia, no se llevó a juicio ninguna prueba que refutara las manifestaciones de la víctima.”. 
+(vi) “… el manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia, en la modalidad de falso juicio de convicción -numeral 3º del art. 2º del artículo 181 de la Ley 906 de 2004”. 
+(vii) “La causal invocada se presenta por la incorrecta apreciación probatoria derivada de los denominados errores de derecho y de hecho.”. 
+(viii) “Los primeros, se configuran cuando el juez al apreciar la prueba desconoce las reglas que regulan su producción y eficacia, entre ellos están, el falso juicio de convicción  y de legalidad . Los segundos, implican un vicio fáctico, es decir, que el fallador se equivocó al contemplar materialmente el medio de prueba, en esta categoría se encuentran: el falso juicio de existencia , falso juicio de identidad  y falso raciocinio  (CSJ AP2259-2024, AP2271-2024, AP2724-2023, AP1381-2023, AP3457-2022).”. 
+(ix) “Acorde con lo anterior, al demandante le corresponde identificar cuál de los citados errores de hecho o de derecho se configuran en cada caso y desarrollarlos de forma coherente y lógica, acorde con los presupuestos jurisprudenciales que cada error exige. Ahí, es indispensable que ilustre cómo los desaciertos fueron determinantes y que desencadenaron una resolución jurídica equivocada, de manera que, la corrección de los desatinos lleve a una solución favorable a la parte que los invocó.”. 
+(x) “Entre los errores de derecho se encuentra el falso juicio de convicción que se configura en dos escenarios: 
+(i) cuando el juez le niega a la prueba el valor que dispone la ley o ii) el juez le da a la prueba un valor distinto al que la ley impone.”. 
+(xi) “En cualquiera de los dos eventos, el casacionista debe: 
+(i) identificar la prueba afectada por el yerro y la norma que establece el valor o restricción probatoria aplicable; 
+(ii) argumentar debidamente por qué se consideran desconocidos los preceptos legales de valoración; y, 
+(iii) acreditar la trascendencia de dicha valoración en la decisión adoptada por las instancias (CSJ AP3666-2024, AP2145-2023).”. 
+(xii) “Debido al alcance limitado de ese error, en el ordenamiento jurídico colombiano se presentaría en dos eventos: 
+(i) cuando el funcionario desconoce la tarifa legal negativa que el legislador estableció en el artículo 314 de la Ley 600 de 2000, relativa a los informes de la policía judicial en las labores previas de verificación o, 
+(ii) la del inciso 2º del artículo 381 de la Ley 906 de 2004 (CJS AP1006-2025, AP3457-2022).”.
+
+---
+
+# PROVIDENCIA DDP 8177
+
+**Número de Providencia (DDP 8177):** AP7320-2025
+**Radicación (DDP 8177):** 60310
+**Decisión (DDP 8177):** SMS DEL 7.11.2025
+
+**Lista de Temas (DDP 8177):**
+(i) “Cuando en casación se invoca un error de hecho por falso raciocinio, es preciso demostrar que la judicatura, al momento de asignarle mérito persuasivo a determinado elemento de juicio, transgredió los principios que gobiernan la sana crítica como método de valoración probatoria, esto es, los postulados de la lógica, las leyes de la ciencia y/o las reglas de experiencia.”. 
+(ii) “En tal supuesto, la correcta sustentación del error impone al demandante: 
+(i) identificar el medio probatorio indebidamente valorado; 
+(ii) precisar: lo que la prueba dice, el mérito persuasivo otorgado por el juzgador y, el postulado lógico, la ley científica o la máxima de experiencia desconocida en el fallo; y, 
+(iii) acreditar la trascendencia del error, expresando con claridad cuál debe ser la adecuada inferencia de la prueba, con la exigencia de justificar, a través del examen conjunto de los medios suasorios, que la enmienda del yerro daría lugar a una declaración de derecho esencialmente diversa y favorable a los intereses del procesado.”. 
+(iii) “… aludió al principio de no contradicción, que ha sido explicado por la Sala en el sentido que «una cosa no puede entenderse en dos dimensiones al mismo tiempo, lo cual significa que, una cosa no puede ser y no ser simultáneamente, o que dos juicios, que entre sí se contradicen, no pueden ser verdaderos al mismo tiempo» (Cfr. entre otras, CSJ AP4308–2021, 15 sep. 2021, rad. 56635).”. 
+(iv) “Como ha explicado la Sala (Cfr. CSJ AP5158–2025, 6 ag. 2025, rad. 61668), la demanda de casación no se puede dirigir contra los testigos, o lo que ellos dicen, ni respecto de las contradicciones internas en las cuales pueden incurrir, sino que su objeto central radica en el examen que de esas afirmaciones hicieron las instancias. Por manera que, si se advierte afectado algún postulado lógico, la discusión debe plantearse en torno de la forma en que los jueces examinaron dichas atestaciones y no respecto de su contenido intrínseco.”.
+
+---
+
+# PROVIDENCIA DDP 8178
+
+**Número de Providencia (DDP 8178):** AP7331-2025
+**Radicación (DDP 8178):** 70101
+
+**Lista de Temas (DDP 8178):**
+(i) “Sea lo primero precisar que en el asunto de la especie los hechos objeto de juzgamiento tuvieron ocurrencia en el mes de abril de 2016, calenda para la cual ya se encontraba vigente la Ley 1407 de 2010, normatividad que reúne el Código Penal y Procesal Penal para la Justicia Penal Militar, como quiera que, de conformidad con lo señalado en sus artículos 177 y 628, en consonancia con la sentencia de la Corte Constitucional CC C–444–2011, en los aspectos sustanciales aquella rige para los sucesos acaecidos a partir del 17 de agosto de 2010, por ende, es la normatividad llamada a regular este trámite en la parte sustantiva.”. 
+(ii) “Sin embargo, la efectiva aplicación de la Ley 1407, en tanto se refiere al sistema oral acusatorio que en ella se diseñó para la Justicia Penal Militar, quedó condicionada, como en su momento se hizo con la Ley 906 de 2004, a un proceso de implementación territorial.”. 
+(iii) “En tal virtud, en un primer momento se expidió el Decreto 2960 del 17 de agosto de 2011, en el cual se establecieron cuatro fases territoriales de desarrollo anual, en las que progresiva y sucesivamente, entre 2012 y 2015, y desde el 1 de enero del primer año, se aplicaría el sistema penal acusatorio en la Justicia Penal Militar.”. 
+(iv) “Pero, como la introducción del sistema también se hizo depender de otras condiciones, especialmente presupuestales, de logística y de personal, el Gobierno Nacional dictó el Decreto 4977 del 30 de diciembre de 2011, modificatorio del 2960, para determinar que las cuatro fases territoriales, a fin de implementar la operatividad y aplicación del sistema penal acusatorio en la Justicia Penal Militar comenzarían a partir del 1 de enero de 2013, es decir, se surtirían entre 2013 y 2016.”. 
+(v) “Ante una nueva imposibilidad de concretar la aplicabilidad del sistema oral acusatorio, esta se aplazó para el 1 de enero de 2014, según el Decreto 2787 del 28 de diciembre de 2012 y así, sucesivamente, sucedió con los Decretos 314 de febrero 18 de 2014, Decreto 1070 de mayo 26 de 2015, Decreto 878 de mayo 27 de 2016, Decreto 027 de enero 12 de 2017, Decreto 1575 de septiembre 28 de 2017 y Decreto 1768 de diciembre 24 de 2020.”. 
+(vi) “Todo lo anterior para significar que, si bien, la Ley 1407 de 2010 entró en vigor el 17 de agosto de esa anualidad, ante la falta de implementación no había sido viable aplicarla en lo que corresponde al sistema penal acusatorio; luego, los procesos, así se trate de hechos ocurridos con posterioridad a la mencionada calenda, se han tramitado de conformidad con los ritos contenidos en la Ley 522 de 1999, espectro en el que se inscribe el asunto bajo examen.”. 
+(vii) “La Sala ha acogido el criterio (Cfr. CSJ AP3041–2016, 18 may. 2016, rad. 47676) según el cual, cuando la nulidad en la sede extraordinaria se vincula al desconocimiento del «principio de investigación integral», entre otras circunstancias, por no decretar los funcionarios judiciales algunas pruebas, se deben relacionar éstas, indicar su fuente y explicar por qué eran procedentes, conducentes, pertinentes, útiles y posibles todavía de practicar, definiendo qué se acreditaría con las mismas, para brindarle a la Corte la oportunidad de confrontar sus contenidos eventuales con las motivaciones del fallo y así definir si en realidad se vulneraron las garantías fundamentales del procesado.”. 
+(viii) “La postulación de un cargo con tal alcance obliga también del censor discernir sobre la manera como las pruebas dejadas de practicar cuentan con la capacidad de incidir favorablemente en la situación del acusado, bien en cuanto al grado de responsabilidad deducido, frente a las sanciones impuestas o, simplemente, porque los medios de convicción omitidos podrían desvirtuar razonablemente la existencia de la conducta punible o acreditar cualquier circunstancia de beneficio frente a la imputación que soporta (Cfr. CSJ AP, 5 dic. 2007, rad. 28613).”. 
+(ix) “Agréguese que la omisión en practicar determinada prueba no puede calificarse ab initio y sin más como desconocedora del principio de investigación integral, cuando el funcionario judicial dentro de la órbita de sus atribuciones y bajo criterios de economía, celeridad y racionalidad, está facultado para decretar, bien de oficio o a petición de los sujetos procesales, solamente la práctica de aquellas que sean de interés para la investigación, procurando siempre el conocimiento de la verdad, más aún cuando tal parámetro procesal no supone en modo alguno agotar hasta las últimas consecuencias la posibilidad investigativa de instructor y fallador, ni corroborar con otros medios lo que ya dentro de cauces probatorios adecuados fue demostrado …”. 
+(x) “Cuando se acude a la violación indirecta de la ley sustancial en su vertiente de falso juicio de identidad, ha de recordarse que el mismo se verifica en caso de que el juzgador, al apreciar el contenido material de la prueba, la altera, error al que de ordinario se llega porque se adicionan afirmaciones o negaciones que no contiene, o se cercenan apartes sustanciales de su contenido, o se distorsiona su literalidad, haciéndole decir lo que materialmente no enseña, esto es, la lee de manera diversa a lo que su expresión objetiva contiene.”. 
+(xi) “La forma de acreditar este yerro es elemental. Se trata, como ya lo ha explicado la Corte, de realizar un ejercicio de confrontación, en el que, de una parte, se reproduce lo que textualmente la prueba expresa, y de otra, se muestra lo que el juzgador afirma que ella dice, con el fin de evidenciar que entre una y otra no existe identidad, y que el fallo le puso a decir «más de lo que su texto reza, menos de lo que su contenido encierra, o algo totalmente distinto de aquello que en realidad expresa» (Cfr. CSJ AP, 7 oct. 1997, rad. 10115).”. 
+(xii) “Es importante recalcar que este error es objetivo y, por tanto, ninguna relación guarda con los dislates que se presentan en el proceso de apreciación del mérito de las pruebas, o en la construcción de las inferencias lógicas probatorias, que son de naturaleza eminentemente valorativa, cuya alegación en casación debe orientarse por la vía del error de hecho por falso raciocinio.”. 
+(xiii) “Además, la Sala ha precisado (Cfr. CSJ SP2131–2019, 12 jun. 2019, rad. 50963; CSJ AP3262–2021, 4 ag. 2021, rad. 55175; y, CSJ AP4311–2021, 15 sep. 2021, rad. 56949, entre otras) que el error de hecho por falso juicio de identidad por cercenamiento no se estructura por no mencionar el juzgador ciertos apartes de un medio de prueba. Si así fuera, las providencias serían interminables y plagadas de detalles que no ayudarían a conferirle claridad.”. 
+(ivx) “Lo que se exige es motivarlas fáctica, probatoria y jurídicamente, deber que se hace palpable en el momento que el juez precisa el peso inculpatorio o desincriminatorio específico de la prueba en la decisión, sin necesidad de referirse a todos y cada uno de los detalles que ella contiene, si estos no inciden en lo sustancial en la resolución del asunto, o son descartados implícitamente en la valoración.”.
+
+---
+
+# PROVIDENCIA DDP 8179
+
+**Número de Providencia (DDP 8179):** AP7299-2025
+**Radicación (DDP 8179):** 64988
+
+**Lista de Temas (DDP 8179):**
+(i) “Sobre la acción de revisión y los requisitos para promoverla”. 
+(ii) “Sobre la acción de revisión y los requisitos para promoverla”. 
+(iii) Los hechos nuevos. 
+(iv) Las pruebas nuevas. 
+(v) “En lo atinente a la segunda causal invocada, que requiere la demostración de que la sentencia objeto de revisión se basó, en todo o en parte, en prueba falsa fundante para sus conclusiones, la jurisprudencia de esta Corporación, de manera pacífica y reiterada, ha señalado que se debe allegar una decisión judicial ejecutoriada en la que se hubiera establecido tal falsedad, y se debe acreditar que esa prueba falsa fue el fundamento para condenar al solicitante de la acción de revisión.”. 
+(vi) “Por tanto, conforme lo ha precisado de manera insistente la Sala, para la prosperidad de esta específica causal no basta afirmar que una prueba es falsa para que, a partir de esa aseveración, se ordene rescindir el fallo. De esta manera, cuando se promueve la acción de revisión con fundamento en el numeral 6 del art. 192 de la Ley 906 de 2004, corresponde al solicitante demostrar, mediante providencia judicial en firme, la certeza de la falsedad de las pruebas que influyeron esencialmente en aquello que fue declarado en la sentencia.”. 
+(vii) “Así lo indicó la Corte, al señalar que “aun cuando el texto actual no lo diga, el carácter espurio de la prueba se determina mediante una decisión judicial, ya que su falsedad no puede establecerse con la simple opinión del actor o una nueva crítica de los medios probatorios que sustentan la sentencia”.”.
+
+---
+
+# PROVIDENCIA DDP 8180
+
+**Número de Providencia (DDP 8180):** AP7228-2025
+**Radicación (DDP 8180):** 62541
+
+**Lista de Temas (DDP 8180):**
+(i) “Sobre lo primero, que corresponde a la causal invocada, se limita a aseverar que deben considerarse las normas orientadas a proteger los derechos de los niños, sin dedicar ni una línea a explicar si, en su opinión, el delito de violencia intrafamiliar no hace parte del listado previsto en el artículo 68 A del Código Penal, si esa norma debió ser inaplicada o alguna otra razón orientada a cuestionar la decisión que tomaron los juzgadores frente a la prisión domiciliaria.”. 
+(ii) “Frente a lo segundo, se limita a afirmar que los juzgadores debieron valorar la documentación aportada durante la audiencia regulada en el artículo 447 de la Ley 906 de 2004, sin precisar: 
+(i) cuáles son los documentos a los que alude; 
+(ii) los yerros que recayeron sobre los mismos; 
+(iii) la trascendencia de los mismos, en el ámbito de esta forma extraordinaria de impugnación; y 
+(iv) por qué esa situación desvirtúa lo que expresaron los juzgadores acerca de que el delito por el que se emitió la condena está cobijado con las expresas prohibiciones previstas en el artículo 68 A en cita.”.
+
+---
+
+# PROVIDENCIA DDP 8181
+
+**Número de Providencia (DDP 8181):** AP7218-2025
+**Radicación (DDP 8181):** 60025
+
+**Lista de Temas (DDP 8181):**
+(i) “El demandante aduce la materialización de un vicio por falso juicio de identidad, una de las modalidades del error de hecho, cuyo efecto recae en la contemplación material de la prueba.”. 
+(ii) “Se configura cuando el juzgador altera, adiciona o mutila su literalidad, dándole un alcance o significado distinto al sentido exacto y propio de las palabras o de lo que su contenido expresa.”. 
+(iii) “Al casacionista, en su demostración, le compete individualizar la prueba sobre la cual predica el error; identificar su especie; confrontar la literalidad del fallo con la del medio probatorio objeto de falseamiento o tergiversación, y, mostrar su trascendencia en el fallo, es decir, que, de no haber incurrido en él su sentido sería diferente.”. 
+(iv) “Cuando se discute la violación directa de la ley sustancial, el demandante está en la obligación de precisar el error de juicio del fallador en relación con el precepto regulador del supuesto fáctico en concreto, yerro que puede corresponder a la selección normativa respecto de la existencia de la disposición (falta de aplicación o exclusión evidente); por una equivocada adecuación de los hechos probados a los contemplados legalmente (aplicación indebida); o bien, de carácter hermenéutico, cuando se entrega a la norma un sentido que no tiene o se le asignan efectos diversos o contrarios a su contenido (interpretación errónea).”. 
+(v) “De este modo, el debate se circunscribe netamente a lo jurídico, para de esta manera evidenciar que se dejó de lado el precepto que disciplina la situación específica demostrada, que tal hecho se ajusta a otra disposición normativa, o que se tergiversó su alcance, lo cual exige, necesariamente, aceptar la apreciación probatoria y consecuente declaración de los hechos adelantada por los fallos.”. 
+(vi) “Pasa por alto la defensa que, tanto la Corte Constitucional , como la Sala de Casación Penal , han establecido que la actividad del ente acusador en materia de preacuerdos y negociaciones está regida por el concepto de discrecionalidad reglada, y, en consecuencia, no inhabilita a los jueces para ejercer el respectivo control a la forma de terminación anticipada del proceso, ello, con miras a cumplir con los presupuestos legales de la condena.”.
+
+---
+
+# PROVIDENCIA DDP 8182
+
+**Número de Providencia (DDP 8182):** AP7526-2025
+**Radicación (DDP 8182):** 62378
+**Decisión (DDP 8182):** SMS DEL 10.11.2025
+
+**Lista de Temas (DDP 8182):**
+(i) “En efecto, ha dicho la Sala que cuando se alega el error de hecho por falso raciocinio, se impone para quien lo invoca demostrar que la valoración impartida por el fallador sobre el medio de prueba desconoce las reglas de la sana crítica. Estas son las de la lógica, de la ciencia o de la experiencia. Por esto es forzoso que, tras haberse identificado el medio probatorio sobre el cual recae el reproche, se señale qué dice concretamente, qué se infirió de él en la sentencia atacada y cuál fue el mérito valorativo otorgado.”. 
+(ii) “Los planteamientos del demandante en el reparo distan de colmar los presupuestos que se acaban de reseñar. No demuestran que en la sentencia impugnada se incurrió en el defecto de valoración probatoria referido, con la entidad de derrumbar la doble presunción de acierto y legalidad que gobierna al fallo impugnado.”. 
+(iii) “Lo que en esencia ofrece el defensor es su particular visión sobre parte de la prueba practicada en el juicio oral. Busca que se concluya, entre otros puntos, que las declaraciones de la menor víctima y de su progenitora no satisfacen el estándar de conocimiento requerido para concluir la responsabilidad penal de su prohijado.”. 
+(iv) “No se puede considerar que la propuesta de violación a las reglas de la lógica y la experiencia se encasille en un falso raciocinio en la valoración de la prueba. En efecto, ninguna explicación desarrolló la demanda sobre esta supuesta falla en el razonamiento probatorio, más allá de aducir opiniones sobre lo probado en juicio.”. 
+(v) “Por un lado, no existe contradicción alguna en el hecho de que la víctima fragmente sus respuestas en su declaración, de manera que, en distintos momentos, describa los actos perpetrados por el acusado. Además, al momento de declarar, la niña AYVR tenía tan solo 8 años de edad, circunstancia que no puede pasar desapercibida al esperar determinada integración en sus respuestas.”. 
+(vi) “Por otro lado, es cierto que, con frecuencia, las víctimas de delitos sexuales presentan secuelas de distinta índole, a partir del trauma derivado de la afrenta a su integridad sexual. Ahora, no existe una única regla en la que se manifiesten estas secuelas y, en todo caso, su falta de verificación no es suficiente para descartar la agresión.”.
+
+---
+
+# PROVIDENCIA DDP 8183
+
+**Número de Providencia (DDP 8183):** No especificado
+**Radicación (DDP 8183):** CUI 76520-60-00-182-2019-00011-01 (
+**Decisión (DDP 8183):** AC-419-25).
+
+**Lista de Temas (DDP 8183):**
+(i) “Los recursos ordinarios en contra de la decisión que decreta una prueba”. 
+(ii) “En este orden de ideas, la Sala considera que el recurso de apelación contra autos que admiten una prueba, por regla general, no es procedente, salvo cuando se argumenten aspectos relacionados con rechazo por no descubrimiento, o de exclusión por obtención ilícita o ilegal del medio de conocimiento. Los temas de admisibilidad no son susceptibles de análisis en doble instancia, en los casos en los que la prueba es decretada.”. 
+(iii) “La prueba ilícita y la prueba ilegal”. 
+(iv) “Sobre la expectativa razonable de intimidad”. 
+(v) “En conclusión, la expectativa razonable de intimidad requiere de un análisis respecto de la calidad de la información, el lugar en el que divulga y la intención del titular de mantener el dato o la actuación en secreto, sin que éste último criterio pueda valorarse únicamente desde una perspectiva subjetiva, sino también a partir de razonamientos más o menos objetivos, en la medida que el grado de protección de la intimidad no puede depender solamente de lo que, en su esfera interior, quería el titular de la garantía.”. 
+(vi) “El secreto profesional y la relación médico-paciente.”.
+
+---
+
+# PROVIDENCIA DDP 8184
+
+**Número de Providencia (DDP 8184):** No especificado
+**Radicación (DDP 8184):** CUI 11001-60-00-049-2014-03786-01
+
+**Lista de Temas (DDP 8184):**
+(i) Nulidad por “presunta violación al debido proceso”. 
+(ii) La contumacia. 
+(iii) La omisión de agente retenedor. 
+(iv) “las obligaciones tributarias de los representantes legales y los suplentes derivadas del contenido de la ley, como lo es el deber de consignar el impuesto sobre el agregado IVA recaudado y declarado, no se desvanecen con la liquidación de la sociedad obligada”. 
+(v) La prisión domiciliara para este caso con un procesado de 83 años. 
+(vi) Las audiencias virtuales.
+
+---
+
+# PROVIDENCIA DDP 8185
+
+**Número de Providencia (DDP 8185):** No especificado
+**Radicación (DDP 8185):** CUI 76-001-6000-193-2024-08801-01 (
+**Decisión (DDP 8185):** AC-572-25).
+
+**Lista de Temas (DDP 8185):**
+(i) La preclusión. 
+(ii) “En el asunto objeto de examen, se constata que, si bien el escrito de acusación había sido formalmente radicado, el fiscal delegado no alcanzó a verbalizar su contenido en audiencia, pues al iniciarse la diligencia manifestó su clara intención de variar el objeto de esta para presentar una solicitud de preclusión por atipicidad del hecho investigado.”. 
+(iii) “En este escenario, la Sala considera que no puede entenderse materialmente iniciada la etapa de juzgamiento, toda vez que la acusación —como lo ha señalado reiteradamente la Corte Suprema de Justicia (CSJ SP, rads. 38256/12, 41165/13, 53468/19, 54694/20, 64207/23, entre otros)— constituye un acto complejo cuyos efectos procesales y sustanciales solo se consolidan con su sustentación oral ante el juez de conocimiento. En consecuencia, la mera radicación del pliego de cargos no comporta, por sí misma, el tránsito inmediato a la fase de juicio como aconteció en el caso de marras.”. 
+(iv) “El fiscal, en su calidad de titular de la acción penal, no solo tiene la posibilidad de retirar el escrito acusatorio, sino que además conserva la facultad de requerir la variación del sentido de la convocatoria a la audiencia de formulación de acusación, en la medida en que el trámite aún no ha ingresado en la órbita funcional del juez. En ejercicio de esa potestad, puede optar por sustituirla por una diligencia de preacuerdo o de preclusión.”.
+
+---
+
+# PROVIDENCIA DDP 8187
+
+**Número de Providencia (DDP 8187):** No especificado
+**Radicación (DDP 8187):** CUI 76001600019320151450201 (
+**Decisión (DDP 8187):** AC-533-25). SMS DEL 11.11.2025
+
+**Lista de Temas (DDP 8187):**
+(i) “El allanamiento y registro sin orden escrita de la Fiscalía”. 
+(ii) “De acuerdo con la jurisprudencia de la Corte Constitucional, el núcleo esencial del derecho a la intimidad “presupone la existencia y goce de un espacio reservado de cada individuo que se encuentra exento de la intervención o intromisiones arbitrarias del Estado y la sociedad”. Esta también ha distinguido los ámbitos de protección del derecho mencionado: …”. 
+(iii) “La expectativa razonable de intimidad es “una zona de protección garantizada en la que el individuo puede actuar basado en la confianza legítima de que no habrá injerencias del Estado o de terceros”, en la medida de que el derecho a la intimidad no es absoluto. El espacio físico en el que las personas adelantan sus actividades se relaciona con el grado de protección a la expectativa razonable de intimidad, como se sintetiza en la siguiente tabla: …”. 
+(iv) “En lo que tiene que ver con la primera excepción al requisito de la orden para el allanamiento y registro, que se relaciona con el caso concreto, la Corte Suprema de Justicia ha fijado unas subreglas para valorar si el consentimiento ha sido libre al momento de determinar si se ha configurado la causal primera para el allanamiento y registro sin orden escrita, que interesan para el caso bajo examen: 
+(i) el consentimiento debe provenir de quien tenga un verdadero interés en la protección constitucional de su intimidad y se pueda ver afectado por la diligencia; 
+(ii) si hay varios moradores en el domicilio que se pretende registrar, será suficiente con la autorización de uno de ellos; 
+(iii) cuando hay intereses contrapuestos en materia de intimidad de los habitantes del inmueble, el consentimiento de uno de ellos no habilitará el allanamiento y registro de espacios de intimidad no habilitados para el escrutinio de los demás moradores (ej. inquilinos), así existan vínculos familiares entre ellos; y 
+(iv) el consentimiento debe ser expreso y espontáneo.”. 
+(v) “Sobre el delito de receptación de hidrocarburos”.
+
+---
+
+# PROVIDENCIA DDP 8188
+
+**Número de Providencia (DDP 8188):** SP1961-2025
+**Radicación (DDP 8188):** 61680
+
+**Lista de Temas (DDP 8188):**
+(i) “En materia de la prueba testimonial no resulta inusual que los testigos modifiquen sus relatos, motivo por el cual, en principio, la normatividad procesal aplicable prevé la posibilidad de impugnar credibilidad con base en manifestaciones precedentes.”. 
+(ii) “Esta Sala ha advertido que el cambio de versión “puede obedecer a amenazas, sobornos, miedo, el propósito de no perpetrar una mentira, entre otros, puede generar graves consecuencias para la recta y eficaz administración de justicia”.”. 
+(iii) “Así las cosas, propiamente en aquellos eventos de retractación, realmente lo que corresponde al juez es desplegar un ejercicio riguroso de comparación y/o cotejo entre las diferentes versiones, identificar, en detalle, las divergencias, como el propósito de establecer, a partir de la libertad de apreciación probatoria y de la sana crítica, cuál de los relatos genera una mayor convicción o, de ser el caso, concluir que ninguna la amerita.”. 
+(iv) “De tiempo atrás la Corte (CSJ, SCP, SP1114-2025) “en forma pacífica y reiterada, ha señalado que la retractación del testigo no destruye en forma automática lo que el declarante sostuvo de manera precedente, ni conduce a su descrédito total, sino que se constituye en una circunstancia que debe llevar al establecimiento del motivo de las versiones opuestas, el cual debe ser apreciado por el Juez para determinar si le otorga credibilidad a alguna de ellas y con qué alcances, naturalmente, teniendo en cuenta las demás pruebas del proceso”.”. 
+(v) “Si el testigo se retracta o cambia de versión, existe la posibilidad jurídica  de que sus declaraciones previas sean tenidas como testimonio adjunto, siempre que se verifique : i) un cambio de versión; ii) la presencia y disponibilidad en el juicio para que el declarante pueda ser interrogado sobre las dos versiones; iii) se lea y escuche la declaración anterior; y iv) la solicitud de incorporación a ese título, con garantía de los derechos del procesado.”.
+
+---
+
+# PROVIDENCIA DDP 8189
+
+**Número de Providencia (DDP 8189):** AP6883-2025
+**Radicación (DDP 8189):** 69365
+
+**Lista de Temas (DDP 8189):**
+(i) “El artículo 18 A de la Ley 975 de 2005, adicionado por la Ley 1592 de 2012, establece que para sustituir la medida de aseguramiento de detención preventiva en establecimiento carcelario por otra no privativa de la libertad, es necesario verificar el cumplimento de los siguientes requisitos: …”. 
+(ii) “Según el artículo del Decreto 1069 de 2015, artículo 2.2.5.1.2.4.1. , dichas exigencias deben concurrir en su totalidad, conforme lo ordena la citada norma y lo ha precisado esta Corporación , pues la ausencia de uno de ellos impide acceder a la sustitución de la medida de aseguramiento, motivo por el cual han de acreditarse con elementos probatorios que respalden su cumplimiento.”. 
+(iii) “Sobre el particular, se recuerda que el artículo 18A de la Ley 975 de 2005, en su numeral 5, dispone que el postulado que pretenda la sustitución de la medida de aseguramiento no debe haber cometido delitos dolosos con posterioridad a su desmovilización.”. 
+(iv) “Esta circunstancia igualmente constituye causal de terminación del proceso de justicia y paz, en términos del numeral 5 del artículo 11 A ibidem, en tanto dispone: «cuando el postulado haya sido condenado por delitos dolosos cometidos con posterioridad a su desmovilización…». Elemental requerimiento para quienes aspiran a que las penas ordinarias les sean sustituidas por la alternativa máxima de ocho años de prisión prevista en el artículo 29 de la citada Ley 975.”. 
+(v) “Ahora bien, dependiendo de si esta situación se aduce en audiencia para dar por terminado el proceso, o si lo pretendido es impedir que al postulado se le sustituya la medida de aseguramiento privativa de la libertad por otra no restrictiva de este derecho, el Decreto 1069 de 2015 ha establecido las pautas para su acreditación.”. 
+(vi) “De la sustitución de la medida de aseguramiento privativa de la libertad y la restricción de «No residir o acudir a los municipios en los que delinquió».”.
+
+---
+
+# PROVIDENCIA DDP 8190
+
+**Número de Providencia (DDP 8190):** AP6853-2025
+**Radicación (DDP 8190):** 69888
+
+**Lista de Temas (DDP 8190):**
+(i) El recurso de apelación. 
+(ii) “De la preclusión de la investigación.”. 
+(iii) “Atipicidad del hecho investigado como causal de preclusión.”. 
+(iv) “Del delito de prevaricato por acción.”. 
+(v) “En conclusión, la materialidad de la conducta punible de prevaricato por acción exige demostrar que el acto censurado, esto es, la resolución, dictamen o concepto fue dictado de manera caprichosa o arbitraria por el servidor público, quien desconoce de forma abierta y ostensible los mandatos normativos o exigencias de análisis probatorio o jurídico que regulan el caso.”.
+
+---
+
+# PROVIDENCIA DDP 8191
+
+**Número de Providencia (DDP 8191):** SP1965-2025
+**Radicación (DDP 8191):** 63761
+**Decisión (DDP 8191):** CASA Y DEJA EN FIRME LA CONDENA DE PRIMER NIVEL.
+
+**Lista de Temas (DDP 8191):**
+(i) “El delito de acceso carnal abusivo con menor de catorce años.”. 
+(ii) “De las declaraciones rendidas antes del juicio por menores víctimas de delitos sexuales.”. 
+(iii) “Ahora, menester es indicar que, frente a las declaraciones previas de menores de edad víctima de delitos de agresión sexual, para alcanzar el estándar de conocimiento necesario para condenar es ineludible acudir a unos criterios de corroboración periférica que, para estos casos, ha previsto la jurisprudencia de esta Corporación bajo los siguientes términos: …”. 
+(iv) “De las estipulaciones probatorias.”. 
+(v) “Es preciso advertir que, si bien es cierto que, la Sala de Casación Penal de la Corte ha determinado la admisibilidad de pleno derecho de las declaraciones vertidas por menores de edad víctimas de delitos sexuales como prueba de referencia, a partir de lo normado en el liberal e, del artículo 438 de la Ley 906 -adicionado por la Ley 1652 de 2013-, como se expuso previamente, también lo es que, es a condición de que, al momento de la solicitud y decreto, más allá de una formula sacramental definida, las partes e intervinientes tengan claridad que al juicio ingresará por tal senda la versión del declarante.”. 
+(vi) “Ciertamente, la auscultación de la actitud asumida por la víctima nada dice sobre la veracidad o mendacidad de su narración, sencillamente porque no existen parámetros científicos que permitan establecer la forma en que las personas enfrentan un evento traumático de esa naturaleza, ni tampoco reglas lógicas o experienciales a partir de las que se pueda afirmar que siempre o casi siempre asumen, en tales casos, una u otra conducta.”.
+
+---
+
+# PROVIDENCIA DDP 8192
+
+**Número de Providencia (DDP 8192):** AP6872-2025
+**Radicación (DDP 8192):** 70321
+**Decisión (DDP 8192):** SMS DEL 12.11.2025
+
+**Lista de Temas (DDP 8192):**
+(i) “El artículo 85 de la Ley 600 de 2000 previó que el cambio de radicación procede cuando en el territorio donde se tramite la actuación existan circunstancias que afecten el orden público, la imparcialidad o la independencia judicial. También procede cuando se comprometan las garantías procesales, la publicidad del juicio o la seguridad de los sujetos procesales y funcionarios.”. 
+(ii) “Esa medida es de carácter excepcional y busca preservar el proceso frente a factores externos que puedan perturbar su desarrollo. Además, garantiza que la sentencia sea dictada por un juez libre de condicionamientos que comprometan su objetividad o afecten una recta administración de justicia.”. 
+(iii) “En tal perspectiva, constituye un mecanismo residual y extremo, aplicable únicamente cuando no existan medios jurídicos alternativos que conjuren las causas que lo originan. Asimismo, procede cuando, pese a haberse utilizado otros instrumentos, no se hayan obtenido los resultados esperados.”. 
+(iv) “La solicitud puede ser presentada por las partes, el Ministerio Público o el Gobierno Nacional, quienes deberán exponer fundamentos suficientes y allegar los elementos de prueba pertinentes. El juez que conozca del proceso informará lo correspondiente al superior competente para que adopte la decisión.”. 
+(v) “La Sala ha precisado reiteradamente que la variación de radicación no procede de manera automática , pues corresponde al juez de conocimiento examinar la procedencia de la solicitud y, de considerarla fundada, remitir el proceso al Tribunal competente.”. 
+(vi) “Según los precedentes jurisprudenciales se tiene que el Tribunal puede disponer el cambio de radicación dentro del mismo distrito judicial. Únicamente si se advierte que la superación de las circunstancias invocadas exige trasladar el proceso a un territorio distinto, se debe remitir a esta Corte para que evalúe la posible reasignación en otro distrito.”. 
+(vii) “En providencias anteriores, entre ellas el auto CSJ AP3970-2022 del 2 de septiembre de 2022 (62021), se puntualizó que el despacho que recibe la petición y el Tribunal Superior de Distrito Judicial deben verificar todas las circunstancias. De un lado, les corresponde definir si la solicitud es procedente y, de otro, si el cambio puede operar en el mismo distrito.”. 
+(viii) “Finalmente, en caso de que se descarte la viabilidad dentro del mismo distrito judicial, a la Corte Suprema corresponde decidir si es viable el cambio y, de ser así, cuál es el que debe asumir la competencia. En todo caso, la verificación de procedencia es una obligación ineludible de las instancias inferiores.”. 
+(ix) “En algunas ocasiones, la Sala ha reconocido la posibilidad de prescindir del trámite ante el superior y resolver directamente la solicitud de cambio de radicación. Sin embargo, una tal eventualidad procede cuando en el territorio exista un único juzgado con competencia para conocer del proceso, de manera que una decisión favorable implique necesariamente su traslado a otro distrito judicial.”.
+
+---
+
+# PROVIDENCIA DDP 8193
+
+**Número de Providencia (DDP 8193):** SP1962-2025
+**Radicación (DDP 8193):** 63972
+
+**Lista de Temas (DDP 8193):**
+(i) “En este asunto, la Corte debe analizar si de la apreciación de las pruebas practicadas en el proceso se observa la existencia de duda sobre la responsabilidad penal de JUAN PABLO AGUDELO FLÓREZ o si, por el contrario, se mantiene la fundamentación expuesta por el Ad quem al momento de revocar la sentencia absolutoria y, en su lugar, condenarlo. Ello, toda vez que, la materialidad de los hechos delictuales ocurridos el 17 de mayo de 2018 no fue objeto de debate alguno.”. 
+(ii) “Esta Corporación ha reiterado que el testimonio único, como prueba directa, puede ser suficiente para sustentar una sentencia condenatoria, siempre que se considere creíble. Ello se debe a que su valor probatorio se fundamenta en criterios cualitativos y no en la cantidad de pruebas (cuantitativos).”. 
+(iii) “En ese sentido, «la persuasión del juez dependerá de la solidez del testimonio -sea que proceda de un tercero o del ofendido- la cual puede derivar, entre otros factores, de las condiciones de percepción del testigo, de su capacidad de recordación, de la ausencia de circunstancias anteriores o concomitantes al hecho incidentes en su imparcialidad, de la ponderación, coherencia, razonabilidad y seguridad, y no del número de testigos con que se cuente».”. 
+(iv) “Por otra parte, respecto de la falta de hallazgos biológicos en el vehículo desde el cuál se disparó, no es cierto que el Tribunal haya utilizado este elemento como sustento de la condena del procesado; por el contrario, se pronunció en torno a este aspecto para contestar las críticas que realizó el defensor en el traslado de no recurrentes; y, con acierto, resaltó que, en el sistema penal acusatorio vigente, la Fiscalía no tiene la obligación de realizar una investigación integral , más allá de lo que estime adecuado para estructurar su teoría del caso.”.
+
+---
+
+# PROVIDENCIA DDP 8194
+
+**Número de Providencia (DDP 8194):** SP1975-2025
+**Radicación (DDP 8194):** 64285
+
+**Lista de Temas (DDP 8194):**
+(i) “La supuesta prescripción de la acción penal por el «concierto para delinquir agravado»”. 
+(ii) “Con el anterior recuento procesal la Corte deja en claro que la prescripción invocada por el impugnante, de haber ocurrido, solo habría repercutido en un proceso penal distinto al que en esta ocasión examina la Sala. En efecto, cuando MAURICIO LASSO aceptó su responsabilidad por el delito de concierto para delinquir agravado, la fiscalía dispuso la ruptura de la unidad procesal y remitió esas diligencias a un juzgado de conocimiento para la emisión de la respectiva sentencia. En ese contexto, es evidente que la Corte no tiene competencia para pronunciarse y, menos aún, para declarar la prescripción de una acción penal vinculada con un delito que fue objeto de juzgamiento y condena en otra actuación autónoma.”. 
+(iii) “En ese sentido, si un proceso penal se adelantó por hechos que posiblemente configuran un concierto para delinquir y un homicidio, la prescripción de la acción penal frente al primer delito no impide que tales sucesos sean valorados en el proceso subsistente. Desde luego, si estos son la génesis de la actuación por homicidio o de ellos se extrajo algún conocimiento relevante para esclarecerlo,  siempre que la prueba haya sido legalmente obtenida y practicada con observancia de las garantías procesales.”. 
+(iv) “La prueba ilícita, es decir, la obtenida con violación de los derechos y garantías fundamentales de las personas (violación de los derechos a la vida, dignidad humana, no autoincriminación, intimidad, inviolabilidad del domicilio, entre otros), siempre debe ser excluida del conjunto de medios de conocimiento «sin que puedan exponerse argumentos de razón práctica, de justicia material, de gravedad de los hechos o de prevalencia de intereses sociales para descartar su evidente 
+(i)legitimidad».”. 
+(v) “Por el contrario, ante la prueba ilegal, al juez corresponde ponderar si el requisito legal pretermitido es esencial y verificar su trascendencia frente al derecho al debido proceso, con el fin de determinar su exclusión. El ejercicio lo realiza en el entendido de que «la simple omisión de formalidades y previsiones legislativas insustanciales no conduce a su exclusión».”. 
+(vi) “En todo caso, trátese de una prueba ilícita o ilegal, la verificación de su presencia dentro del proceso, se insiste, no conduce automáticamente a la nulidad de todo lo actuado. Como bien lo explicó la Corte Constitucional en la sentencia CC SU-159/02, «el efecto que se sigue de la declaración de nulidad de una prueba obtenida con el desconocimiento del debido proceso constitucional es solamente ese, la nulidad de la prueba».”. 
+(vii) “Bajo ese entendido, la anulación de todo el proceso derivada de una prueba irregular solo procederá, por vía de excepción, cuando la sentencia se fundó exclusivamente en un medio de conocimiento ilícito que debió ser excluido. Sobre el particular, la Corte Constitucional, en la sentencia que se viene de citar, expresó que …”. 
+(viii) “Así las cosas, la consecuencia es clara: la prueba ilícita siempre debe ser excluida, mientras que frente a la ilegal corresponde al juez ponderar si la irregularidad omitida tiene entidad suficiente para afectar el derecho al debido proceso y, en tal caso, excluirla. Con todo, la nulidad del proceso en su integridad no surge de la simple constatación de la existencia de una prueba ilícita o ilegal. Su procedencia excepcional está condicionada a que la sentencia se soporte de manera exclusiva o determinante en ese medio de conocimiento que debió ser apartado del acervo probatorio.”. 
+(ix) “Solo se vulneran las garantías del imputado cuando por prescindirse de esa comunicación se le priva de la posibilidad de desplegar las maniobras orientadas a su defensa; y de la otra, que en eventos como el de autos, tratándose de la investigación formal, tal derecho-deber se satisface con la oportuna vinculación del sindicado, bien mediante indagatoria o a través de la declaratoria de persona ausente, pues a partir de ese momento adquiere la condición de sujeto procesal, investido para los fines de su defensa de las mismas facultades del mandatario judicial, conforme lo disponían los artículos 136 y 137 del estatuto procesal bajo el cual se rituaron las diligencias.”. 
+(x) “Formas de ejecución de la conducta punible”.
+
+---
+
+# PROVIDENCIA DDP 8195
+
+**Número de Providencia (DDP 8195):** AP6789-2025
+**Radicación (DDP 8195):** 62247
+
+**Lista de Temas (DDP 8195):**
+(i) “La crítica del representante del acusado contra la sentencia de segundo grado está dirigida por la vía de la violación indirecta de la Ley sustancial por error de hecho por cercenamiento respecto de los testimonios de Hernando Cabas Granados y el procesado, quien renunció a guardar silencio.”. 
+(ii) “En ese sentido, vale recordar que el error postulado por el litigante se configura a partir de la tergiversación del contenido material de una prueba, para hacerle decir algo que en realidad no dice, porque se adiciona, cercena o alteran las aseveraciones expuestas a través de la misma; defecto que, en ese orden de ideas, requiere del demandante identificar el medio probatorio sobre el cuál se materializa, a más de realizar un ejercicio comparativo entre lo sostenido por la autoridad judicial y el contenido objetivo de la prueba, con el fin de evidenciar la distorsión; luego, debe verificar sus efectos en la sentencia y la forma de corrección de la misma.”. 
+(iii) “Labor que emprendió el demandante de manera precaria y confusa respecto de los dos testimonios reseñados, dado que simplemente se limita a señalar que en la valoración de los mismos los jueces incurrieron en un “error de hecho por falso juicio de identidad por cercenamiento”; sin embargo, no desarrollo adecuadamente el reproche, ni acreditó la trascendencia del error alegado.”. 
+(iv) “En consecuencia, surge evidente que la demanda, en lo sustancial, propugna por imponer la subjetiva apreciación de las pruebas, sin demostrar el error de hecho que fue postulado por la vía del falso juicio de identidad, motivo por el cual, la demanda ha de inadmitirse, más aún, cuando no se advierte que el recurso esté convocado a cumplir alguna de sus finalidades o que se hayan vulnerado garantías de orden fundamental que impongan su protección oficiosa.”.
+
+---
+
+# PROVIDENCIA DDP 8195
+
+**Número de Providencia (DDP 8195):** SP1883-2025
+**Radicación (DDP 8195):** 61622
+
+**Lista de Temas (DDP 8195):**
+1. 
+(i) “En la audiencia de formulación de imputación y en la acusación, se atribuyó a RUBÉN ALFONSO TIBOCHA BONILLA, la comisión del delito de homicidio agravado, con fundamento en los artículos 103 y 104 numeral 7º del C.P., concretamente, por aprovecharse de la situación de indefensión en la que se encontraba la víctima.”. 
+(ii) “Con relación al estado de indefensión y las diferencias con la inferioridad, la Sala, en la decisión CSJ SP16207-2014, Rad. 44817, señaló lo siguiente: …”. 
+(iii) “La Corte advierte varios yerros en la estructuración de los argumentos utilizados por el Tribunal para encontrar acreditada la circunstancia de agravación punitiva referida, tal y como lo plantea el defensor del procesado en su escrito de impugnación especial.”.
+
+---
+
+# PROVIDENCIA DDP 8196
+
+**Número de Providencia (DDP 8196):** AP6816-2025
+**Radicación (DDP 8196):** 64249
+
+**Lista de Temas (DDP 8196):**
+(i) “La alegación de las nulidades ha de ajustarse a los principios concurrentes de taxatividad, acreditación, protección, convalidación, instrumentalidad, residualidad y trascendencia. Debido al carácter acumulativo de los aludidos principios, la inobservancia de alguno de ellos comporta la inadmisibilidad del cargo en casación …”. 
+(ii) “Y, como en este asunto la discusión versa sobre la violación al principio de congruencia (art. 448 CPP), es pertinente recordar que, en virtud de éste el procesado no puede ser declarado culpable por hechos que no consten en la imputación/acusación, ni por delitos por los cuales no se ha solicitado condena (AP7470-2024). Dicho axioma resulta medular en la estructura del proceso penal, al entrelazarse con el derecho de defensa y la lealtad procesal (AP7476-2024).”. 
+(iii) “Su alcance, valga precisar, es diverso dependiendo de la faceta implicada: aunque flexible en lo jurídico, es inmodificable en lo personal y fáctico. En ese sentido, ha explicado la Corte, si la facticidad sufre alteraciones relevantes, la Fiscalía está facultada para realizar una adición a la imputación inicial: …”. 
+(iv) “Por consiguiente, lo esperado es que los aspectos fácticos comunicados en la imputación no sufran alteraciones sustanciales. Ello no implica, sin embargo, que no puedan surgir nuevas circunstancias de hecho relevantes, en razón de la progresividad de la actuación. De ser este el caso, en el evento en que la fiscalía pretenda calificarlas dentro de la misma cuerda procesal, es necesario que se informen al procesado con la suficiente antelación al acto de acusación (CSJ SP-2042-2019, 5 jun. 2019, rad. 51007).”. 
+(v) “De este modo, la Fiscalía puede efectuar una adición a la imputación inicialmente efectuada, la cual debe llevarse a cabo en audiencia preliminar, respetando el principio de plazo razonable, a efectos de que no se haga nugatorio el derecho del imputado a la preparación de su defensa de cara al inicio del juicio. Ha de procederse de tal manera, así mismo, a fin de que no resulte afectado el derecho de las víctimas al acceso a la administración de justicia. Además, se trata de un mecanismo que permite no privar a la fiscalía de ajustar la premisa fáctica en función del principio de legalidad, frente a la calificación jurídica de los hechos conforme a las evidencias recaudadas»”. 
+(vi) “Cuando se intenta la postulación de la censura por la ruta de la violación directa de la ley sustancial (art. 181-1 CPP), el recurrente debe hacer completa abstracción de lo fáctico y lo probatorio. Y, en esas circunstancias, admitir los hechos y la apreciación de los medios de convicción fijados por el sentenciador (AP1830-2025).”. 
+(vii) “De manera tal que le corresponde desarrollar el reproche a partir de un ejercicio estrictamente jurídico, en el que establezca la vulneración del precepto normativo en el caso concreto, por medio de cualquiera de sus tres modalidades: falta de aplicación, aplicación indebida o interpretación errónea. Seguidamente, ha de demostrar la trascendencia del yerro en el sentido de la decisión impugnada (AP1830-2025 y AP4929-2024).”. 
+(viii) “Mientras la falta de aplicación opera cuando el juzgador deja de emplear el precepto que regula el asunto, la aplicación indebida deviene de la equivocada elección por el fallador de una disposición que no se ajusta al caso, con la consecuente inaplicación de la norma que recoge de forma correcta el supuesto fáctico. La interpretación errónea, en cambio, parte de la acertada selección de la disposición aplicable al asunto debatido, pero contrae un entendimiento equivocado de la misma, que le hace producir efectos jurídicos que no emanan de su contenido (AP1830-2025).”. 
+(ix) “Ahora bien, por efecto de la claridad y precisión que han de guiar los propios considerandos, pero sin extraer consecuencias adversas para el procesado en respeto irrestricto del principio de no agravación (art. 188 CPP), la Corte aclara que el razonamiento de la segunda instancia y del recurrente no es del todo armónico con la interpretación vigente del art. 31 CP. Recordemos que a partir de la SP322-2023 (reiterada en la SP091-2024), la Sala varió su jurisprudencia sobre las reglas de dosificación punitiva en caso de concurso de conductas punibles: …”.
+
+---
+
+# PROVIDENCIA DDP 8197
+
+**Número de Providencia (DDP 8197):** CP252-2025
+**Radicación (DDP 8197):** 66974
+**Decisión (DDP 8197):** SMS DEL 13.11.2025
+
+**Lista de Temas (DDP 8197):**
+“Concepto sobre la solicitud de extradición” de  un “ciudadano colombiano … … formulada por el Gobierno de los Estados Unidos de América por la supuesta comisión de los delitos de «tráfico de drogas ilícitas, lavado de activos y concierto para delinquir».”.
+
+---
+
+# PROVIDENCIA DDP 8198
+
+**Número de Providencia (DDP 8198):** SP2092-2025
+**Radicación (DDP 8198):** 60112
+**Decisión (DDP 8198):** Proceso en contra de CARLOS ALBERTO PALACIOS PALACIO, como exgobernador del Departamento de Putumayo.
+
+**Lista de Temas (DDP 8198):**
+(i) “Del delito de contrato sin cumplimiento de requisitos legales.”. 
+(ii) “En cuanto al tipo subjetivo, consiste en una norma de conducta eminentemente dolosa, es decir, que debe obrar en el sujeto activo calificado el conocimiento de los hechos constitutivos de la infracción penal, así como la voluntad de querer su realización que, frente al delito en comento corresponde a conocer y deliberadamente pretermitir los requisitos esenciales del contrato, ya sea, en la etapa precontractual durante el trámite, al momento de su celebración o en la fase de liquidación13. La inobservancia de formalidades inherentes a la ejecución contractual no comporta reproche penal.”. 
+(iii) “Ahora bien, sobre los reparos dos y tres unificados, consistentes en que el convenio de asociación no existió por el incumplimiento de los requisitos que las partes establecieron para ello, siendo estos vinculantes por el principio de autonomía de las partes y las normas del derecho privado, es pertinente señalar lo siguiente: …”. 
+(iv) “En esa línea, la Corte ha sostenido que a estos contratos especiales les son aplicables los principios previstos en la Ley 80 de 1993, dado que estos irradian la contratación estatal, aun cuando aquellos estén regulados por normas distintas al Estatuto General de Contratación. Así, se ha sostenido que: …”. 
+(v) “A su vez, el Consejo de Estado ha precisado frente a los convenios de asociación16, lo siguiente: …”. 
+(vi) “De lo expuesto, la Sala considera que aun cuando el artículo 1º del Decreto 777 de 1992 es claro al indicar que los contratos especiales, como el convenio de asociación, se sujetarán a la ley para la contratación entre particulares, esto no significa que su regulación esté supeditada a la autonomía privada y a la libertad negocial de las partes, como lo adveró el apelante.”. 
+(vii) “Previo a desarrollar lo enunciado, por ser necesario, la Sala abordará el quinto reparo del defensor, según el cual, el requisito de reconocida idoneidad no le era exigible al exgobernador del Putumayo, en atención a que no comprometió los recursos del ente territorial con el convenio de asociación y aquel presupuesto está diseñado, precisamente, para la protección de estos dineros.”. 
+(viii) “Atinente a los reproches séptimo y octavo, el defensor afirmó que la existencia de recursos para la ejecución del proyecto de viviendas no constituía requisito esencial para la tramitación y celebración del convenio de asociación, de manera que este supuesto no debió apreciarse por la primera instancia para colmar el elemento normativo del tipo penal atribuido.”.
+
+---
+
+# PROVIDENCIA DDP 8199
+
+**Número de Providencia (DDP 8199):** AP7382-2025
+**Radicación (DDP 8199):** 64900
+
+**Lista de Temas (DDP 8199):**
+(i) “El falso juicio de identidad es un yerro de apreciación probatoria, que tiene ocurrencia cuando el juzgador distorsiona o tergiversa el contenido objetivo de determinada prueba, haciéndole decir lo que en realidad no dice, porque realiza una lectura equivocada de su texto, le agrega circunstancias que no contiene u omite considerar aspectos relevantes de aquélla.”. 
+(ii) “Un planteamiento adecuado del falso juicio de identidad impone la carga de señalar, en concreto, cuál fue la prueba distorsionada o cercenada. Así mismo, indicar lo que ella decía y evidenciar que el entendimiento que del medio de conocimiento obtuvo el juzgador fue distinto. Se trata, entonces, de un ejercicio de confrontación que, a la manera de una doble columna, reproduce en la primera lo que textualmente dice la prueba y, en la segunda, lo que se le hizo decir, para destacar luego la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(iii) El acta de un preacuerdo “no es una prueba”.
+
+---
+
+# PROVIDENCIA DDP 8200
+
+**Número de Providencia (DDP 8200):** AP7558-2025
+**Radicación (DDP 8200):** 32189
+
+**Lista de Temas (DDP 8200):**
+(i) “La Sala de Casación Penal de la Corte Suprema de Justicia ha ponderado la tensión que surge entre el libre acceso a la información pública y la protección del derecho al hábeas data de las personas que se han visto involucradas en procesos penales, en atención a que la divulgación de datos asociados a esta situación puede resultar lesiva de los intereses amparados con esta última garantía.”. 
+(ii) “En esa labor, al analizar la normatividad aplicable frente a la materia y la línea hermenéutica trazada sobre la misma por la Corte Constitucional en sentencia CC SU–458–2012, ha decantado, entre otras, las siguientes subreglas aplicables a este tipo de eventos: …”. 
+(iii) “El criterio de esta Corporación ha establecido que corresponde al solicitante, como persona afectada con la información publicitada, acreditar que la pena en relación con la cual solicita la anonimización se declaró extinta, por haberla cumplido o por ésta encontrarse prescrita. (CSJ AP1411-2024, 20 mar. 2024, Rad. 21245).”. 
+(iv) “Acorde con el principio onus probandi incumbit actori, es el interesado quien tiene la carga de probar sus afirmaciones, para obtener la consecuencia jurídica perseguida.”. 
+(v) “En el caso concreto, se limitó a pedir la aludida anonimización en caso de que existiera algún registro de actuación penal que conociera esta Corporación a su nombre, sin acreditar la declaratoria de extinción de la pena impuesta en el referido asunto, a pesar de ser una carga procesal que él debe cubrir.”. 
+(vi) “La Corte no está en la obligación de asumir tal labor de manera oficiosa, comoquiera que no se advierte que el peticionario se encuentre ante la imposibilidad -material o jurídica- de aportar la prueba en relación con los hechos que sustentan la jurisprudencia invocada y la pretensión anhelada (carga dinámica de la prueba).”. 
+(vii) “Finalmente, la Sala debe aclarar al solicitante que esta decisión únicamente cobija su pretensión frente a la información que reposa en las bases de datos de la Sala de Casación Penal de la Corte Suprema de Justicia frente al radicado número 11001310400920080001001, pues frente a los procesos y los datos registrados en otras entidades y jurisdicciones (civil y laboral y contenciosa), la Sala no tiene competencia para efectuar pronunciamiento alguno.”.
+
+---
+
+# PROVIDENCIA DDP 8201
+
+**Número de Providencia (DDP 8201):** AP7514-2025
+**Radicación (DDP 8201):** 61522
+
+**Lista de Temas (DDP 8201):**
+(i) “La censora direccionó el primer cargo de la demanda bajo la causal 2.° del artículo 181 de la Ley 906 de 2004, pues, según dijo, la motivación del fallo de segundo grado fue incompleta. Es cierto que uno de los eventos en los que puede alegarse la nulidad es por la motivación defectuosa del fallo. Además, la Sala tiene sentado que la sustentación de la nulidad es menos exigente que la de las otras causales de casación. Aunque eso no quiere decir que el recurrente deje de justificar su acreditación y trascendencia.”. 
+(ii) “Lo anterior exige que el demandante precise si se trata de un defecto en la estructura o la vulneración de alguna garantía . También, que mencione las normas que considera desconocidas; plantee los fundamentos fácticos, en particular, el momento procesal en el que se produjo la anomalía, y explique en qué consistió. Adicionalmente, la fundamentación del cargo debe desarrollarse conforme a los principios que rigen las nulidades (taxatividad, protección, acreditación, convalidación, trascendencia, instrumentalidad y residualidad …”. 
+(iii) “No hay duda de que los defectos en la motivación de las decisiones, bien sea por ausencia absoluta, deficiencia sustancial o ambigüedad, implican la trasgresión de los derechos al debido proceso y a la defensa. Sin embargo, la postulación específica de uno u otro tipo de anomalía argumentativa no es homogénea, ya que la fundamentación que los soporta es diversa en cada caso. Así, la primera apunta a la categórica falta de soporte fáctico jurídico del fallo. La segunda, a la ausencia parcial de elementos de juicio suficientes de orden probatorio o legal que lo tornan incompleto. La última, a la confusa, contradictoria, ambigua, imprecisa o dialógica proposición de los argumentos de la decisión que la hace ininteligible (CSJ AP2689-2023, AP948-2024 y AP5769-2024).”. 
+(iv) “Además, la supuesta «inadecuada valoración probatoria» que alegó la demandante resulta ajena a la causal bajo la cual se direccionó el cargo. Este es un asunto que corresponde al «desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia». Es decir, a la causal 3.° del artículo 181 de la Ley 906 de 2004. Este desatino vulneró el principio de autonomía que supone que cada uno de los cuestionamientos que se plantean en esta sede extraordinaria deben desarrollarse de forma independiente, con el fin de evitar mezclas argumentativas y conceptuales .”. 
+(v)  “En el segundo cargo, la apoderada de ACERO COLMENARES alegó tres yerros diferentes: un falso juicio de existencia porque el Tribunal «supuso» la responsabilidad del procesado; un falso raciocinio, dado que la conclusión del colegiado de instancia había sido «errada». Finalmente, un falso juicio de identidad sin que expusiera en qué consistió esta supuesta falencia.”. 
+(vi) “Sin embargo, omitió indicar la causal bajo la cual postulaba esos yerros, así como las normas sustanciales vulneradas como consecuencia de esas falencias. Eso de entrada impide que se admita el cargo, según lo dispone el artículo 184 de la Ley 906 de 2004. Además, erró en la formulación de una proposición jurídica completa, ya que es deber del recurrente señalar la o las normas de carácter sustancial que consideró violentadas de manera directa o indirectamente por parte del Tribunal y que tiene relación directa con la causal elegida (CSJ AP3935-2023, 29 nov., rad. 58580).”.  
+(vii) “En lo que atañe al primer tipo de error (falso juicio de existencia), la Sala ha dicho que pude ocurrir ya se sea por omisión o suposición de la prueba. Es decir, porque el juzgador deja de apreciar el contenido de un medio de prueba legal y oportunamente allegado a la actuación (falso juicio de existencia por omisión). Puede darse, también, porque hace precisiones fácticas extrañas a las pruebas obrantes, o las atribuye a un elemento de persuasión que en verdad no reposa en el expediente (falso juicio de existencia por suposición).”.
+
+---
+
+# PROVIDENCIA DDP 8202
+
+**Número de Providencia (DDP 8202):** AP7554-2025
+**Radicación (DDP 8202):** 70449
+**Decisión (DDP 8202):** SMS DEL 14.11.2025
+
+**Lista de Temas (DDP 8202):**
+(i) “En efecto, aunque el censor mencionó la causal 1ª del artículo 181 del C.P.P., sobre la violación directa de la ley sustancial por falta de aplicación de jurisprudencia constitucional, surge pertinente reiterar que la debida sustentación de la causal en comento, implica que el actor debe aceptar en su integridad los hechos que declara como demostrados el fallo recurrido para, a partir de esa conformidad, edificar la censura.”. 
+(ii) “Por ende, es imprescindible esa anuencia absoluta con el aspecto fáctico y con la apreciación de las pruebas realizada por el juzgador, dado que el cuestionamiento se debe desarrollar en un plano estrictamente de derecho. No obstante, el defensor no logra acreditar cuál fue el yerro en que incurrieron las instancias, suficiente para que esta Corte se pronuncie de fondo. Contrario a ello, pretende revivir un debate ya surtido ante los jueces, en punto de la concesión de la prisión domiciliaria por ser adulto mayor y por enfermedad incompatible con el lugar de reclusión.”. 
+(iii) “Aunado a lo anterior, es necesario recordar que, respecto del tema cuestionado, la Corte ha precisado que, también, se trata de un asunto de competencia del Juez de Ejecución de Penales y Medidas de Seguridad, ante quien puede el procesado acudir, en caso de que varíen las condiciones a partir de las cuales le fue negado el beneficio, en un comienzo: …”.
+
+---
+
+# PROVIDENCIA DDP 8203
+
+**Número de Providencia (DDP 8203):** SENTENCIA T-440-2025
+**Radicación (DDP 8203):** No especificado
+
+**Lista de Temas (DDP 8203):**
+“Libertad de expresión, información y prensa frente a los derechos a la honra, buen nombre y presunción de inocencia-perspectiva de género en las denuncias por acoso sexual (nota periodística y parámetros de análisis comunicativo).”.
+
+---
+
+# PROVIDENCIA DDP 8204
+
+**Número de Providencia (DDP 8204):** SENTENCIA T-416-2025
+**Radicación (DDP 8204):** No especificado
+
+**Lista de Temas (DDP 8204):**
+“Tutela contra decisiones judiciales por conflicto entre jurisdicciones en proceso penal-improcedencia por requisito de subsidiariedad (intervinientes pueden solicitar audiencias innominadas y los recursos de la ley 1407 de 2010).”.
+
+---
+
+# PROVIDENCIA DDP 8205
+
+**Número de Providencia (DDP 8205):** SENTENCIA SU315-2025
+**Radicación (DDP 8205):** No especificado
+
+**Lista de Temas (DDP 8205):**
+“Tutela contra decisiones judiciales en incidente de reparación integral (responsabilidad civil extracontractual de personas jurídicas)-jueces deben tener en cuenta los principios pro infans, pro damnato y plazo razonable.”.
+
+---
+
+# PROVIDENCIA DDP 8206
+
+**Número de Providencia (DDP 8206):** SENTENCIA C-198-2025
+**Radicación (DDP 8206):** No especificado
+
+**Lista de Temas (DDP 8206):**
+“Inexequible la expresión “prevista en el artículo anterior”, contenida en el inciso segundo del artículo 153 del Código Penal por desconocer el principio de estricta legalidad. ambigüedad sobre el cálculo del incremento de la pena de multa para el delito de obstaculización de tareas sanitarias o humanitarias.”.
+
+---
+
+# PROVIDENCIA DDP 8207
+
+**Número de Providencia (DDP 8207):** SENTENCIA C-183-2025. CON SALVAMENTO DE VOTO. SMS DEL 18.11.2025
+**Radicación (DDP 8207):** No especificado
+
+**Lista de Temas (DDP 8207):**
+“Inexequible disposición del Código de Procedimiento Penal que establece que personas con enfermedades o trastornos mentales no pueden ser peritos en el proceso penal.”.
+
+---
+
+# PROVIDENCIA DDP 8208
+
+**Número de Providencia (DDP 8208):** AHP8007-2025
+**Radicación (DDP 8208):** 71090
+
+**Lista de Temas (DDP 8208):**
+(i) “El artículo 30 de la Constitución Política consagra el habeas corpus en favor de la persona que privada de su libertad en virtud de decisión judicial, cree estarlo de forma ilegal. La Ley 1095 de 2006, a su vez, lo define como derecho fundamental y acción constitucional, que tutela la libertad personal de quien es privado de ella con violación de las garantías constitucionales o legales, o cuando esta se prolonga ilegalmente.”. 
+(ii) “Por ello, el carácter supletorio de la acción de habeas corpus es incuestionable e inmodificable en el sistema jurídico interno. La pretensión de que por esta vía excepcional se solucionen problemas relativos a la libertad y se hagan juicios de valor acerca de las decisiones judiciales que la niegan, sin intervención del funcionario judicial legalmente llamado a resolverla, implica, ni más ni menos, una intromisión indebida en asuntos que escapan, en principio, al juez constitucional.”. 
+(iii) “José Fernando Castiblanco Rodríguez presentó acción de habeas corpus. Refirió que el Establecimiento Penitenciario y Carcelario de Santa Rosa de Viterbo, no certificó «correctamente las horas reales laboradas», correspondientes al período comprendido entre el 1º de abril al 30 de junio del año en curso, lo cual ha generado la privación ilegal de su libertad.”. 
+(iv) “Tal circunstancia ostenta suma trascendencia, porque permite concluir que el actor cuenta aún con la posibilidad de interponer los recursos ordinarios de reposición y apelación en contra de aquella decisión del 23 de octubre del año en curso, siendo estos los medios de defensa idóneos para plantear los argumentos aquí formulados.”. 
+(v) “En otras palabras, la actuación que pretende cuestionar el accionante se encuentra en curso. Por ello, vedado está para el juez constitucional emitir cualquier tipo de pronunciamiento sobre el particular. De hacerlo, estaría invadiendo las competencias del juez natural y, de paso, desconociendo los postulados propios del debido proceso y los principios de residualidad y subsidiariedad que rigen a este tipo de acciones constitucionales.”. 
+(vi) “De hecho, la situación planteada por el recurrente no puede, ni siquiera por vía excepcional, ser abordada en esta sede constitucional, porque no se trata de analizar si objetivamente ya cumplió la sanción, sino si para el efecto se hace o no acreedor a un lapso mayor de redención de pena por trabajo. Labor que sólo corresponde definir al juez ejecutor, pues implica el análisis de otras valoraciones, como la conducta observada por el recluso en el establecimiento penitenciario.”.
+
+---
+
+# PROVIDENCIA DDP 8209
+
+**Número de Providencia (DDP 8209):** AP7957-2025
+**Radicación (DDP 8209):** 67935
+
+**Lista de Temas (DDP 8209):**
+(i) “Cuando se invocan errores en la apreciación de la prueba, ya sea de hecho o de derecho, el casacionista tiene el deber de identificar la prueba, el tipo de error de manera precisa, además demostrar en qué consistió el yerro y su trascendencia para variar el fallo cuestionado. Parámetros no observados por la demandante; pues, se limitó a indicar que el delito de violencia intrafamiliar no se demostró al no acreditarse una comunidad de vida y/o relación con vocación de permanencia, entremezclando diversos errores de distinta naturaleza fundados en supuestos falsos juicio de existencia y legalidad.”. 
+(ii) “Además, si la casacionista consideraba que los hechos que se dieron probados no se adecúan al tipo penal de violencia intrafamiliar y, por el contrario, se ajustan al delito de lesiones personales, debió direccionar las censuras al amparo de la violación directa de la ley sustancial, con el fin de demostrar que el juzgador cometió un error por falta de aplicación (exclusión evidente), aplicación indebida o interpretación errónea de una norma de derecho sustancial (del bloque de constitucionalidad, constitucional o legal), llamada a regular el caso.”. 
+(iii) “Esa labor argumentativa no es desarrollada por la demandante, quien se limita a realizar una invitación a la Corte para que delimite la correcta interpretación y aplicación de la norma. Este tipo de propuestas, desconocen el carácter rogado del medio de impugnación y, de paso, la exigencia de fundamentación debida.”. 
+(iv) “Incluso, desconoce que la Sala de Casación Penal, como lo advirtió el Tribunal de Bogotá en la sentencia cuestionada, con fundamento en el artículo 1° de la Ley 1959 de 2019, que modificó el artículo 229 del Código Penal, ya tuvo la oportunidad de precisar que con la nueva normativa existió una ampliación del marco de protección de la norma, en razón a que «[e]l legislador decidió ampliar los sujetos que pueden ser considerados agresores y víctimas del delito de violencia intrafamiliar, en tanto no es imperioso que pertenezcan al mismo núcleo familiar, como tampoco que convivan o cohabiten. … Por consiguiente, el ingrediente “convivencia”, en los términos especificados por la Sala para la tipificación de ese reato, es hoy inoperante a la luz de la nueva normativa penal. (CSJ, SP5392–2019, Radicado 53393).”. 
+(v) “Además la Sala, en decisión CSJ, SP2158-2021, Radicado 58464, concluyó que «En síntesis, con la expedición de la Ley 1959 se incorporaron al tipo penal eventos no incluidos dentro del concepto de núcleo familiar, razón por la que en las nuevas hipótesis «ya no se requiere estructurar el tipo penal a partir de la pertenencia al mismo grupo familiar de los agresores y las víctimas del delito, como tampoco, de la convivencia o cohabitación de estos en el mismo domicilio» (Cfr. CSJ SP1270–2020, 10 jun. 2020, rad. 52571)”.”.
+
+---
+
+# PROVIDENCIA DDP 8210
+
+**Número de Providencia (DDP 8210):** AP7961-2025
+**Radicación (DDP 8210):** 70823
+
+**Lista de Temas (DDP 8210):**
+(i) “La Sala, en decisión del 17 de junio de 2019, CSJ AP2863-2019, dentro del radicado 55616, reiterada en AP3952-2022, rad.62264, explicó el trámite que debe cumplirse en el marco del incidente de impugnación de competencia. En dicha oportunidad se señaló que, cuando alguna de las partes o intervinientes rechazan la competencia del juez para conocer de un determinado asunto -ya sea en sede de conocimiento o de control de garantías-, surgen dos posibilidades: …”. 
+(ii) “Además de lo anterior, el funcionario encargado del asunto deberá convocar y dar curso a la audiencia respectiva y, en su desarrollo, i) manifestar la incompetencia, ii) correr traslado a las partes e intervinientes para que se pronuncien sobre su declaración, y iii) ordenar el envío del proceso al juez competente, si todos están de acuerdo, o remitirlo a esta Corporación si se presenta controversia.”. 
+(iii) “Definición de competencia y factores de conexidad”. 
+(iv) “En punto a la consumación del delito de concierto para delinquir -que para este caso constituye la falta con mayor trascendencia-, esta Sala ha sostenido: …”. 
+(v) “En consecuencia, resulta aplicable el tercer parámetro, en lo que tiene que ver con el lugar donde se haya producido la primera aprehensión o donde se haya formulado primero la imputación; criterios que, como lo ha destacado la Sala, son optativos.”.
+
+---
+
+# PROVIDENCIA DDP 8211
+
+**Número de Providencia (DDP 8211):** AP7960-2025
+**Radicación (DDP 8211):** 68034
+
+**Lista de Temas (DDP 8211):**
+(i) “De entrada, corresponde mencionar que el error de hecho postulado por el demandante se configura en aquellos eventos en los que el juzgador le atribuye al medio suasorio un contenido distinto al que objetivamente ostenta, es decir, asigna una verdad diversa a la que emana de la prueba, bien porque en la lectura de la evidencia agrega circunstancias ajenas (adición), resta u omite aspectos importantes de la misma (cercenamiento) o altera su texto real (tergiversación).”. 
+(ii) “Tratándose de la transmutación de las probanzas, es deber ineludible del casacionista identificar con precisión el medio probatorio; revelar con exactitud su contenido; confrontar aquello que dice el elemento demostrativo, con lo que al respecto se expuso en la sentencia sobre el mismo; para así dejar en evidencia, en un ejercicio conocido como “doble columna”, que el juzgador alteró su literalidad.”. 
+(iii) “Efectuado lo anterior, le corresponde al casacionista acreditar la trascendencia del desacierto, esto es, demostrar que la valoración estricta y objetiva del contenido real de la prueba, en conjunto con los demás elementos de convicción que sustentan la sentencia, habría conducido a una conclusión jurídica sustancialmente distinta.”. 
+(iv) “Si lo que en realidad pretendía alegar el defensor, como se observó, era la configuración de yerros derivados del razonamiento judicial en la valoración y conclusiones probatorias, empero no de la contemplación real y objetiva de las pruebas, le correspondía dirigir la censura por la vía del error de hecho por falso raciocinio, y allí probar el modo en que el mérito suasorio asignado a los medios de convicción vulneró, en concreto, las reglas de la sana crítica por desconocimiento de criterios lógicos, máximas de la experiencia o postulados científicos.”.
+
+---
+
+# PROVIDENCIA DDP 8212
+
+**Número de Providencia (DDP 8212):** AP8040-2025
+**Radicación (DDP 8212):** 67610
+**Decisión (DDP 8212):** *SMS DEL 19.11.2025*
+
+**Lista de Temas (DDP 8212):**
+(i) “La acción de revisión. Es el mecanismo idóneo para obtener la invalidación de una decisión que adquirió ejecutoria material e hizo tránsito a cosa juzgada y que se caracteriza por su injusticia material. Está concebida en favor de quien considere fundadamente que la decisión definitiva que se haya emitido merece ser nuevamente examinada para que la jurisdicción ordinaria corrija el error que pudo cometer, con base en alguna de las causales señaladas taxativamente en la ley.”. 
+(ii) “Sobre la causal 2ª del artículo 220 de la Ley 600 del 2000 . La Sala considera que el demandante debe explicar si la prescripción ocurrió durante la investigación o el juicio. Para ello, debe analizar los artículos 83 y 86 del Código Penal, tener en cuenta las circunstancias que modifican la pena, y señalar cómo se interrumpió la prescripción y por qué, pese a ello, se superó el plazo prescriptivo (CSJ AP1897, 22 mar. 2017, Rad. 49859).”. 
+(iii) “La Sala advierte que, para la estructuración de la causal 2ª del artículo 220 de la Ley 600 del 2000, la demandante debe aportar necesariamente copia de la resolución de acusación junto con su constancia de ejecutoria. Esto se debe a que el término de prescripción en la etapa de juzgamiento se cuenta a partir de la fecha en que queda en firme la resolución de acusación y hasta la fecha de ejecutoria de la sentencia …”. 
+(iv) “En este caso, la defensa de RODRIGO CANOSA GUERRERO no aportó las resoluciones de acusación mediante las cuales la Fiscalía 10ª delegada ante esta Corporación lo acusó por el delito de contrato sin cumplimiento de requisitos legales, ni aportó la constancia ejecutoria.”. 
+(v) “La Sala considera que solo con esos documentos era posible acreditar que se consolidó la prescripción de la acción penal, ya que son indispensables para analizarla. Por lo tanto, esa omisión genera la inadmisión del cargo.”.
+
+---
+
+# PROVIDENCIA DDP 8213
+
+**Número de Providencia (DDP 8213):** AP7652-2025
+**Radicación (DDP 8213):** 66183
+
+**Lista de Temas (DDP 8213):**
+(i) “La infracción directa de la ley sustancial puede tener ocurrencia, bien por falta de aplicación, interpretación errónea o aplicación indebida de la norma.”. 
+(ii) “En concreto, los mencionados quebrantos tienen lugar en aquellos eventos en los cuales el juez: i) omite aplicar la norma que se ocupa del caso en concreto, por error en su existencia o validez; ii) selecciona correctamente la disposición llamada a regular el asunto, empero le confiere un sentido, efecto o alcance del que carece; y iii) desatina en la elección del precepto, por adecuación defectuosa del supuesto fáctico.”. 
+(iii) “Se trata de una discusión puramente jurídica que excluye las quejas relacionadas con la valoración probatoria y la fijación factual realizada por las instancias.”. 
+(iv) “Ante la inexistencia de acreditación de todas las condiciones legales exigidas para el reconocimiento de la calidad de padre cabeza de familia, tal y como lo establecieron las instancias, el ejercicio argumentativo contenido en la demanda se aparta del discernimiento casacional, vulnera el principio de corrección material y resulta estéril para evidenciar la existencia de un error trascendente en la sentencia atacada.”.
+
+---
+
+# PROVIDENCIA DDP 8214
+
+**Número de Providencia (DDP 8214):** AP7548-2025
+**Radicación (DDP 8214):** 65508
+
+**Lista de Temas (DDP 8214):**
+(i) “Sobre la acción de revisión y los requisitos para promoverla”. 
+(ii) “Conforme con el marco normativo y jurisprudencial relativo a la acción de revisión, se debe recordar que no procede de forma automática y requiere que el sujeto procesal o interesado la solicite formalmente, cumpla para tal efecto con todos los requisitos y demuestre que se cumple alguna de las causales establecidas en la ley.”. 
+(iii) “En consecuencia, no hay lugar a que sea la Corporación encargada de resolver la acción de revisión la que se ocupe de satisfacer tales exigencias legales. Por el contrario, corresponde al demandante obtener la documentación requerida y allegarla, en sustento de su pretensión.”. 
+(iv) “Las copias de las sentencias y la acreditación de su firmeza, según lo dispone la referida norma, constituyen exigencias ineludibles, porque solo a través de tales documentos es posible establecer con certeza la fundamentación de los fallos cuestionados, para determinar la eventual injusticia de su contenido, y que los mismos han hecho tránsito a cosa juzgada.”. 
+(v) “De ese modo, por mandato legal, se debe adjuntar copia de las providencias que resolvieron la situación del procesado y la certificación expresa y directa en la que conste la certidumbre en torno a la firmeza material de tales decisiones, que se reclama examinar , para remover sus efectos en caso de que se llegare a declarar fundada la causal invocada.”. 
+(vi) “La Corte ha sido enfática  en señalar que no hay lugar a encaminar la acción de revisión en materia penal por la vía de las disposiciones del Código General del Proceso relativas a la revisión civil. Lo anterior, por cuanto la regulación propia de la Ley 1564 de 2012 resultaría aplicable al proceso penal únicamente en el evento en que no existiera normatividad específica.”. 
+(vii) “Así, aunque el art. 25 de la Ley 906 de 2004 establece la figura de la remisión normativa, esta opera exclusivamente para «materias que no estén expresamente reguladas en este código o demás disposiciones complementarias». Sin embargo, el art. 192 y siguientes del Código Procesal Penal reglamentan de manera detallada la acción de revisión contra sentencias o autos que tengan efectos definitivos sobre la responsabilidad penal del procesado.”. 
+(viii) “Por ello, la Sala de Casación Penal ha señalado de manera pacífica que no es viable que la demanda de revisión se fundamente en las hipótesis establecidas en la legislación civil, ya que el principio de integración no aplica en este caso. Lo anterior, en atención a que el Código de Procedimiento Penal, dada su especialidad, regula unas causales en procura de cumplir con los fines previstos por esta jurisdicción (CSJ AP5200-2021 y AP, 4 nov. 2021. Rad. 56483).”. 
+(ix) “Como lo ha reiterado la Sala , la acción de revisión no es un mecanismo para reabrir el debate procesal, como tampoco es una tercera instancia a la que se accede para discutir lo resuelto por los jueces o fiscales. Así, la firmeza de la decisión judicial condenatoria, emitida luego de debatir y acreditar la responsabilidad penal del sentenciado junto con la materialidad del delito atribuido, no puede atacarse por esta vía sin establecer el cimiento de alguna de las causales previstas taxativamente para ello.”.
+
+---
+
+# PROVIDENCIA DDP 8215
+
+**Número de Providencia (DDP 8215):** No especificado
+**Radicación (DDP 8215):** 41532
+**Decisión (DDP 8215):** , la Corte precisó las diferencias entre uno y otro precepto, así: …”. (vii) “De acuerdo con la reseña jurisprudencial anotada y el artículo 51 del Código de Procedimiento Penal de 2004, la conexidad tiene lugar cuando, entre otros casos, se imputa «a una o más personas la comisión de uno o varios delitos en las que exista homogeneidad en el modo de actuar de los autores o partícipes, relación razonable de lugar y tiempo, y, la evidencia aportada a una de las investigaciones pueda influir en la otra».”.
+
+**Lista de Temas (DDP 8215):**
+(i) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para, en caso de duda, precisar, de manera perentoria y definitiva, cuál de los distintos jueces o magistrados es el llamado a conocer de la fase procesal del juzgamiento, o para ocuparse de un asunto determinado.”. 
+(ii) “Este trámite, de acuerdo con lo señalado en los artículos 54 y 341 de la Ley 906 de 2004, podrá incoarse por iniciativa del propio funcionario judicial cuando considera que carece de competencia para adelantar el asunto o, cuando se trata de una impugnación de competencia, por cualquiera de las partes si avizoran reparos en este sentido.”. 
+(iii) “Previo a resolver el caso, es oportuno recordar que la Sala, en auto CSJ AP2863-2019, 17 jul. 2019, rad. 55616 (ratificada en CSJ AP1720 – 2023), varió su jurisprudencia en torno al trámite de la impugnación de competencia que debe surtirse frente al artículo 54 del Código de Procedimiento Penal de 2004, en el entendido que cuando se suscite una disputa acerca del funcionario competente de la actuación, es decir, que, entre el juez, las partes e intervinientes se opongan a la competencia del juez para conocer de un determinado asunto se pueden presentar dos situaciones distintas, a saber: …”. 
+(iv) “Además de lo anterior, el funcionario encargado del asunto deberá convocar y dar curso a la audiencia respectiva y, en su desarrollo, 
+(i) manifestar la incompetencia; 
+(ii) correr traslado a las partes e intervinientes para que se pronuncien sobre su declaración; y 
+(iii) ordenar el envío del proceso al juez competente, si todos están de acuerdo, o remitirlo a esta Corporación si se presenta controversia. (CSJ AP1720 – 2023).”. 
+(v) “De conformidad con la información obrante en el expediente, observa la Sala que la actuación seguida en contra del procesado se adelanta por la posible comisión de los delitos de concierto para delinquir con fines de homicidio con circunstancia de agravación, asesoramiento a grupos armados organizados y homicidio agravado en grado de tentativa, las cuales deben ser conocidas por un juez penal del circuito especializado según se desprende de lo previsto en el artículo 35 de la Ley 906 de 2004.”. 
+(vi) “Ahora bien, para resolver el actual incidente se debe acudir a lo normado en los artículos 51 y 52 de la Ley 906 de 2004 y no a lo previsto en el canon 43 ejusdem, pues desde el proveído CSJ AP, 19 jun. 2013,
+
+---
+
+# PROVIDENCIA DDP 8216
+
+**Número de Providencia (DDP 8216):** AP7951-2025
+**Radicación (DDP 8216):** 63181
+
+**Lista de Temas (DDP 8216):**
+(i) “La Sala ha precisado, respecto de los allanamientos y su discusión en sede de casación, que es posible deshacer la aceptación de responsabilidad únicamente en las dos hipótesis previstas en el parágrafo del artículo 293 de la Ley 906 de 2004, esto es, si la persona imputada demuestra que 
+(i) se vició su consentimiento, o 
+(ii) se violaron sus garantías fundamentales (CSJ AP1379-2023).”. 
+(ii) “Así, legalizado el allanamiento no es posible “admitir la retractación de quien siendo capaz”, de manera voluntaria, libre e informada aceptó su responsabilidad y, en consecuencia, renunció a la garantía de no autoincriminación y “a gozar de un juicio público, concentrado y rodeado de las garantías de inmediación, contradicción e imparcialidad”. Con ello no solo se garantiza la seriedad de ese acto jurídico, sino que también se salvaguardan los principios de igualdad de armas y lealtad procesal, por cuanto desde ese momento “la Fiscalía abandona sus actividades investigativa y acusatoria” (AP3258-2023, AP3476-2023 y AP3807-2023).”. 
+(iii) “Entonces, presentar cargos con los que se discuta la materialidad de la conducta o la responsabilidad de la persona procesada “conlleva un desconocimiento flagrante del principio de no retractación” (CSJ AP683-2023).”. 
+(iv) “Bajo este entendido, en los casos de terminación anticipada del proceso, esta Corporación ha establecido que el interés para recurrir se restringe a aquellos aspectos que no se relacionen con la tipicidad de la conducta o la culpabilidad aceptada, en virtud del aludido principio de irretractabilidad (Cfr. CSJ AP4888, 28 ago. 2024, rad. 60256).”. 
+(v) “Conforme a ello, los aspectos que validan el interés para recurrir son puntuales. La impugnación es viable ante vulneración de garantías fundamentales, error en la dosificación de la pena, en su forma de ejecución, en la no concesión de subrogados si no se acordaron, o si el convenio fue desconocido por el juez de instancia.”. 
+(vi) Las nulidades en casación.
+
+---
+
+# PROVIDENCIA DDP 8217
+
+**Número de Providencia (DDP 8217):** AP7955-2025
+**Radicación (DDP 8217):** 67123
+**Decisión (DDP 8217):** SMS DEL 20.11.2025
+
+**Lista de Temas (DDP 8217):**
+(i) “Violación indirecta de la ley sustancial”. 
+(ii) “El adecuado planteamiento de un cargo por violación indirecta de la ley sustancial, derivado de falso juicio de existencia, exige acreditar que el juzgador se equivocó en la fase de apreciación probatoria porque una prueba válidamente practicada fue inadvertida (por omisión) o un elemento no incorporado fue objeto de apreciación (por suposición).”. 
+(iii) “Por su parte, el yerro derivado del falso raciocinio se constituye cuando el funcionario valora la prueba de manera íntegra, pero se aleja en la motivación de la sentencia de los postulados de la sana crítica, es decir, de una determinada ley científica, principio de la lógica o máxima de la experiencia.”. 
+(iv) “Cualquiera de estos yerros también debe ser trascendente. Esto significa que, frente a la valoración en conjunto de la prueba, su exclusión conduciría a adoptar una decisión distinta a la impugnada.”. 
+(v) “La demanda no logra estructurar de manera adecuada los cargos anunciados. El primero, por falso juicio de existencia, desconoce la prueba directa en el proceso y no precisa cuál elemento “inexistente” fue valorado; el segundo, por falso raciocinio, omite señalar la regla lógica, científica o máxima de la experiencia desconocida y se limita a replicar los alegatos de instancia; y el tercero, formulado por fuera de las causales vinculantes, resulta contradictorio, pues alega la falta de valoración de testimonios que sí fueron apreciados y desestimados expresamente por el Tribunal. Tales deficiencias impiden identificar un yerro objetivo y trascendente en la apreciación probatoria, razón por la cual la demanda no satisface los presupuestos de admisibilidad que gobiernan el recurso extraordinario de casación.”.
+
+---
+
+# PROVIDENCIA DDP 8218
+
+**Número de Providencia (DDP 8218):** AP7917-2025
+**Radicación (DDP 8218):** 64945
+
+**Lista de Temas (DDP 8218):**
+(i) El falso raciocinio. 
+(ii) “A efectos de acreditar la existencia del yerro, la censura debe señalar la prueba o inferencia en la cual recayó el error. Posteriormente, tendrá que identificar el principio lógico, la máxima de experiencia o el postulado científico que, en concreto, el juzgador desconoció en el proceso de valoración probatoria, con indicación clara y precisa de las razones por las cuales su aplicación resultaba necesaria para la corrección de la conclusión cuestionada en el caso concreto.”. 
+(iii) “En tanto referente de valoración probatoria, las reglas de la experiencia no pueden invocarse de cualquier manera. La construcción de una máxima fundada en el ordinario devenir de los acontecimientos de la vida en sociedad requiere de una estructura general y abstracta, definida por la Corte en los siguientes términos: …”. 
+(iv) “Por lo tanto, el punto de partida formal para analizar la incursión en falso raciocinio, por desconocimiento de las máximas de la experiencia, es la formulación de una proposición con estructura de regla, apta para ser aplicada en términos generales y abstractos, con pretensión de universalidad. Sólo a partir de tal referente de valoración es dable verificar si, al analizar el mérito de las pruebas, el razonamiento del juzgador deviene falso.”. 
+(v)  “De otro lado (cfr., entre otros, CSJ AP 25 mar. 2015, rad. 45235), la lógica concierne a la corrección del proceso completo del pensamiento. Tal disciplina comprende, entonces, el estudio de los métodos y principios que se usan para distinguir el razonamiento bueno (correcto) del malo (incorrecto). Los errores de razonamiento, en términos de lógica formal, se denominan falacias o silogismos aparentes o sofísticos, los cuales no implican cualquier yerro en el raciocinio o una idea falsa, sino errores típicos en las relaciones lógicas entre las premisas y la conclusión.”. 
+(vi) “A su vez, como componente de la sana crítica, la ciencia corresponde a un conjunto de conocimientos obtenidos mediante la observación y el razonamiento, sistemáticamente estructurados, de los que se deducen principios y leyes generales. Como lo ha puntualizado la jurisprudencia (cfr., entre otras, CSJ SP 15 sept. 2010, rad. 32488), tales máximas científicas, a partir de las cuales se generalizan e interpretan los fenómenos, permiten su explicación y comprensión en sus distintos ámbitos.”.
+
+---
+
+# PROVIDENCIA DDP 8219
+
+**Número de Providencia (DDP 8219):** AP7884-2025
+**Radicación (DDP 8219):** 70039
+
+**Lista de Temas (DDP 8219):**
+(i) “La acreditación de la causal de casación y la modalidad de error escogida -violación directa- debe contraerse a una mera oposición entre la sentencia y la ley, sin que tenga cabida la intermediación de aspectos probatorios, con base en los cuales el juez fija la premisa fáctica del silogismo jurídico.”. 
+(ii) “Ello también implica la aceptación de la estructura probatoria fijada por los juzgadores de instancia. Los hechos con base en los cuales se aplica el juicio de responsabilidad penal son inalterables, inmodificables, intangibles. De igual manera, la argumentación probatoria en que se soporta esa fijación de proposiciones fácticas ha de reputarse correctamente construida, sin que sea dable cuestionarla ni alterarla.”. 
+(iii) “Sin embargo, el planteamiento de la censura desconoce tales presupuestos, pues los denunciados errores de juicio normativo, de inicio, se hacen depender de una apreciación y valoración distinta de las pruebas, propuesta por el demandante como base del reclamo. Así, se quebranta la unidad lógica del cargo por violación directa.”. 
+(iv) “El demandante pasa por alto que los términos de la contextualización de la conducta delictiva atribuida al procesado son influenciados por la edad de la víctima y la tardía revelación, dada en el marco de una actividad escolar posterior, en la que la niña entendió lo que había vivido. Con todo, es claro que aquélla identificó con claridad el lugar en que fue agredida por el procesado, la casa de su abuela, en una ocasión en la que estuvo allí en diciembre de 2010.”.
+
+---
+
+# PROVIDENCIA DDP 8220
+
+**Número de Providencia (DDP 8220):** AP7910-2025
+**Radicación (DDP 8220):** 62441
+
+**Lista de Temas (DDP 8220):**
+(i) “Cuando se acude a la violación indirecta de la ley sustancial, además de la carga de cumplir con las exigencias argumentativas propias de la modalidad del error escogido (de hecho o de derecho), desde la óptica sustancial el impugnante debe desmontar los fundamentos probatorios de la unidad decisoria conformada por las sentencias de instancia …”. 
+(ii) “El error de derecho por falso juicio de convicción, bajo el cual ataca la demandante el fallo de segundo grado, se presenta cuando el juez le niega a la prueba el valor asignado por la ley o cuando le da uno que legalmente no le corresponde. Presupone la existencia de una tarifa legal, o lo que es lo mismo, la asignación de un valor demostrativo o de persuasión único, predeterminado y que no puede ser alterado por el intérprete.”. 
+(iii) “La postulación y fundamentación de este tipo de yerro exige que el casacionista identifique el elemento sobre el cual recayó el error; indique cuál es la norma que tasa su valor o restringe su eficacia probatoria; exponga la razón de su desconocimiento; y enseñe qué implicaciones tuvo ese error en el fallo que se discute.”. 
+(iv) “Sobre ese error de derecho la Sala también ha precisado (CSJ AP687-2020 reiterada en CSJ AP523 – 2021): …”. 
+(v) “La premisa en la cual la defensa funda el cargo, en realidad, es una petición de principio  que pretende dar por demostrada la veracidad del dicho del sentenciado, a partir de lo que él mismo relató, pero que tuvo que desechar el Tribunal porque no halló corroboración alguna en el acervo probatorio recaudado y, más allá de su mera enunciación, tampoco demostró la defensa que hubiese existido alguna incorrección en la premisa ofrecida en la sentencia, con vocación suficiente para admitir el reproche.”.
+
+---
+
+# PROVIDENCIA DDP 8221
+
+**Número de Providencia (DDP 8221):** AP7882-2025
+**Radicación (DDP 8221):** 65291
+
+**Lista de Temas (DDP 8221):**
+(i) “En los cargos primero y tercero el demandante sostiene que se desconoció el debido proceso, esencialmente porque la Fiscalía no imputó otros delitos adicionales a la procesada y a quien, como vendedor, suscribió la escritura de compraventa en la que aquella habría faltado a la verdad. Agrega que tampoco se investigaron varias conductas punibles denunciadas por el propio recurrente y cometidas durante del trámite. De esta manera, asevera que se incumplieron los artículos 50 y 51 de la Ley 906 de 2004, sobre la investigación y juzgamiento de los delitos que sean conexos. De igual modo, expresa que no se le permitió allegar prueba sobreviniente en el juicio, respecto de la comisión de uno de ellos.”. 
+(ii) “A juicio de la Sala, el cargo incumple el principio de fundamentación debida. De acuerdo con la jurisprudencia, la violación al debido proceso, como causal de casación, se configura cuando se ha afectado sustancialmente la estructura del trámite o se han vulnerado de manera trascendente las garantías de las partes o intervinientes. Por lo tanto, como requisito de sustentación mínima para la admisión del cargo, se exige al recurrente identificar el tipo de irregularidad sustancial alegada, acreditar su configuración, indicar la norma o normas violadas y especificar su cobertura invalidatoria.”. 
+(iii) “Además de lo anterior, es esencial justificar la trascendencia del error, es decir, debe explicarse por qué, de qué manera, la irregularidad causó un daño o perjuicio real a quien la alega. En adición, frente a la declaratoria de nulidad que se seguiría del error constatado, es necesario sustentar que esta medida es inevitable frente a los principios de convalidación , protección , instrumentalidad de las formas , trascendencia  y residualidad - . Ello, por cuanto, como es sabido, la nulidad es un remedio con costos e impactos sensibles para el proceso judicial y sus partes e intervinientes.”. 
+(iv) “En segundo lugar, lo invocado por el demandante no constituye formalmente un vicio con la virtualidad de invalidar el trámite. Pese a que en principio los delitos conexos se investigan y juzgan conjuntamente, el no hacerlo no constituye en sí mismo una irregularidad que impacte el debido proceso. Conforme al inciso 2º del artículo 50 de la Ley 906 de 2004, la ruptura de la unidad procesal no genera nulidad, siempre que no afecte garantías constitucionales. El impugnante en este caso no dirigió argumentos dirigidos a mostrar que la falta de conexidad que alega produjo consecuencias perjudiciales en los derechos constitucionales de la víctima o en las prerrogativas de las partes.”. 
+(v) “Por último, el demandante sostiene que no se le permitió presentar pruebas sobrevinientes, respecto de uno de los delitos que, estima, también cometió la procesada, pero no formó parte de la acusación. Este alegato, sin embargo, no pone de manifiesto irregularidad alguna. En sesión de juicio oral de 28 de abril de 2021, el Juzgado advirtió que la presentación de la citada clase de pruebas, en las que insistía el representante de la víctima, debía canalizarse a través del fiscal del caso. Enseguida, otorgó el uso de la palabra al representante del ente acusador, quien manifestó que no solicitaría la citada evidencia, por considerar que era impertinente . Lo anterior, antes que poner de presente alguna  causa de invalidación del proceso, muestra que el Juzgado impartió el trámite legalmente debido.”. 
+(vi) “En estas dos acusaciones, el recurrente cuestiona supuestas omisiones de la sentencia, que menoscabarían el derecho al debido proceso. De un lado, afirma que no se decretó la nulidad de la promesa, de la escritura pública ni del registro de esta última en la oficina de registro de instrumentos públicos, respecto del contrato de compraventa en el que la procesada habría faltado a la verdad. De otro lado, señala que no se efectuó pronunciamiento respecto del fraude procesal, materializado con el registro de la escritura, en la cual la acusada indicó ser soltera, pese a ser casada. Cuestiona, también, que se le absolvió de ese delito, aun cuando expresó en el proceso de familia, de forma contraria a la verdad, que durante la vigencia de la sociedad conyugal no se adquirieron bienes.”. 
+(vii) “El recurrente también ignora que la no declaratoria de nulidad de la escritura pública y del registro de esta en la oficina de instrumentos públicos, respecto del contrato de compraventa en el que la procesada habría faltado a la verdad, obedeció al sentido de la decisión absolutoria adoptada en ambas instancias. El restablecimiento del derecho, deber del que se derivaría la medida que, según el recurrente, debió ser decretada por los jueces de instancia, solo se habría seguido en este caso de una sentencia de condena. Sin embargo, el Juzgado y el Tribunal estimaron que lo anterior no era procedente.”.
+
+---
+
+# PROVIDENCIA DDP 8222
+
+**Número de Providencia (DDP 8222):** AP7879-2025
+**Radicación (DDP 8222):** 64923
+**Decisión (DDP 8222):** SMS DEL 21.11.2025
+
+**Lista de Temas (DDP 8222):**
+(i) “violación indirecta de la ley sustancial -numeral 3º del artículo 181 de la Ley 906 de 2004-.”. 
+(ii) “La causal invocada se presenta por la incorrecta apreciación probatoria derivada de los denominados errores de derecho y de hecho.”. 
+(iii) “Los primeros se configuran cuando el juez, al apreciar la prueba, desconoce las reglas que regulan su producción y eficacia, entre ellos están, el falso juicio de convicción  y de legalidad . Los segundos implican un vicio fáctico, es decir, que el fallador se equivocó al contemplar materialmente el medio de prueba; en esta categoría se encuentran el falso juicio de existencia , falso juicio de identidad  y falso raciocinio  (CSJ AP2259-2024, AP2271-2024, AP2724-2023, AP1381-2023, AP3457-2022).”. 
+(iv) “Acorde con lo anterior, al demandante le corresponde identificar cuál de los citados errores de hecho o de derecho se configuran en cada caso y desarrollarlos de forma coherente y lógica, acorde con los presupuestos jurisprudenciales que cada error exige. Ahí, es indispensable que ilustre cómo los desaciertos fueron determinantes y que desencadenaron una resolución jurídica equivocada, de manera que, la corrección de los desatinos lleve a una solución favorable a la parte que los invocó.”.
+
+---
+
+# PROVIDENCIA DDP 8223
+
+**Número de Providencia (DDP 8223):** AP7838-2025
+**Radicación (DDP 8223):** 61871
+
+**Lista de Temas (DDP 8223):**
+(i) “Tratándose de la causal segunda de nulidad por desconocimiento de la estructura del debido proceso, o por afectación de la garantía debida a cualquiera de las partes con capacidad de invalidar la actuación, es imperioso para el demandante: 
+(i) indicar el motivo de nulidad que se configura (incompetencia, violación del debido proceso o violación del derecho de defensa) ; 
+(ii) identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–; 
+(iii) demostrar su configuración; 
+(iv) precisar la norma o normas violadas; 
+(v) especificar su cobertura invalidatoria; 
+(vi) justificar la procedencia de su declaración de cara a los principios de taxatividad, acreditación, convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad; y, 
+(vii) acreditar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(ii) “La simple enunciación de supuestos errores de procedimiento o de garantía no es suficiente para quebrar la presunción de acierto y legalidad que ampara la sentencia. Es menester indicar en qué consistió en concreto la irregularidad y demostrar que, frente a los principios ya indicados y las particularidades del caso, no existe alternativa distinta de solución que la invalidación del trámite.”. 
+(iii) “Por tanto, no es dable dar trámite a cualquier escrito que exponga la existencia de un motivo de ineficacia de lo actuado, puesto que no se trata de proponer por proponer, ni de invocar, a manera de razón invalidante, todo aquello que no se hizo o no se obtuvo en las instancias, o que, habiendo sido objeto de pronunciamiento por la autoridad judicial, no fue del agrado de la parte afectada.”. 
+(iv) “Además, cuando la anomalía recriminada se contrae a la trasgresión del derecho a la defensa técnica, es forzoso presentar los datos objetivos del proceso que demuestren la inactividad o la negligencia de la asistencia profesional y cómo el desconocimiento sobre la labor inherente a su función impidió alcanzar su cometido en pro de la defensa del acusado y el respeto por sus garantías.”. 
+(v) “En cuanto a la primera queja, la Sala recuerda que la falta de una depurada técnica de contra interrogación u oposición, por sí misma, no es suficiente para afirmar la violación del derecho a la defensa técnica (Cfr. CSJ AP1938–2021, 19 may. 2021, rad. 56142 y CSJ AP977–2025, 26 feb. 2025, rad. 67217, entre otras).”. 
+(vi) “En lo que respecta al tercer tópico de disenso, esto es, haberse impedido la práctica del testimonio de CIELO DEL CARMEN PÁEZ, en cuanto esta presenció toda la práctica probatoria precedente antes de ser llamada a declarar, en transgresión de lo previsto en el artículo 396 de la Ley 906 de 2004 –examen separado de testigos–, ya el Tribunal se pronunció desestimando la postulación del censor, razón para entender que lo pretendido ante esta sede es provocar un nuevo pronunciamiento de la Corte, a la manera de tercera instancia, sólo porque lo decidido en las instancias no es del agrado del libelista.”.
+
+---
+
+# PROVIDENCIA DDP 8224
+
+**Número de Providencia (DDP 8224):** AP7927-2025
+**Radicación (DDP 8224):** 69903
+
+**Lista de Temas (DDP 8224):**
+(i) “Aunque inicialmente denunció la infracción directa de la ley por «exclusión evidente» del artículo 32-4 del Código Penal, es decir falta de aplicación, no hizo evidente la manera en que el Ad quem incurrió en el denunciado desacierto, mucho menos si el precepto en mención exime de responsabilidad penal a quien «obre en cumplimiento de orden legítima de autoridad competente emitida con las formalidades legales» pues, como resulta patente, el supuesto fáctico de la norma no fue objeto de debate en el proceso, siendo por demás palmario que no guarda ninguna relación con el delito materia de juicio, sin que la demandante exhibiera argumento alguno en orden a demostrar lo contrario, limitándose simplemente a la mención de la norma de manera inconexa, desde luego, con los hechos jurídicamente relevantes.”. 
+(ii) “También denunció la recurrente la violación directa de la ley sustancial, por «aplicación indebida» del artículo 286 del Código Penal, esto es, «por haber incurrido parcialmente en la causal primera, cuerpo primero, de CASACIÓN, consagrada en el numeral primero del artículo 205 del Código de Procedimiento Penal», postulado en el cual se advierte una primera incorrección formal cuando se acude, en la alusión a la segunda norma, a la Ley 600 de 2000 no obstante que el asunto se tramitó bajo el rito de la 906 de 2004.”. 
+(iii) “El desacierto es mayor y ya sustancial cuando se dice indebidamente aplicado el artículo 286 del Código Penal, habida cuenta que éste hace relación al punible de falsedad ideológica en documento público, que, por supuesto, nada tiene que ver con los hechos objeto de esta causa que se adelantó por el delito de acceso carnal violento agravado, descrito en los artículos 205 y 211-5 de la Ley 599 de 2000.”. 
+(iv) “Es evidente, por tanto, el desatino en el planteamiento que inicialmente sustenta el cargo porque, aunque se acusa la violación directa de la ley, es incuestionable que la inaplicada o la indebidamente aplicada, a pesar de su naturaleza sustancial, ninguna relación guarda con los hechos jurídicamente relevantes imputados al acusado.”. 
+(v) “De otro lado, a pesar de la invocación a la infracción directa de la ley, el cargo se sustenta a partir de cuestionamientos fácticos y probatorios, orientados a demostrar cómo, el Ad quem, incurrió supuestamente en una serie de equívocos al momento de valorar los hechos y los medios de convicción.”. 
+(vi) “En ese orden, en contra de los parámetros que rigen la causal invocada, cuya premisa fundamental consiste en admitir los hechos y pruebas según fueron declarados y valoradas por el sentenciador, la demandante desvía inopinadamente el reparo hacia la infracción indirecta de la ley, pero sin enunciación y menos demostración de alguna de las vías por las cuales el sentenciador habría arribado a un error de tal naturaleza, esto es si por equívocos de hecho o de derecho, en sus diversas expresiones, olvidando que el debate en sede de casación, cuando se acude a aquella causal, es exclusivamente jurídico y que esa comprensión excluye la posibilidad de exponer motivos de disenso relacionados con la valoración probatoria efectuada en la providencia.”.
+
+---
+
+# PROVIDENCIA DDP 8225
+
+**Número de Providencia (DDP 8225):** AP7997-2025
+**Radicación (DDP 8225):** 62300
+
+**Lista de Temas (DDP 8225):**
+(i) “El art. 3º de la Ley 2477 de 2025, que entró en vigor el 11 de julio de 2025, modificó el art. 77 de la Ley 906 de 2004, en el sentido de que la reparación integral es una de las causales de extinción de la acción penal.”. 
+(ii) “A su turno, el art. 4º de la Ley 2477/25 adicionó el art. 78A a la Ley 906/04, estableciendo que, en determinados delitos, entre ellos las conductas contra el patrimonio económico, la acción penal se extinguirá para todos los imputados o acusados cuando cualquiera de ellos realice la reparación integral del daño causado. De esa regulación se exceptuó el hurto calificado por la violencia contra las personas y la extorsión.”. 
+(iii) “En virtud del principio de favorabilidad, la Sala ha decantado que la Ley 2477/25 debe aplicarse en todos los casos en curso y venideros, siempre y cuando satisfagan una serie de exigencias, entre ellas: …”. 
+(iv) “Ese requisito de oportunidad supone que la defensa informe a la jurisdicción sobre la efectiva reparación integral, obviamente, antes de que la Sala se pronuncie sobre el recurso de casación. En esa línea de pensamiento, la Corte ha expresado: …”. 
+(v) “En ese orden de ideas, es indiscutible que la petición de extinción de la acción penal por reparación integral es extemporánea. Por ende, con fundamento en el art. 139-1°  del CPP, la Sala rechazará de plano la solicitud de la defensa.”. 
+(vi) “Sin perjuicio de lo anterior, esta Corporación le recuerda al peticionario que el juez de ejecución de penas y medidas de seguridad también tiene competencia para resolver sobre la reparación integral. En ese sentido, la defensa puede hacer la respectiva solicitud ante el juez a cargo de supervisar la sanción, quien tendrá que evaluar si es viable aplicar la Ley 2477 de 2025, teniendo como norte el principio de favorabilidad.”.
+
+---
+
+# PROVIDENCIA DDP 8226
+
+**Número de Providencia (DDP 8226):** AP7821-2025
+**Radicación (DDP 8226):** 64954
+
+**Lista de Temas (DDP 8226):**
+(i) “Se invocó en la demanda la causal tercera, referida a la violación indirecta de la ley sustancial, que en su desarrollo refiere un contenido consolidado por menoscabos que recaen sobre los medios de prueba, por errores de hecho derivados de: …”. 
+(ii) “Por su parte, la causal primera de casación contenida en el artículo 181 de la Ley 906 de 2004, puede presentarse bajo tres modalidades – falta de aplicación, aplicación indebida o interpretación errónea – y su desarrollo implica, como exigencia básica, respetar tanto los hechos declarados en la sentencia, como la valoración probatoria de las instancias, pues, una censura de dicha naturaleza debe circunscribirse a un juicio de estricto derecho.”. 
+(iii) “La interpretación errónea –modalidad escogida por el censor–, se presenta cuando el juzgador se equivoca en la hermenéutica del derecho, al concederle a la norma correctamente seleccionada un sentido que no tiene o un alcance del que carece.”. 
+(iv) “No se advierte, entonces, que las instancias hayan dispuesto negar la prisión domiciliaria en desconocimiento de la condición de padre cabeza de familia de HERNÁNDEZ BELTRÁN, pues, lo que se vislumbra, de cara a lo argumentado en los respectivos fallos, es que no hubo una acreditación real de tal presupuesto, en la medida en que no sólo emergió indemostrada la ausencia permanente de la progenitora de las menores, sino que tampoco se acreditó la inexistencia de otros miembros del núcleo familiar idóneos y capaces de hacerse cargo de las menores.”. 
+(v) “En síntesis, el censor no acreditó la existencia de un desafuero hermenéutico, toda vez que no superó el plano de la enunciación de un defecto, desprovisto de soporte argumentativo y de mínima dialéctica; en esos términos formulado, es incapaz de trabar una controversia racional frente a la providencia recurrida.”.
+
+---
+
+# PROVIDENCIA DDP 8227
+
+**Número de Providencia (DDP 8227):** AP7913-2025
+**Radicación (DDP 8227):** 62555
+**Decisión (DDP 8227):** SMS DEL 24.11.2025
+
+**Lista de Temas (DDP 8227):**
+(i) “Pues bien, es importante recordar que cuando se acude a la violación indirecta de la ley sustancial, además de la carga de cumplir con las exigencias argumentativas propias de la modalidad del error escogido (de hecho, o de derecho), desde la óptica sustancial el impugnante debe desmontar los fundamentos probatorios de la unidad decisoria conformada por las sentencias de instancia.”. 
+(ii) “El falso juicio de identidad como faceta de la violación indirecta derivada de errores de hecho, se presenta cuando el fallador pasa por alto el contenido objetivo de un determinado medio de prueba, porque hace una lectura equivocada de su texto (tergiversación), le agrega aspectos que no contiene (adición), o mutila partes relevantes de su contenido (cercenamiento).”. 
+(iii) “Su debida postulación impone la carga de señalar, en concreto, cuál fue la prueba cuyo contenido se distorsionó, agregó o cercenó.  Así mismo, indicar lo que ella decía y demostrar que el entendimiento que del medio de conocimiento obtuvo el juzgador fue distinto llevando a cabo un ejercicio de confrontación que, a la manera de una doble columna, reproduce en la primera lo que textualmente dijo la prueba y en la segunda lo que se le hizo decir, para destacar luego la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido el error, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(iv) “Si lo que el demandante pretendía era criticar la valoración que de los medios probatorios hicieron las instancias, debió postular sus reproches por la senda del falso raciocinio, el cual exige que el casacionista: …”. 
+(v) “Si bien las retractaciones o contradicciones tienen incidencia en la credibilidad del testigo, ello no significa per se que deba proferirse una decisión absolutoria. Precisamente, la valoración conjunta de los medios probatorios, en armonía con los principios de la sana critica, son los que guían al juez a adoptar determinada decisión.”.
+
+---
+
+# PROVIDENCIA DDP 8228
+
+**Número de Providencia (DDP 8228):** No especificado
+**Radicación (DDP 8228):** CUI 110016102418202206898 01
+
+**Lista de Temas (DDP 8228):**
+(i) La violencia intrafamiliar. 
+(ii) "Así mismo, por paradójico que pueda parecer, el bien jurídico de la unidad y armonía familiares se podría ver afectado cuando los vínculos de pareja persisten bajo formas contrarias a proyectos de vida en común, fundados en principios de solidaridad y respeto. Los entornos familiares en los que se ejerce de manera sistemática la violencia contra la mujer, es un buen ejemplo de ello. Es frecuente en tales casos, bajo entornos sumidos en actos de dominación, subordinación y agresión cotidiana, que se vea vulnerado el bien jurídico de la familia, objeto de protección penal, no solamente por el hecho de la persistente violencia contra la pareja fruto de la convivencia, sino aun en situaciones en que el agresor es expulsado o separado del entorno familiar por decisión de la mujer o como consecuencia de medidas de protección impuestas por las autoridades judiciales o administrativas (Medidas de protección en casos de violencia intrafamiliar, artículo 17 de la Ley 1257 de 2008)”.". 
+(iii) “En torno a este tema, recuérdese que, la Sala de Casación Penal de la Corte Suprema de Justicia, ha sido enfática en precisar que, “al analizar un testimonio, lo que destruye su valor y credibilidad es la verdadera contradicción, interna o externa, sobre aspectos esenciales relevantes, cuya depreciación será mayor cuanto sea menos explicable la contradicción. En contraste, las disonancias sobre aspectos accesorios no destruyen la credibilidad del testimonio, aunque sí la aminoran, sin que ello traduzca ruptura de la verosimilitud”.”. 
+(iv) “Así las cosas, en realidad, jamás existió una convivencia continúa entre los involucrados y su vínculo sentimental no superó una relación afectiva intensa, que se caracterizó porque gran parte de la relación vivieron cada uno en su apartamento con visitas continuas a las viviendas de ambos y, solo hasta el último mes del vínculo afectivo, compartieron el inmueble de BARONA FERNÁNDEZ, aunque por motivos económicos para evitar que Silveira Leonel pague por corto tiempo un mes de arriendo del inmueble que alquiló, de ahí que, la permanencia fue temporal y, en ultimas, la afectada estuvo allí poco más de una semana.”. 
+(v) De violencia intrafamiliar a lesiones personales agravadas. 
+(vi) La coautoría. 
+(vii) Los criterios de género. 
+(viii) La congruencia en este caso.
+
+---
+
+# PROVIDENCIA DDP 8229
+
+**Número de Providencia (DDP 8229):** No especificado
+**Radicación (DDP 8229):** CUI 76-001-6000-193-2024-01712-01
+
+**Lista de Temas (DDP 8229):**
+(i) "En atención a la controversia planteada por el recurrente, le corresponde a esta sección de la Sala Penal determinar si se realizó el debido descubrimiento probatorio de la búsqueda selectiva en base de datos solicitada por la defensa en la audiencia preparatoria, y en consecuencia establecer si se confirma o revoca la decisión del a-quo, respecto de la inadmisión de dicho medio probatorio". 
+(ii) El descubrimiento probatorio y sus formas. 
+(iii) “Con fundamento en lo expuesto, se colige que, el descubrimiento probatorio impone a las partes el deber de suministrar, exhibir o poner a disposición de la contraparte, todos los elementos materiales probatorios y evidencia física que obren en su poder como resultado de sus actividades investigativas, para que se decreten como prueba y se practiquen en el juicio oral en sustento de sus argumentaciones, permitiendo de esa manera que conozcan oportunamente cuáles son los instrumentos de prueba sobre los que el adversario fundará su teoría del caso.”. 
+(iv) “En consecuencia, advierte la Sala que, dicho acto investigativo por parte de la defensa a la fecha de la audiencia preparatoria se encuentra inconcluso, al no existir ningún resultado derivado del mismo que pudiera ser objeto de descubrimiento. Valga recalcar que este acto no se cumple con anunciar simplemente la autorización previa, ni con referirse a una diligencia investigativa en curso, con la promesa de que los resultados serán allegados posteriormente. Por el contrario, conforme lo expuesto en precedencia, el descubrimiento impone a la parte el deber de establecer con precisión de qué trata cada elemento material probatorio, con el fin de que la contraparte conozca su contenido y alcance, y con ello, pueda preparar el ejercicio de la contradicción.”. 
+(v) “Corolario de lo expuesto, la Sala concluye que la búsqueda selectiva en bases de datos solicitada por la defensa del señor Robinson Cabezas Martínez es inadmisible tal como lo estableció la autoridad judicial de la primera instancia porque la misma es el medio para obtener un elemento material probatorio aún desconocido respecto del cual no es posible anticipar reflexiones de pertinencia y utilidad para ser ingresados como prueba en el juicio oral.”.
+
+---
+
+# PROVIDENCIA DDP 8230
+
+**Número de Providencia (DDP 8230):** No especificado
+**Radicación (DDP 8230):** CUI 68 001 60 99053 2021 48800
+
+**Lista de Temas (DDP 8230):**
+(i) La motivación de las providencias. 
+(ii) “En particular, el control judicial de la providencia depende esencialmente de su motivación, en tanto los recursos que contra ella proceden se dirigirán a controvertir los motivos expuestos por el juez para adoptarla. Por eso, “si esas razones no son públicas el recurrente no podrá esgrimir contra la sentencia más que argumentos generales, que repetirían lo que él ya habría señalado en el transcurso del proceso. Precisamente entre los fines del deber de motivar las sentencias se encuentra el de facilitarle al afectado la comprensión de la resolución emitida y la formulación de su impugnación”.”. 
+(iii) “En tal virtud, se vulnera el debido proceso y, por ende, el derecho de acceso a la administración de justicia, si a las partes se les impide recurrir los fallos judiciales por la imposibilidad de conocer los argumentos que llevaron al juez a adoptar su decisión.”. 
+(iv) “Sobre la obligación de motivación de las providencias judiciales y las consecuencias de su omisión, ha expresado la Sala de Casación Penal de la Corte Suprema de Justicia: …”. 
+(v) “La falta de motivación se evidencia en forma patente con solo mirar que la Fiscalía le atribuyó al procesado un concurso homogéneo de actos sexuales abusivos agravados, lo cual le significaba al fallador la obligación de ofrecer razones acerca de si el relato de la víctima dio cuenta de cada uno de esos eventos, de otros, o de ninguno y, por supuesto, de la circunstancia de agravación, carga que, se insiste, no cumplió”. 
+(vi) “En realidad de verdad, con la plantilla (no puede denominarse de otra manera) utilizada por el juez para proferir la sentencia de primera instancia podría perfectamente despacharse con facilidad todo tipo de procesos judiciales, por más complejos que sean. Ello, desde luego, no es admitido en un Estado social de derecho, de modo que, en absoluto, constituye modelo a seguir.”.
+
+---
+
+# PROVIDENCIA DDP 8231
+
+**Número de Providencia (DDP 8231):** No especificado
+**Radicación (DDP 8231):** CUI 05212600020120180339702
+
+**Lista de Temas (DDP 8231):**
+(i) “Sobre la redención de penas”. 
+(ii) La redención de pena por educación y enseñanza. 
+(iii) “La redención de pena de beneficio a derecho”. 
+(iv) “Sobre el artículo 19 de la ley 2466 de 2025”. 
+(v) “De la aplicación favorable del artículo 19 de la ley 2466 de 2025”. 
+(vi) “Redención por trabajo, estudio y enseñanza en perspectiva del artículo 19 de la ley 2466 de 2025”. 
+(vii) “La analogía”. 
+(viii) “ubi eadem ratio; ibi eadem dispositio juris debet”.
+
+---
+
+# PROVIDENCIA DDP 8232
+
+**Número de Providencia (DDP 8232):** No especificado
+**Radicación (DDP 8232):** CUI 73001
+**Decisión (DDP 8232):** 60.99.093.2016.02931.01. SMS DEL 25.11.2025
+
+**Lista de Temas (DDP 8232):**
+(i) El incidente de reparación integral. 
+(ii) “Y es que si bien, esta Colegiatura reconoce que el Juez Penal dentro del incidente de reparación integral posee facultades para decretar pruebas de oficio, dada la naturaleza civil del trámite, tal prerrogativa no es absoluta por cuanto debe ser garante del derecho de defensa y debido proceso de la parte incidentada y no retribuir la omisión probatoria de la parte incidentante.”. 
+(iii) El momento para decretar pruebas. 
+(iv) Ir más allá de lo pedido. 
+(v) La prueba de los perjuicios causados con el delito.
+
+---
+
+# PROVIDENCIA DDP 8233
+
+**Número de Providencia (DDP 8233):** SP2077-2025
+**Radicación (DDP 8233):** 61998
+
+**Lista de Temas (DDP 8233):**
+(i) “Respecto a la prueba indiciaria, la Sala ha reiterado y precisado que a pesar de no aparecer mencionada en el artículo 382 de la Ley 906 de 2004, hace parte del sistema procesal penal, en virtud del principio de libertad probatoria.”. 
+(ii) “Así mismo, la Corte ha determinado que: “los indicios deben estar cimentados en hechos plenamente probados y las deducciones marcadas por la seriedad y razonabilidad, a partir de reglas de la sana crítica, pues, si solo se trata de probabilidades o meros criterios de quien realiza el análisis, no pueden ser acogidos para fundar una condena, dado que apenas perviven en el campo de la incertidumbre o la especulación” …”. 
+(iii) “De igual forma, la Corte reitera que, para la construcción de un indicio deben cumplirse ciertos requisitos: i) existir un hecho indicador debidamente constatado; ii) es imprescindible identificar las pruebas que lo sustentan; iii) determinar el valor probatorio que se les otorga, si no se cuenta con pruebas del hecho indicador, o si las existentes carecen de credibilidad, dicho hecho no puede declararse probado y, por ende, tampoco puede intentarse la construcción de ningún indicio; iv) demostrado el hecho indicador, se debe establecer la regla de la experiencia que le confiere fuerza probatoria al indicio, pues ésta podría ser errónea o falsa o aplicarse con un alcance distinto al que realmente tiene, por eso, es indispensable señalarla para garantizar su contradicción; v) debe formularse el hecho indicado con base en la relación lógica establecida a partir del hecho indicador y la regla de la experiencia y su solidez depender de la pertinencia y alcance de esta última y, vi) por último, ese hecho indicado, debe valorarse en concreto y en conjunto con los demás medios probatorios, con el fin de determinar si alcanza el estándar necesario para ser declarado probado.”. 
+(iv) “la regla de experiencia que sirve como de enlace entre ambos hechos es la máxima que establece que la proposición de un homicidio por precio o recompensa es un acto inequívoco de autoridad intelectual o determinación criminal, pues quien gestiona y ofrece una suma de dinero a un tercero para cometer un asesinato, es la persona con el interés, la voluntad y el plan de causar la muerte; regla que permite a la Sala concluir, más allá de la presencia física del procesado, la responsabilidad en la comisión del delito de homicidio.”. 
+(v) “Dicha agravante, resalta la Sala, tiene fundamento en un desvalor de acción, que justifica la mayor gravedad de la respuesta punitiva. Y ese desvalor no recae únicamente sobre el autor material o ejecutor del homicidio; también agrava la conducta del determinador, quien utilizando la remuneración corrompe la voluntad del ejecutor, llenándolo de razones para acabar con la vida de otra persona.”. 
+(vi) “Además, a la luz del art. 30 inc. 1° del C.P., es claro que la promesa remuneratoria desemboca en el mismo desvalor de acción en quien la ofrece y en quien la recibe. De ahí que, en esa circunstancia, deba aplicarse el precepto acorde con el cual el determinador ha de recibir la misma pena del autor.”. 
+(vii) Respecto a “la agravante prevista en el numeral 7º del artículo 104 de la Ley 599 de 2000”, “La Sala ha señalado que esta norma consagra cuatro eventos diferentes, lo que implica que la Fiscalía, al realizar el juicio de acusación y el juez al emitir la sentencia, deben precisar en cuál de ellos se subsume la hipótesis factual debidamente planteada, esto es: i) la indefensión ocasionada por el agresor; ii) la inferioridad producida por el atacante; iii) la indefensión preexistente, de la cual se aprovecha el victimario; y iv) la inferioridad preexistente, aprovechada por el ofensor” (CSJ SP2896-2020, 12 may. rad. 53596 y CSJ SP2170-2020, 1º jul., rad. 56174”. 
+(viii) “Pero, además, debe tomarse en consideración que indefensión e inferioridad son categorías diferentes, de lo cual se sigue que, necesariamente, cuando se relaciona la agravante corre del resorte de la Fiscalía no solo especificar a cuál de las varias opciones consignadas en el ordinal 7º, se refiere, sino además demostrarla a cabalidad.”. 
+(ix) “Incluso, para mayor precisión en torno de la responsabilidad predicable del autor, en estos casos no basta con determinar que la víctima efectivamente se encontraba en una condición específica de indefensión o inferioridad, sino que se obliga demostrar que ello no fue solo conocido por el acusado, sino que quiso aprovecharse de la ventaja inserta en dicha condición.”. 
+(x) La indefensión y la inferioridad. 
+(xi) “Sobre la dosificación de la pena accesoria de privación del derecho a la tenencia y porte de armas de fuego.”.
+
+---
+
+# PROVIDENCIA DDP 8234
+
+**Número de Providencia (DDP 8234):** AP8156-2025
+**Radicación (DDP 8234):** 70796
+
+**Lista de Temas (DDP 8234):**
+(i) “Ciertamente y dado que este asunto se tramita bajo el procedimiento de la Ley 600 de 2000, puede afirmarse que una de las modalidades de violación al derecho de defensa con incidencia en la diligencia de indagatoria, se consolida cuando se omite interrogar al sindicado respecto de alguna o algunas conductas punibles y no obstante dicha omisión, se procede a formular imputaciones fácticas y jurídicas en la resolución de acusación, sorprendiendo al investigado con una atribución de hechos respecto de los que nunca se le preguntó ni se le dio oportunidad de defenderse.”. 
+(ii) “En efecto, si en la indagatoria no se cuestiona al sindicado sobre los aspectos fácticos de una conducta objeto de investigación penal ni se le da a conocer con precisión la imputación jurídica, es claro que las conductas omitidas no se pueden integrar en una resolución de acusación.”. 
+(iii) “Sin embargo, es cierto también que no siempre al momento de la indagatoria se conocen por el instructor todos los supuestos de hecho que configuran el respectivo tipo penal, los que se irán seguramente develando con el avance de las pesquisas, sin que por eso pueda entenderse estructurada una irregularidad sustancial que afecte la validez de la acusación, cuando para este momento ya se cuentan con otros y nuevos elementos de juicio que probablemente no se tenían al recibir aquella, pero claro, siempre a condición de que por lo menos se concrete el núcleo fáctico del llamamiento a juicio.”. 
+(iv) La progresividad en la Ley 600 de 2000.
+
+---
+
+# PROVIDENCIA DDP 8235
+
+**Número de Providencia (DDP 8235):** SP2072-2025
+**Radicación (DDP 8235):** 62790
+
+**Lista de Temas (DDP 8235):**
+(i) “Del principio de favorabilidad en materia penal”. 
+(ii) “Del parágrafo del artículo 301 de la Ley 906 de 2004 y su derogatoria por la Ley 2477 de 2025”. 
+(iii) “Lo anterior implica que, a partir de la novísima normatividad, en todos los casos de captura en situación de flagrancia en los que existiere allanamiento o aceptación de cargos y acuerdos o negociaciones entre la fiscalía y el imputado o acusado, para los efectos de la rebaja de pena en virtud de la justicia premial, habrán de observarse los límites establecidos por el legislador penal de 2004 –Ley 906–, según la etapa procesal en que ello ocurra, así: 
+(i) en la audiencia de formulación de imputación, hasta de la mitad –artículo 351–; 
+(ii) en la audiencia preparatoria, hasta en la tercera parte –numeral 5 del artículo 356–; y, 
+(iii) en la audiencia de juicio oral, una sexta parte –artículo 367–.”.
+
+---
+
+# PROVIDENCIA DDP 8236
+
+**Número de Providencia (DDP 8236):** SP2080-2025
+**Radicación (DDP 8236):** 59170
+
+**Lista de Temas (DDP 8236):**
+(i) “La interpretación errónea de una norma sustancial, yerro de hermenéutica, presupone reconocer que la norma cuya vulneración se acusa ha sido correctamente seleccionada y demostrar que se le confirió un efecto distinto al que realmente le corresponde.”. 
+(ii) “La interpretación errónea de una norma sustancial, yerro de hermenéutica, presupone reconocer que la norma cuya vulneración se acusa ha sido correctamente seleccionada y demostrar que se le confirió un efecto distinto al que realmente le corresponde.”. 
+(iii) “Mientras que la conducta definida en el inciso segundo del artículo 406 ídem se distingue porque la actuación del servidor público se ve afectada por «la aceptación de invitaciones, presentes o cualquier otro tipo de utilidad, ofrecidos por quien está interesado en asunto sometido a decisión del funcionario y por este aceptados», en el entendido que se propende por «prevenir el ablandamiento del funcionario en cuanto a la imparcialidad que debe caracterizar el ejercicio de sus atribuciones».”. 
+(iv) “En relación con la queja enmarcada en el error de hecho por falso juicio de identidad, la jurisprudencia ha decantado que este defecto se configura cuando el juzgador distorsiona el contenido objetivo de la prueba para hacerla decir algo que no expresa materialmente, lo cual significa que el medio de convicción sí fue apreciado, pero su contenido es tergiversado, adicionado o cercenado.”. 
+(v) “La adecuada formulación de la censura obliga al actor i) identificar la prueba sobre la cual recae el yerro; ii) mostrar con exactitud su contenido; iii) exponer en detalle la lectura que le dio el juzgador en la decisión impugnada; iv) concretar, mediante el cotejo de ambos textos, si la prueba fue objeto de tergiversación, adición o supresión, precisando cuál es la disonancia entre ellos; y v) demostrar la incidencia del defecto en la decisión final.”. 
+(vi) “El enriquecimiento ilícito «tanto en la modalidad propia de los funcionarios o en el referido a los particulares, puede concursar de manera efectiva con el delito fuente, a condición de que lo apropiado y lo que ha enriquecido ilícitamente al individuo, corresponda a haberes provenientes de distinta fuente delictiva…».”. 
+(vii) “Aunque la Sala ha admitido posibles los concursos reales en «diversas variables de concurrencia de conductas punibles asociadas con el Enriquecimiento ilícito de funcionarios y de particulares », se ha enfatizado que su configuración requiere «la presencia de conductas óntica y normativamente separables o inconexas , lo cual resultará siempre problemático de establecer cuando el delito fuente entraña en su propia terminación una forma de enriquecimiento patrimonial.».”. 
+(viii) “Por tanto, es necesario separar «la obtención del provecho económico –directo o indirecto- propio de la conducta fuente, de otras actividades delictivas posteriores, susceptibles de generar un enriquecimiento ilícito distinto al que es inherente a su comisión», en el entendido que la identidad en el origen ilícito de los recursos se daría «en un momento del iter criminis correspondiente a la consumación material o acabamiento de la conducta, como resultado final del hecho que aunque no encaja en la descripción típica, si es su consecuencia, y, por lo tanto, indicaría la presencia de un concurso aparente de delitos.».”. 
+(ix) “El enriquecimiento ilícito es «un tipo penal dirigido a la protección del bien jurídico del orden económico social y no de la moral social , como de manera impropia se ha asumido en otras oportunidades», porque el bien de la moral social «no existe en el orden jurídico y su asunción obedece a la artificiosa idealización de un precepto constitucional (artículo 34 de la Constitución Política)».”. 
+(x) “Acorde con la precedente reseña se tiene que el delito de enriquecimiento ilícito, en cualquiera de sus modalidades, admite la concurrencia material con diversas conductas lesivas de diferentes bienes jurídicos protegidos, por ejemplo, la seguridad pública cuando concursa con el concierto para delinquir; la fe pública cuando concurre con la falsedad en documento en sus distintas variantes.”. 
+(xi) “A diferencia del concurso aparente de delitos “-que bien se ha clarificado es solo un aparente concurso–, [ocurre] cuando una misma situación de hecho desplegada por el autor pareciera adecuarse a las previsiones de varios tipos penales, cuando en verdad una sola de estas normas es aplicable al caso en concreto, atendiendo razones de especialidad, subsidiaridad o consunción…”  con el fin de precaver la vulneración del principio non bis in ídem.”. 
+(xii) “Conforme lo ha explicado de tiempo atrás la jurisprudencia , son presupuestos del concurso aparente: i) la unidad de acción, es decir, se trata de una sola conducta que encuadra formalmente en varias descripciones típicas, pero realmente sólo encaja en una de ellas; ii) la acción desplegada por el agente persigue una única finalidad; y iii) la acción lesiona o pone en peligro un solo bien jurídico. Si falta uno de estos elementos se estará ante un concurso real, no aparente de delitos.”.
+
+---
+
+# PROVIDENCIA DDP 8237
+
+**Número de Providencia (DDP 8237):** AHP8160-2025
+**Radicación (DDP 8237):** 71173
+**Decisión (DDP 8237):** SMS DEL 26.11.2025
+
+**Lista de Temas (DDP 8237):**
+(i) “En el presente asunto corresponde establecer si la acción constitucional de hábeas corpus formulada por el nombrado es procedente, pues estima que su privación de la libertad por cuenta de un trámite de extradición es ilegal a la luz de lo establecido en la segunda hipótesis prevista el artículo 511 de la Ley 906 de 2004.”. 
+(ii) “Al respecto, se tiene que  Ley 1095 de 2006 prevé en su artículo 1º que el hábeas corpus tutela la libertad personal i) cuando la privación proviene de la violación de garantías constitucionales o legales y ii) cuando el estado de privación se prolonga de manera ilegal.”. 
+(iii) “La garantía de la libertad también procede cuando se presenta alguno de los siguientes eventos: …”. 
+(iv) “La jurisprudencia de la Corte Suprema de Justicia ha precisado, por su parte, que la acción de hábeas corpus no puede impetrarse con las siguientes finalidades: …”. 
+(v) “Para resolver el presente asunto debe tenerse en cuenta, primero, que la extradición es un mecanismo de cooperación internacional cuyo propósito es el de entregar al Estado donde ha delinquido a una persona que se encuentra en el territorio soberano de otro. No es, lo ha repetido insistentemente la Sala de Casación Penal, y lo sostiene pacíficamente la doctrina nacional e internacional, un proceso judicial.”. 
+(vi) “Por ello, la inaplicabilidad general de las normas que regulan lo concerniente a la captura, la privación de la libertad y la concesión de este derecho en un proceso penal ordinario. Ni siquiera por vía de analogía es aplicable esa normatividad, pues el tema está regulado en el Tratado o Convenio de extradición vigente entre las partes y, a falta de estas, la ley procedimental regula específicamente el tema.”. 
+(vii) Lo dispuesto en el artículo 511 de la Ley 906 de 2004. 
+(viii) “Debe insistirse en que esta acción constitucional no está consagrada para sustituir el procedimiento común ni los recursos ordinarios establecidos dentro del trámite de extradición.”. 
+(ix) “Asumir una posición distinta implicaría una invasión indebida en la órbita del funcionario competente. La Fiscal General de la Nación es quien tiene el deber legal de verificar el cumplimiento de los presupuestos previstos para la concesión de la libertad pretendida, si a ello hubiere lugar.”.
+
+---
+
+# PROVIDENCIA DDP 8238
+
+**Número de Providencia (DDP 8238):** AP7823–2025
+**Radicación (DDP 8238):** 63331
+
+**Lista de Temas (DDP 8238):**
+(i) “En los casos de terminación anticipada del proceso, bien sea por vía del allanamiento a cargos, ora por el sendero de la negociación, la Sala tiene dicho (Cfr. CSJ AP, 14 sept. 2009, rad. 32032) que el procesado solamente posee interés para controvertir, a través de los recursos legales (apelación o casación), la vulneración de sus garantías fundamentales, el quantum de la pena y los aspectos referidos a su determinación y forma de ejecución, siempre y cuando estos últimos no se hubieren acordado, pues, de haberlo sido, solo pueden ser atacados si el juez los desconoce.”. 
+(ii) “En el asunto de la especie, el demandante está legitimado para acudir a la sede extraordinaria, toda vez que discute la falta de aplicación de la disminución punitiva establecida en el artículo 269 del Código Penal, por la supuesta indemnización de los perjuicios causados al ofendido, postulación que fue negada por el Tribunal, en segunda instancia, dado que el A quo omitió pronunciarse al respecto.”. 
+(iii) “En lo que respecta a esta causal de casación, imperioso se ofrece recordar que, si el impugnante reclama como desacierto la violación directa de la ley sustancial, debe aceptar sin crítica ninguna los hechos, las pruebas legal y oportunamente allegadas al interior del diligenciamiento, y la valoración que de ellas se hizo en las instancias, razón por la cual, no le es dable controvertir cuestiones de facto.”. 
+(iv) “Ello, habida cuenta que la discusión se obliga de estricto orden jurídico y debe recaer sobre la ley sustancial, por uno de estos motivos: …”. 
+(v) “No se trata, entonces, de que el Tribunal hubiese pasado por alto una norma sustancial, ni que la interpretara mal, sino que advierte no demostrada la indemnización, circunstancia puntual que controvierte el recurrente, pero no, como debe ocurrir, a través de algún tipo de yerro de hecho o de derecho, sino por la vía de la violación directa, ajena a la cuestión planteada, pues, se repite, la causal en cita obliga aceptar los hechos fijados por el fallador.”.
+
+---
+
+# PROVIDENCIA DDP 8239
+
+**Número de Providencia (DDP 8239):** AP7828-2025
+**Radicación (DDP 8239):** 62764
+
+**Lista de Temas (DDP 8239):**
+(i) “Recuérdese, inicialmente, que la violación directa de la ley sustancial, por interpretación errónea, conforme lo ha definido de manera constante la Sala, se configura cuando el sentenciador se equivoca en la hermenéutica del derecho, al concederle a la norma correctamente seleccionada un sentido que no tiene o un alcance del que carece.”. 
+(ii) “Tras comprobar la queja formulada por la libelista, pronto se advierte que, en concreto, su insatisfacción reside en la supuesta interpretación errónea del artículo 61 del Código Penal, que llevó a los juzgadores a incrementar la sanción punitiva a imponer al implicado, bajo una motivación en la que, finalmente, confluyó en atribuirle circunstancias de mayor punibilidad que no le fueron imputadas por el ente persecutor, fáctica ni jurídicamente, presunto dislate que, resalta la Sala, en todo caso, no consulta la veracidad de lo acaecido.”. 
+(iii) “Claramente, la ausencia imputación de circunstancias de mayor punibilidad en la audiencia preliminar, condujo a que el sentenciador seleccionara el primer cuarto de movilidad sancionatorio para determinar la pena definitiva a imponer al procesado, pues, de haber contemplado inapropiadamente, la consecuencia sancionatoria se habría reflejado en la selección de los cuartos medios e, incluso, en el último cuarto de movilidad punitiva, lo que descarta la imposición de una pena desproporcionada e irracional.”. 
+(iv) “Por ello, el implicado pudo asestar puñaladas en el tórax y abdomen de la víctima, exteriorizando así mayor despreció por el bien jurídico de la vida, conforme lo exaltó el juez singular para justificar la tasación de la pena en el extremo máximo del primer cuarto de movilidad punitiva, en atención a la mayor gravedad de la conducta.”.
+
+---
+
+# PROVIDENCIA DDP 8240
+
+**Número de Providencia (DDP 8240):** AP7954-2025
+**Radicación (DDP 8240):** 66480
+
+**Lista de Temas (DDP 8240):**
+(i) Cuando se trata de nulidades “… la fundamentación del ataque debe hacerse a la luz de los principios de taxatividad, acreditación, convalidación, instrumentalidad de las formas , protección , trascendencia  y residualidad , pues, si se avizora que el defecto denunciado no logra afectar en su esencialidad el desarrollo de la actuación, ni alterar lo decidido en el fallo impugnado, no hay lugar a la admisión de la censura.”.”. 
+(ii) “Entre tanto, para hacer viable la admisión de un cargo por nulidad, resulta imperativo para el censor identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–, acreditar su configuración, indicar la norma o normas violadas, especificar su cobertura invalidatoria; y, demostrar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(iii) “Entonces, encuentra esta Sala que en el caso concreto, la defensa técnica se limitó a asegurar que con el obrar arbitrario de la funcionaria de primera instancia se le impidió aportar los medios de prueba que soportaban la condición de padre cabeza de familia de su representado, no obstante, se abstuvo de precisar cuáles fueron los medios de conocimiento que dicho actuar le imposibilitó aportar, obrar con el que dicho profesional incumplió con la carga argumentativa que conlleva una solicitud como la pretendida, proposición genérica a partir de la cual es inviable determinar si efectivamente se configuró una afectación material de los derechos de FREDY ALONSO TORRES PULIDO.”. 
+(iv) “Recuérdese que quien reclama la invalidez de la actuación como consecuencia de un vicio de garantía o de estructura relacionado con el derecho a probar debe acreditar que los medios de conocimiento omitidos podrían haber dado lugar a que la decisión adoptada por los juzgadores fuese distinta. En este caso, como ya se mencionó sólo criticó la decisión de negar el aplazamiento y la justificación que para ese efecto dieron tanto primera como segunda instancia, proposición genérica a partir de la cual es imposible juzgar si era menester acceder al aplazamiento con el ánimo de permitir la recolección de elementos que tuvieran la vocación o potencialidad de modificar los fundamentos de la decisión cuestionada y, por contera, si al negarse la oportunidad de allegarla, se hubiere configurado una afectación material de los derechos de FREDY ALONSO TORRES PULIDO.”. 
+(v) “Por último, es evidente que la pretensión anulatoria del demandante no atiende el principio de residualidad –según el cual, la declaratoria de nulidad debe ser el único remedio procesal para subsanar el yerro detectado–, puesto que la controversia sobre la viabilidad de otorgar al enjuiciado la prisión domiciliaria como padre cabeza de familia puede promoverse, con el aporte de las evidencias a que haya lugar, ante el juez ejecutor de la pena. En tal virtud, no sería necesario rescindir el trámite para corregir el dislate, en este caso inexistente.”.
+
+---
+
+# PROVIDENCIA DDP 8241
+
+**Número de Providencia (DDP 8241):** AP7853-2025
+**Radicación (DDP 8241):** 70085
+
+**Lista de Temas (DDP 8241):**
+(i) “Cuando la censura en casación se propone por la ruta de la violación directa de la ley sustancial , solo es posible denunciar errores in iudicando por desaciertos de selección o interpretación de la norma sustancial. De ahí que en este escenario el demandante deba abstraerse completamente de lo fáctico y probatorio y admitir los hechos y la apreciación de los medios de convicción fijados por los sentenciadores. Además, este marco lógico conceptual impone desarrollar el cargo a partir de un ejercicio estrictamente jurídico en el que se establezca la vulneración del precepto normativo sustancial en el caso concreto, por uno cualquiera de los siguientes motivos, que la doctrina denomina sentidos o conceptos de la violación:”. 
+(ii) “
+(i) falta de aplicación, que se presenta cuando el juez no aplica al caso la norma sustancial que debe regularlo; 
+(ii) aplicación indebida, que se actualiza cuando el fallador aplica al caso una norma que no corresponde; y, 
+(iii) interpretación errónea, que surge cuando el funcionario judicial selecciona de forma adecuada la disposición que resuelve el asunto y la aplica, pero se equivoca en su interpretación, porque le otorga un sentido que no tiene, o le asigna unos efectos que no causa. En los dos primeros casos, el error se presenta en la selección de la norma. En el último, en su interpretación o sentido (CSJ AP3085–2025, 16 may. 2025, rad. 67527).”. 
+(iii) “Por consiguiente, resulta claro que en el presente caso no se cumplen los requisitos para conceder la suspensión de la ejecución de la pena o la prisión domiciliaria solicitada por el defensor del procesado, debido a la expresa prohibición legal establecida en el artículo 68A de la Ley 599 de 2000 frente al delito por el cual fue condenado el procesado. Por contera, ante tal panorama, es manifiesto que el demandante no acreditó la configuración del error que alegó al haberse aplicado esa disposición en el caso concreto.”.
+
+---
+
+# PROVIDENCIA DDP 8242
+
+**Número de Providencia (DDP 8242):** AHP8344-2025
+**Radicación (DDP 8242):** 71235
+**Decisión (DDP 8242):** SMS DEL 27.11.2025
+
+**Lista de Temas (DDP 8242):**
+(i) “… solicita el amparo de su derecho fundamental a la libertad al argumentar que tiene derecho al reconocimiento de la libertad condicional, dado que a la fecha ha descontado más de las tres quintas partes de la pena impuesta, cuenta con arraigo familiar y social y, además, ha obtenido “logros favorables que el INPEC hizo llegar a los despachos”, a donde también remitió “su insolvencia económica” para pagar la pena de multa o la caución prendaria.”. 
+(ii) “El hábeas corpus, de acuerdo con la definición que trae el artículo 1º de la misma normativa, es el mecanismo judicial mediante el cual se protege la libertad personal cuando se priva de ella con violación de las garantías constitucionales o legales, o cuando su restricción se prolonga ilegalmente.”. 
+(iii) “Específicamente, procede como mecanismo de amparo, 
+(i) cuando la vulneración se produce por una orden arbitraria o de autoridad no judicial, 
+(ii) por vencimiento de los términos legales respectivos, cuando la persona se halla legalmente privada de la libertad, 
+(iii) cuando a pesar de existir una orden judicial que ampara la limitación del derecho a la libertad personal, esta ha sido dictada después de la prolongación ilegal de la libertad, y 
+(iv) si la providencia que ordena la detención es una auténtica vía de hecho judicial (C-260 de 1999).”. 
+(iv) “Es igualmente claro que la acción se caracteriza por ser excepcional, lo que implica que, por regla general, los reclamos sobre la afectación ilegal de la libertad deben ventilarse dentro del trámite ordinario, donde están garantizados la contradicción, así como la posibilidad de impugnar la decisión.”. 
+(v) “En ese orden de ideas, la acción de hábeas corpus no puede utilizarse para: 
+(i) sustituir los procedimientos judiciales ordinarios, dentro de los cuales deben presentarse las solicitudes de libertad; 
+(ii) reemplazar los recursos ordinarios dispuestos en dichos procedimientos; 
+(iii) desplazar al funcionario judicial competente; y 
+(iv) propiciar una opinión diversa, a manera de tercera instancia.”. 
+(vi) La conducta regular y mala. 
+(vii) “Huelga aclarar al accionante que el cumplimiento del factor objetivo para acceder a la libertad condicional, no le otorga su reconocimiento automático, pues para ello el juez de ejecución de penas debe constatar el cumplimiento de otros requisitos. En consecuencia, los desacuerdos con la negativa en su otorgamiento deben ser expuestos a través de los recursos de reposición y apelación e incluso, a través de la acción de tutela.”.
+
+---
+
+# PROVIDENCIA DDP 8243
+
+**Número de Providencia (DDP 8243):** AP7813-2025
+**Radicación (DDP 8243):** 63053
+
+**Lista de Temas (DDP 8243):**
+(i) “Como el defensor postula el reproche por error de hecho por falso juicio de identidad, oportuno se ofrece precisar que tal especie de yerro tiene lugar cuando el juzgador se equivoca al apreciar la prueba, dado que, obrando en el proceso, al valorarla distorsiona su contenido cercenándola, adicionándola o tergiversándola, caso en el cual está llamado a señalar mediante el cotejo objetivo de lo dicho en el medio probatorio y lo asumido en el fallo, qué aparte fue omitido, tergiversado o añadido, qué efectos se produjeron a partir de ello y, lo más importante, cuál es la trascendencia del yerro en la declaración de justicia contenida en la parte resolutiva de la sentencia atacada.”. 
+(ii) “Dicho tópico no puede ser demostrado con la exposición subjetiva del criterio del impugnante acerca del valor que corresponde al medio de prueba que estima tergiversado, pues, se obliga acreditar materialmente el error que condujo a la falta de aplicación o a la aplicación indebida de la ley sustancial en el fallo, esto es, que corregido el yerro, la prueba, debidamente valorada en conjunto con las demás, modifica sustancialmente el sentido de la decisión reprochada.”. 
+(iii) “Así las cosas, cuando el censor se refiere al poder suasorio del testimonio de la menor ofendida, restándole credibilidad por no encontrarse corroborado, desde su perspectiva, con las conclusiones de la prueba pericial, surge evidente que se desentiende por completo de las reglas que rigen la acreditación y desarrollo de la especie de yerro que postuló e ingresa en el discurrir propio del error de hecho por falso raciocinio.”. 
+(iv) “En ese caso, le correspondía establecer qué dice concretamente el medio probatorio, qué se infirió de él en la sentencia atacada, cuál fue el mérito persuasivo otorgado, determinar el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en el fallo, debiendo a la par indicar su consideración correcta, identificar la norma de derecho sustancial que indirectamente resultó excluida o indebidamente aplicada y finalmente, demostrar la trascendencia del error, expresando con claridad cuál debe ser la adecuada apreciación de aquella prueba, con la indeclinable obligación de acreditar que la enmienda del yerro daría lugar a un fallo esencialmente diverso y favorable a los intereses de su representado, proceder que no acometió.”. 
+(v) “De todas maneras, sobre el testimonio de la víctima y especialmente en delitos que ostentan connotación sexual, la Corte tiene decantado criterio, según el cual, su dicho es susceptible de bastar como prueba de cargo para emitir fallo de condena, claro está, si se determina que ostenta alta confiabilidad y tiene capacidad de otorgar importantes elementos de juicio sobre la materialidad de los hechos y la responsabilidad del agente, previa ponderación bajo los parámetros de la sana crítica, como precisamente aconteció en el caso que se examina, de acuerdo con la lectura de las decisiones de instancia.”. 
+(vi) “Sobra reseñar que, en tratándose de la real existencia del delito examinado, la ley no exige de determinada prueba que lo demuestre, razón por la cual, lo postulado por el demandante remite a una especie de tarifa probatoria completamente impertinente. Mucho más, si pasa por alto que, asumida la plena credibilidad de lo dicho por la afectada, el resultado del examen ginecológico representa evidente corroboración de lo denunciado.”.
+
+---
+
+# PROVIDENCIA DDP 8244
+
+**Número de Providencia (DDP 8244):** SP2082-2025
+**Radicación (DDP 8244):** 62991
+
+**Lista de Temas (DDP 8244):**
+(i) “La no aplicación del incremento de la Ley 890 de 2004 a los delitos de la Ley 1121 de 2006. Reiteración de jurisprudencia”. 
+(ii) “La Ley 2477 de 11 de julio de 2025”, que reforma la Ley 906 de 2004. 
+(iii) “Es decir, la Ley 2477 de 2025 establece la posibilidad, para las personas procesadas por los delitos enlistados en el artículo 26 de la Ley 1121 de 2006, de allanarse a los cargos o celebrar preacuerdos.”. 
+(iv) “Ello implica que 
+(i) para la norma vigente sí aplica el aumento punitivo de la Ley 890 de 2004, como la Sala explicó en el anterior acápite; y 
+(ii) en aquellos eventos (allanamientos o preacuerdos), los jueces podrán conceder hasta la mitad de la rebaja de pena prevista en los artículos 351, 352, 356-5 y 367 Ley 906 de 2004.”. 
+(v) “Esas normas, a su vez, prevén que los jueces podrán rebajar la pena a imponer en determinada proporción, según el momento en el que se acepten los cargos o se realicen los preacuerdos: 
+(i) hasta en la mitad, si se da en la audiencia de formulación de imputación (artículo 351); 
+(ii) en una tercera parte, si se da entre la presentación de la acusación y «hasta el momento en que sea interrogado el acusado al inicio del juicio oral sobre la aceptación de su responsabilidad» (artículos 352 y 356-5); o 
+(iii) en una sexta parte, si se da en la audiencia de juicio oral después de que el procesado sea interrogado sobre si se declara inocente o culpable (artículo 367).”. 
+(vi) “El principio de favorabilidad respecto de las normas procesales con efectos sustanciales”. 
+(vii) “En materia penal, una norma sustantiva o procesal tiene efectos sustanciales cuando prevé consecuencias «con mayor grado de provecho para sus destinatarios» (CSJ AP4544-2022).”. 
+(viii) “Por ejemplo, aquellas normas que 
+(i) describen las conductas punibles y atribuyen la sanción, o las circunstancias que modifican los extremos de la pena; 
+(ii) las que establecen causales de ausencia de responsabilidad, motivos de extinción de la acción penal o causales de procedibilidad; 
+(iii) las que establecen condiciones genéricas o específicas de agravación o atenuación punitiva; o 
+(iv) las que recogen axiomas del derecho penal como el in dubio pro reo (CSJ SP19623-2017).”.
+
+---
+
+# PROVIDENCIA DDP 8245
+
+**Número de Providencia (DDP 8245):** SEP138-2025
+**Radicación (DDP 8245):** 00123
+
+**Lista de Temas (DDP 8245):**
+(i) La cláusula de exclusión. 
+(ii) La prueba ilegal. 
+(iii) La prueba ilícita. 
+(iv) Las bases de datos. 
+(v) El derecho a la intimidad. 
+(vi) “En conclusión, para este caso, como lo sostiene la Fiscalia y la apoderada de la víctima, dado que la actividad de acopio desplegada por la defensa a traves del perito soslayo la reserva judicial y legal impuesta para la protección de los derechos al habeas data y la privacidad debe ser excluida, por lo tanto, no será valorada por la Sala en esta sentencia.”. 
+(vii) Concierto para delinquir. 
+(viii) Prevaricato por acción. 
+(ix) El factor personal en la vigilancia de la pena. 
+(x) La credibilidad del testigo. 
+(xi) “En el error de tipo el autor desconoce el alcance de sus actos en la medida en que supone erróneamente la ausencia de algunos de los ingredientes constitutivos del tipo penal, que si estan presentes en la realidad objetiva donde se desarrolló su acción, por lo mismo, excluye el dolo porque afecta su aspecto cognitive, incidiendo asi en la responsabilidad”. 
+(xii) Falsedad ideológica en documento público. 
+(xiii) “Sobre el particular, conviene recordar que la jurisprudencia ha precisado que el objeto de valoración por parte del juez respecto de una prueba pericial no radica en la conclusión del perito, sino en el procedimiento que sustenta sus afirmaciones: …”. 
+(ivx) El artículo 447 de la Ley 906 de 2004. 
+(xv) La necesidad de la captura y el artículo 450 de la Ley 906 de 2004.
+
+---
+
+# PROVIDENCIA DDP 8246
+
+**Número de Providencia (DDP 8246):** AHP8285-2025
+**Radicación (DDP 8246):** 71208
+
+**Lista de Temas (DDP 8246):**
+(i) “La acción constitucional de hábeas corpus”. 
+(ii) “En línea con la jurisprudencia de esta Sala, cuando existe un proceso judicial en curso el habeas corpus no puede utilizarse para: i) sustituir los procedimientos ordinarios en los que deben formularse las solicitudes de libertad; ii) reemplazar los recursos de reposición y apelación previstos para controvertir las decisiones que afectan la libertad personal; iii) desplazar al juez natural competente; o iv) propiciar una opinión diversa —a manera de instancia adicional— respecto de la decisión judicial que definió la situación jurídica del procesado.”. 
+(iii) “Si bien el artículo 177 del Código de Procedimiento Penal, modificado por el artículo 13 de la Ley 1142 de 2007, establece que la apelación de la sentencia condenatoria se concede, en principio, en efecto suspensivo, corresponde al juez de conocimiento definir el efecto concreto al momento de otorgar el recurso. En el presente asunto, de acuerdo con lo informado por el Tribunal Superior, la ejecución del fallo no fue suspendida, pues la autoridad judicial que lo profirió no concedió la apelación en efecto suspensivo ni adoptó decisión alguna que difiriera la ejecutoriedad de la sentencia.”. 
+(iv) “La eventual controversia sobre si la apelación debía o no concederse en efecto suspensivo constituye un asunto privativo del proceso penal y debe ser ventilado ante la autoridad que tramitó el recurso o, en su caso, en sede de tutela cuando se alegue la vulneración de un derecho fundamental. El hábeas corpus no es el mecanismo idóneo para reexaminar el efecto procesal otorgado al recurso, ni para sustituir las decisiones del juez natural en torno a la ejecutoriedad de la sentencia, pues ello excedería el ámbito inmediato y residual de esta acción constitucional”. 
+(v) “A partir de lo anterior, no se advierte que la privación de la libertad de OROZCO CEREZO carezca de fundamento jurídico o se haya prolongado ilícitamente. La detención se soporta en una sentencia condenatoria que no fue suspendida en su ejecución y cuya validez no ha sido controvertida por las vías ordinarias. La mera pendencia de la apelación no torna ilegal la reclusión, ni habilita la intervención del juez de hábeas corpus.”. 
+(vi) “La jurisprudencia de esta Corporación ha precisado que este fenómeno no implica admitir la figura de la «ejecutoria parcial» (CSJ AP907-2024, rad. 65723) la cual resultaría incompatible con la unidad estructural de la sentencia. Lo que se presenta es la aplicación del principio según el cual el recurso solo beneficia a su titular, sin que ello divida la decisión en pronunciamientos autónomos. La sentencia conserva su unidad, pero la eventual modificación derivada de la apelación únicamente podrá repercutir, de manera favorable, sobre el recurrente.”. 
+(vii) “En consecuencia, mientras no exista una orden judicial que suspenda la ejecutoriedad del fallo o un pronunciamiento que extienda los efectos del recurso a quienes no apelaron, la condena mantiene plena exigibilidad respecto de AYALA PADILLA, quien debe cumplir la pena impuesta según lo dispuesto por el juez natural. La pendencia de la apelación interpuesta exclusivamente por OROZCO CEREZO no condiciona la validez ni la obligatoriedad de la sentencia frente a los demás condenados.”. 
+(viii) “En cuanto a la solicitud de traslado a un establecimiento penitenciario de Florencia (Caquetá) o a un pabellón que respete sus usos y costumbres, se trata de órdenes impartidas en sede de sentencia cuya verificación corresponde al juez de ejecución de penas y medidas de seguridad. Estas cuestiones, propias de la fase de cumplimiento, no inciden en la legalidad actual de la privación de la libertad, por lo que no pueden ser objeto de control mediante la acción de hábeas corpus.”.
+
+---
+
+# PROVIDENCIA DDP 8247
+
+**Número de Providencia (DDP 8247):** AP7816-2025
+**Radicación (DDP 8247):** 69325
+**Decisión (DDP 8247):** SMS DEL 28.11.2025
+
+**Lista de Temas (DDP 8247):**
+(i) “En efecto, advierte la Sala que, si la pretensión del recurrente era denunciar errores en la ponderación de los medios probatorios, debía identificar con exactitud el yerro    –sin que así hubiese procedido–, es decir, establecer si los falladores incurrieron en un error de hecho al apreciar la prueba, bien sea porque pese a obrar en el diligenciamiento no fue valorada (falso juicio de existencia por omisión); ya porque sin figurar en la actuación se supuso su presencia allí y la tuvieron en cuenta en su decisión (falso juicio de existencia por suposición); ora porque al considerarla distorsionaron su contenido cercenándola, adicionándola o tergiversándola (falso juicio de identidad); también, cuando sin incurrir en alguno de los yerros referidos, derivaron del medio probatorio deducciones contrarias a los principios de la sana crítica, esto es, los postulados de la lógica, las leyes de la ciencia o las reglas de la experiencia (falso raciocinio).”. 
+(ii) “Por otro lado, si lo que advertía era un error de derecho, debió demostrar que se negó a determinado medio probatorio el valor conferido por la ley o le fue otorgado un mérito diverso al atribuido legalmente (falso juicio de convicción), o que los funcionarios al apreciar alguna prueba la asumieron erradamente como legal aunque no satisfacía las exigencias señaladas por el legislador para tener tal condición, o la descartaron aduciendo de manera equivocada su ilegalidad, pese a que se cumplieron cabalmente los requisitos dispuestos en la ley para su práctica o aducción (falso juicio de legalidad).”. 
+(iii) “En el primer caso –falso juicio de existencia por omisión–, debía indicar la prueba no valorada, cuál es la información objetivamente suministrada, el mérito demostrativo al que se hace acreedora y cómo su estimación conjunta con el resto de elementos del acervo probatorio conduce a derrumbar las conclusiones del fallo censurado, deberes cuyo cumplimiento no acometió.”. 
+(iv) “Pero si el propósito era alegar un falso juicio de existencia por suposición, era de su resorte identificar el aparte declarado en el fallo carente de soporte demostrativo en la actuación, amén de precisar su injerencia en el sentido de la decisión, esto es, cómo al marginar una tal suposición, la sentencia sería diversa y en todo caso beneficiosa a los intereses de su procurado, actividad no emprendida por el casacionista.”. 
+(v) “Si el objetivo era invocar un falso juicio de identidad, era su deber identificar, a través del cotejo objetivo de lo dicho en el medio probatorio y lo asumido en el fallo, el aparte omitido o añadido a la prueba, los efectos producidos a partir de ello y, lo más importante, cuál es la trascendencia del yerro en la parte resolutiva de la sentencia atacada, tópico de improcedente demostración con el simple planteamiento del criterio subjetivo del recurrente respecto del medio de prueba cuya tergiversación denuncia, en cuanto, es su obligación acreditar materialmente la incidencia del yerro en la falta de aplicación o la aplicación indebida de la ley sustancial en el fallo, esto es, debió evaluar el conjunto probatorio, una vez superado el vicio.”. 
+(vi) “Ahora, si el reclamo se dirige a denunciar un falso raciocinio, era su obligación establecer qué dice concretamente el medio probatorio, qué se infirió de él en la sentencia atacada, cuál fue el mérito persuasivo otorgado, determinar el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en el fallo, debiendo a la par indicar su consideración correcta, identificar la norma de derecho sustancial indirectamente excluida o indebidamente aplicada y luego, demostrar la trascendencia del error expresando con claridad cuál debe ser la adecuada apreciación de aquella prueba, con la indeclinable obligación de acreditar que la enmienda del yerro daría lugar a un fallo esencialmente diverso y favorable a los intereses de su representado, proceder no asumido por el censor.”. 
+(vii) “Tratándose de la postulación del error de derecho por falso juicio de legalidad, era deber del recurrente identificar el medio probatorio que tacha de ilegal, indicar las disposiciones legales o constitucionales cuyo quebranto determina su ilegalidad y demostrar la efectiva ocurrencia de lo denunciado; o, debía el demandante comprobar la legalidad de la prueba desechada por el juzgador.”. 
+(viii) “En los dos eventos anteriores, también era de su resorte acreditar la trascendencia del yerro en las conclusiones del fallo, esto es, demostrar que con la marginación de la prueba que se dice ilegal, las restantes pruebas conducen a una decisión sustancialmente diversa de la atacada, o bien, que con la incorporación del medio de prueba que el actor estima legal, las conclusiones son distintas de las contenidas en la sentencia impugnada.”. 
+(ix) “Igualmente, si tenía el propósito de plantear un falso juicio de convicción, era su obligación demostrar la infracción de la tarifa de valoración dispuesta por el legislador, así como su injerencia en el sentido del fallo, labor que tampoco acometió.”. 
+(x) “La Jurisprudencia de la Sala ha señalado que la nulidad, como causal de casación, no exige en su redacción formas específicas para su proposición y desarrollo. Sin embargo, ello no significa que la demanda se constituya en un alegato de libre confección, pues, al igual que en las otras causales, debe ajustarse a determinados parámetros lógicos, de modo que se comprendan con claridad y precisión las irregularidades sustanciales alegadas y la manera como quebrantan la estructura del proceso o afectan las garantías de las partes e intervinientes.”. 
+(xi) “En este sentido, el numeral 4º del artículo 356 de la Ley 906 de 2004, como norma que regula el trámite y desarrollo de la audiencia preparatoria, da cuenta de la participación exclusiva de la defensa y la fiscalía en la celebración de los acuerdos sobre alguno de los hechos o sus circunstancias.”. 
+(xii) “En síntesis, el demandante no acreditó que existiese alguna irregularidad procesal en el trámite propio de las estipulaciones, ni tampoco, demostró cómo una supuesta participación en este del procesado habría llevado a una situación más beneficiosa para él.”. 
+(xiii) La prescripción para este caso.
+
+---
+
+# PROVIDENCIA DDP 8248
+
+**Número de Providencia (DDP 8248):** AP7815-2025
+**Radicación (DDP 8248):** 63888
+
+**Lista de Temas (DDP 8248):**
+(i) La casación en lo referente a los perjuicios. 
+(ii) “el artículo 336 del Código General del Proceso, consagra como causales de casación, las siguientes: …”. 
+(iii) “En cambio de ello, en el extenso escrito presentado por la libelista, refulge que se dedicó a advertir la existencia de una serie de presuntas irregularidades que, valga precisarlo, apenas representan la inconformidad con la decisión adoptada por los falladores, incluso, despojada de una coherente ilación que permita considerar cuáles fueron las supuestas incorrecciones que encarnan los fallos confutados, llegando al extremo, incluso, de relacionar algunas pruebas, que integraron la actuación procesal, respecto de las cuales no menciona la razón de traerlas a colación, dejando a la Sala la misión de interpretar el sentido de su inconformidad, sin reparar en que  la Corte no puede intervenir, acorde con el principio de limitación.”. 
+(iv) “De tal manera que, para oponerse, en esta sede extraordinaria, a la precedente argumentación, le era exigible a la libelista, no solo delimitar su crítica a partir de las causales dispuestas para ello, lo que, se itera, obvió de manera tajante, sino, además, ceñirse, con sensatez, al análisis plasmado en las sentencias, evitando así la exhibición de críticas aisladas y carentes de soporte, entre ellas, la referida a que la actuación estuvo desprovista de pruebas que soporten la decisión adoptada, o que, en su defecto, no fueron contemplados elementos de prueba, por lo demás, apenas enunciados por la censora, sin enseñar a la Corte su contenido, ni la incidencia que pudieran tener para mutar en favor del implicado la decisión adoptada por los juzgadores.”.
+
+---
+
+# PROVIDENCIA DDP 8249
+
+**Número de Providencia (DDP 8249):** AP7819-2025
+**Radicación (DDP 8249):** 70541
+
+**Lista de Temas (DDP 8249):**
+(i) “La Corte se abstendrá de examinar, como lo pide la defensa, la demanda de casación, comoquiera que resulta insoslayable analizar, en virtud del principio de favorabilidad, la aplicación de lo consignado en la Ley 2477 de 2025, en lo concerniente a la declaratoria de extinción de la acción penal por la reparación integral del daño causado.”. 
+(ii) “La novedosa normatividad de la reparación integral, como causal de la extinción de la acción penal dentro del ámbito de la Ley 906 de 2004”. 
+(iii) “Vigente la disposición, para la Sala es claro que la novísima normatividad debe hacerse valer, en virtud de la aplicación del principio de favorabilidad, en todos los casos en curso y venideros que satisfagan las siguientes exigencias: …”. 
+(iv) “Y si bien, los hechos ocurrieron con antelación a la vigencia de la norma, en este caso se obliga su aplicación retroactiva, acorde con lo que de forma expresa refiere el inciso tercero del artículo 29 de la Carta Política: “En materia penal, la ley permisiva o favorable, aun cuando sea posterior, se aplicará de preferencia a la restrictiva o desfavorable”.”. 
+(v) “En reiteración de ello, el inciso segundo del artículo 6° de la Ley 906 de 2004, advierte que “La ley procesal de efectos sustanciales permisiva o favorable, aun cuando sea posterior a la actuación, se aplicará de preferencia a la restrictiva o desfavorable”.”.
+
+---
+
+# PROVIDENCIA DDP 8250
+
+**Número de Providencia (DDP 8250):** SP2070-2025
+**Radicación (DDP 8250):** 64286
+
+**Lista de Temas (DDP 8250):**
+(i) “La defensa refiere que no puede asimilarse el allanamiento a cargos, con una forma de negociación. Por ende, afirma, no debe ser exigible el reintegro de lo apropiado, para que la judicatura otorgue las rebajas punitivas legales.”. 
+(ii) “Recientemente, la Corte tuvo la oportunidad de estudiar de nuevo y a profundidad la problemática planteada en esta actuación, motivo por el que, dada su pertinencia para el presente pronunciamiento, se traerá a colación, a modo de reiteración, la jurisprudencia vigente sobre el particular.”. 
+(iii) “Acorde con esta concepción, en el pronunciamiento en cita (CSJ SP1901-2024, 17 jul. 2024, Rad. 64214), la Sala mayoritaria estableció que el allanamiento a cargos y el preacuerdo son figuras que permiten dar por terminado de manera anticipada el proceso, pero no son equivalentes. Hasta concluir que resulta improcedente aplicar el artículo 349 de la Ley 906 de 2004 , cuando se acude a la figura del allanamiento a cargos.”.
+
+---
+
+# PROVIDENCIA DDP 8251
+
+**Número de Providencia (DDP 8251):** AP7839-2025
+**Radicación (DDP 8251):** 65654
+
+**Lista de Temas (DDP 8251):**
+(i) “Aunque la demanda no lo anuncia, pareciera que su argumentación se encamina hacia una decisión anulatoria, producto de lo que el recurrente genéricamente denomina afectación sustancial de las garantías al debido proceso y a la salud de CARLOS JULIO HERRERA SUÁREZ.”. 
+(ii) “Bajo ese norte, recuérdese que tratándose de la causal segunda de nulidad por desconocimiento de la estructura del debido proceso, o por afectación de la garantía debida a cualquiera de las partes con capacidad de invalidar la actuación –numeral 2° del artículo 181 de la Ley 906 de 2004–, es imperioso para el demandante: 
+(i) indicar el motivo de nulidad que se configura (incompetencia, violación del debido proceso o violación del derecho de defensa) ; 
+(ii) identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–; 
+(iii) demostrar su configuración; 
+(iv) precisar la norma o normas violadas; 
+(v) especificar su cobertura invalidatoria; 
+(vi) justificar la procedencia de su declaración de cara a los principios de taxatividad, acreditación, convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad; y, 
+(vii) acreditar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(iii) “De igual forma, la simple enunciación de supuestos errores de procedimiento o de garantía tampoco resulta suficiente para quebrar la presunción de acierto y legalidad que ampara la sentencia. En ese sentido, debe indicarse en qué consistió en concreto la irregularidad y demostrar que, frente a los principios indicados y las particularidades del caso, no existe alternativa distinta de solución que la invalidación del trámite.”. 
+(iv) “Así, para la Corte, el demandante pretende revivir una discusión agotada por los jueces en unidad decisoria e imponer su criterio personal, con el fin de variar una determinación que fue suficientemente debatida en las instancias, lo que dista de la naturaleza del recurso extraordinario de casación.”. 
+(v) “Aunado a lo anterior, es necesario recordar que el tema cuestionado es un asunto de competencia del Juez de Ejecución de Penas y Medidas de Seguridad. En tal medida, el condenado puede acudir ante dicha autoridad judicial en caso de que cambien las condiciones a partir de las cuales le fue negado el beneficio en un comienzo. Esto se ha manifestado por la Sala en los siguientes términos: …”.
+
+---
+
+# PROVIDENCIA DDP 8252
+
+**Número de Providencia (DDP 8252):** SP2173-2025
+**Radicación (DDP 8252):** 68545
+**Decisión (DDP 8252):** SMS DEL 1.12.2025
+
+**Lista de Temas (DDP 8252):**
+(i) “Ahora bien, la Sala ha sostenido que la aplicación del incremento no solo procede cuando el delito guarda relación directa con la función pública encomendada al servidor, «sino también cuando entre el delito y la función media una relación de ocasión u oportunidad, es decir, cuando el sujeto aprovecha su vinculación funcional para privilegiar o favorecer la comisión del ilícito».”. 
+(ii) “Así las cosas, con fundamento en los parámetros hermenéuticos antes descritos (§ 3.1.3), los términos de prescripción de la acción penal a partir de la audiencia de formulación de imputación, considerando el incremento previsto para conductas ejecutadas por un servidor público en ejercicio de las funciones de su cargo o con ocasión de ellas, corresponden a 15 años para el delito de acceso carnal violento agravado y 11 años, 3 meses, para el delito de concusión.”. 
+(iii) “La defensa técnica solicitó la nulidad de lo actuado a partir de la audiencia de formulación de acusación, ya que la delimitación temporal de los hechos jurídicamente relevantes fijados en la acusación no resultaba suficientemente precisa”. 
+(iv) “Ahora bien, la relevancia jurídica del hecho pende de la aptitud sustancial de dicha premisa para sustentar un juicio de subsunción, en relación con los elementos estructurales del tipo penal. Bajo tal perspectiva, como se ha decantado en la jurisprudencia de la Sala, el acto comunicacional debe elucidar, cuando menos, «si el acusado ejecutó la conducta que se describe en el verbo rector del tipo penal y a qué título, si lo hizo como autor o partícipe y en tal caso cuál fue su aporte a la realización del comportamiento»”. 
+(v) El “marco temporal de la conducta”. 
+(vi) “Debe igualmente destacarse que la invalidación de los actos procesales relacionados con la comunicación de los cargos -imputación o acusación- no opera, de pleno derecho, ante la constatación de cualquier defecto en la estructuración de la premisa fáctica de la acusación.”. 
+(vii) La concusión. 
+(viii) “El delito de acceso carnal violento agravado.”. 
+(ix) La violencia moral. 
+(x) “La violencia sexual como forma de violencia contra la mujer”. 
+(xi) “El testimonio de la víctima de violencia sexual y la corroboración periférica como concreción del enfoque de género”. 
+(xii) “¿Cuándo la dádiva exigida es un favor sexual, queda incluida en la concusión o se está ante un delito sexual autónomo?”. 
+(xiii) “¿Cuando la víctima accede al favor sexual, existe violencia moral?”, preguntas del profesor  @MarlonDiazAbog
+
+---
+
+# PROVIDENCIA DDP 8253
+
+**Número de Providencia (DDP 8253):** No especificado
+**Radicación (DDP 8253):** CUI 76248600017320160009101 (
+**Decisión (DDP 8253):** AC-529-23).
+
+**Lista de Temas (DDP 8253):**
+(i) La prueba de referencia. 
+(ii) La no disponibilidad del testigo. 
+(iii) “La Corte Suprema de Justicia precisó que la parte interesada en que se valore una declaración anterior al juicio como prueba de referencia, debe asumir diferentes cargas, como: “
+(i) descubrir el medio de conocimiento; 
+(ii) solicitar su incorporación; 
+(iii) demostrar los requisitos para su admisión excepcional (… cuando se trata de declaraciones de niños víctimas de delitos sexuales ello ocurre de pleno derecho); y 
+(iv) demostrar la existencia y el contenido de la declaración”.”. 
+(iv) El testimonio adjunto. 
+(v) “Finalmente, advierte la Sala que el juzgado de primera instancia no utilizó sus facultades de dirección del proceso para prevenir errores manifiestos en las técnicas del juicio oral38 y que, incluso, incurrió en imprecisiones como valorar manifestaciones anteriores como prueba de referencia que no fueron solicitadas ni decretadas como tal o afirmar que cotejó los testimonios adjuntos de dos testigos, cuando en el juicio no se incorporaron sus declaraciones previas bajo esa excepcional figura. Aunque estos errores no son trascendentes y no dan lugar a declarar la nulidad de lo actuado, se invita al juez de primera instancia a tomar en cuenta las explicaciones hechas y los desarrollos jurisprudenciales más recientes sobre las técnicas del juicio oral y las instituciones procesales de la prueba de referencia y el testimonio adjunto”.
+
+---
+
+# PROVIDENCIA DDP 8254
+
+**Número de Providencia (DDP 8254):** No especificado
+**Radicación (DDP 8254):** CUI 76-130-60-00169-2023-00474-01 (
+**Decisión (DDP 8254):** AC-549-25).
+
+**Lista de Temas (DDP 8254):**
+(i) “Los recursos ordinarios en contra de la decisión que decreta una prueba”. 
+(ii) “En este orden de ideas, la Sala considera que el recurso de apelación contra autos que admiten una prueba, por regla general, no es procedente, salvo cuando se argumenten aspectos relacionados con rechazo por no descubrimiento, o de exclusión por obtención ilícita o ilegal del medio de conocimiento. Los temas de admisibilidad no son susceptibles de análisis en doble instancia, en los casos en los que la prueba es decretada”. 
+(iii) “La prueba ilícita y la prueba ilegal”. 
+(iv) “Las cargas argumentativas para la solicitud de exclusión”.  
+(v) “Sobre la expectativa razonable de intimidad”. 
+(vi) “De esta manera, es una relación inherente entre el tipo de datos que se pretenden obtener y el espacio en el que se encuentre esa información. Por ejemplo, puede suceder que, en un espacio público, se expongan datos sensibles27, lo que supone que no puedan ser divulgados, o que, a pesar de ser información pública, sea ventilada en un espacio privado, por lo que terceros, por regla general, no podían acceder desde el principio.”. 
+(vii) “En conclusión, la expectativa razonable de intimidad requiere de un análisis respecto de la calidad de la información, el lugar en el que divulga y la intención del titular de mantener el dato o la actuación en secreto, sin que éste último criterio pueda valorarse únicamente desde una perspectiva subjetiva, sino también a partir de razonamientos más o menos objetivos, en la medida que el grado de protección de la intimidad no puede depender solamente de lo que, en su esfera interior, quería el titular de la garantía.”.
+
+---
+
+# PROVIDENCIA DDP 8255
+
+**Número de Providencia (DDP 8255):** No especificado
+**Radicación (DDP 8255):** CUI 05 001 60 00000 2018 01069
+
+**Lista de Temas (DDP 8255):**
+(i) “Sobre las notificaciones en el proceso penal”. 
+(ii) “La publicidad de las decisiones judiciales”. 
+(iii) “Importancia de las comunicaciones y notificación de las decisiones judiciales”. 
+(iv) “Regla general de notificación en estrados y excepcionalmente a través de otros medios”. 
+(v) “ejecutoria formal y ejecutoria material de providencias judiciales”. 
+(vi) “Concepto de ejecutoria de una decisión judicial”. 
+(vii) “No hay ejecutorias parciales”.  
+(viii) “No existe la «revocatoria directa» oficiosa de decisiones ejecutoriadas «materialmente»”. 
+(ix) “Naturaleza jurídica de la decisión de preclusión”. 
+(x) “Excepcionalmente, la preclusión se decide mediante sentencia”. 
+(xi) “Preclusión de oficio por la causal de prescripción de la acción penal”. 
+(xii) “A través de un auto de corrección no se puede mutar la decisión de fondo”. 
+(xiii) “Marco normativo de aclaración, adición o corrección de la sentencia y autos”. 
+(ivx) “Vacíos normativos y aplicación de las normas del C.G.P. AL C.P.P.”. 
+(xv) “Aclaración, corrección y adicción de providencias judicales en el sistema acusatorio penal”. 
+(xvi) “Situaciones correción de errores aritméticos”.  
+(xvii) “Corrección de errores simplemente aritméticos en cualquier tiempo”. 
+(xviii) “La corrección de errores aritméticos no es para enmendar providencias judiciales (menos, la sentencia)”. 
+(ixx) La doctrina probable. 
+(xx) “Tipología de precedentes de la Corte Constitucional y de la Corte Suprema de Justicia”. 
+(xxi) “Posibilidad de apartarse del precedente judicial”.
+
+---
+
+# PROVIDENCIA DDP 8256
+
+**Número de Providencia (DDP 8256):** No especificado
+**Radicación (DDP 8256):** CUI 76111-31-07003-2018-00031-01 (
+**Decisión (DDP 8256):** P-026-22).
+
+**Lista de Temas (DDP 8256):**
+(i) “La fiscal delegada critica la decisión de primera instancia por confundir erróneamente el concepto de prueba de referencia con el testimonio de oídas, señalando que se trata de institutos jurídicos completamente distintos que rigen bajo principios diferentes y no deben interpretarse de manera equiparable como sucedió en el presente caso. Específicamente, argumenta que la prueba de referencia se refiere a aquel medio de convicción que se lleva al proceso para dar a conocer un testimonio practicado por fuera del juicio, mientras que el testigo de oídas es aquel cuyo conocimiento sobre un particular suceso es adquirido a través de fuentes distintas a su percepción directa sobre los hechos.”. 
+(ii) “De la admisibilidad del testimonio de oídas en el proceso regido por la Ley 600 de 2000.”. 
+(iii) “Por manera que, en función de responder los reparos de la Fiscalía, es necesario indicar que el pronunciamiento absolutorio de la primera instancia, no se origina en la exigencia de prueba directa acerca del grado de determinador que se le atribuye al procesado Rodríguez González. Es cierto que en estructuras de poder se torna casi imposible obtener medios de conocimiento de esa naturaleza, pero, la prueba practicada en este proceso ni siquiera permite la construcción de indicios que permitan a partir de un hecho indicador demostrado inferir de manera lógica el compromiso del acusado con la conducta punible, con pocas alternativas, de manera que sean -graves- y no se queden en el plano de la mera sospecha.”.
+
+---
+
+# PROVIDENCIA DDP 8257
+
+**Número de Providencia (DDP 8257):** No especificado
+**Radicación (DDP 8257):** CUI 05 000 31 07 001 2017 00593 00 (
+**Decisión (DDP 8257):** T.S.A.2024-2718-5). SMS DEL 2.12.2025
+
+**Lista de Temas (DDP 8257):**
+Providencia de Segunda Instancia mediante la cual se revocó la absolución de Santiago Uribe Vélez y se le condenó por la presunta comisión de “un concurso de delitos de Lesa Humanidad, uno de homicidio agravado, artículos 103 y 104 numeral 7 del Código Penal y uno de concierto para delinquir agravado artículo 340 inciso tercero del Código Penal …”.
+
+---
+
+# PROVIDENCIA DDP 8258
+
+**Número de Providencia (DDP 8258):** STP18176-2025
+**Radicación (DDP 8258):** 149940
+
+**Lista de Temas (DDP 8258):**
+(i) “Pues bien, lo primero que debe decirse es que la jurisprudencia constitucional ha señalado que la acción de tutela contra providencias judiciales que resuelven incidentes de desacato o solicitudes de cumplimiento es procedente de manera excepcional.”. 
+(ii) “No escapa de las reglas generales de procedencia de la acción de amparo contra providencias judiciales y, adicionalmente, corresponde al juez evaluar, especialmente, cómo actuó el operador judicial en relación con el cumplimiento de la orden proferida en la tutela inicial, y si actuó bajo los postulados del derecho al debido proceso …”. 
+(iii) “En las acciones de tutela que cuestionan providencias proferidas en el incidente de desacato el juez debe verificar: …”. 
+(iv) “Análisis de los requisitos de procedibilidad de la acción de amparo contra decisiones emitidas en incidentes de desacato”. 
+(v) “En efecto, ha dicho la Corte Constitucional que la actividad del juez que conoce del incidente de desacato se contrae a verificar: …”.
+
+---
+
+# PROVIDENCIA DDP 8259
+
+**Número de Providencia (DDP 8259):** STP18190-2025
+**Radicación (DDP 8259):** 149566
+
+**Lista de Temas (DDP 8259):**
+(i) “El artículo 86 de la Constitución Política, faculta a cualquier ciudadano para promover la defensa de sus garantías fundamentales mediante el empleo del recurso de amparo. Sin embargo, si se promueve un número plural de acciones de tutela, de manera paralela, concomitante o subsiguiente por una causa idéntica, prevalido de la circunstancia que dicho instrumento puede instaurarse ante cualquier juez de la República, la actividad así desplegada resulta ser temeraria (CSJ STP17967-2024).”. 
+(ii) “Además, una actitud de esa naturaleza configura un abuso de los propios derechos y es contraria al deber que toda persona tiene de colaborar con la justicia, al distraer al aparato judicial de asuntos que han de ser resueltos oportunamente, para provocar nuevos pronunciamientos sobre hechos ya decididos anteriormente con lo cual se afectan los principios de economía y celeridad (CSJ STP3715-2022, STP9094-2024).”. 
+(iii) “La temeridad consiste en la interposición injustificada de tutelas idénticas respecto de las mismas 
+(i) partes, 
+(ii) hechos y 
+(iii) objeto, haciendo un uso abusivo e indebido de esa herramienta constitucional. Su prohibición busca garantizar el principio constitucional de buena fe y, a su vez, la eficiencia y prontitud en el funcionamiento del Estado y de la administración de justicia. Sin embargo, “la conducta temeraria debe encontrarse plenamente acreditada y no puede ser inferida de la simple improcedencia de la tutela o revisando circunstancias meramente formales. Tal conducta requiere de un examen minucioso de la pretensión de amparo, de los hechos en que se funda y del acervo probatorio que repose en el proceso”.”.
+
+---
+
+# PROVIDENCIA DDP 8260
+
+**Número de Providencia (DDP 8260):** STP18174-2025
+**Radicación (DDP 8260):** 149984
+
+**Lista de Temas (DDP 8260):**
+(i) “En el presente asunto, el accionante acude al amparo constitucional porque estima que el tiempo que ha transcurrido en la fase de investigación del proceso 130016001129202404665 es excesivo. Además, asegura que la Fiscalía demandada no se ha pronunciado de fondo respecto a su solicitud de tener como prueba un audio que le aportó y que le es favorable a sus intereses.”. 
+(ii) La mora judicial. 
+(iii) “De ahí que, para determinar cuándo se presentan dilaciones injustificadas en la administración de justicia y, por consiguiente, en qué eventos procede la acción de tutela frente a la protección de este derecho, la jurisprudencia constitucional, con sujeción a distintos pronunciamientos de la CIDH y de la Corte IDH , ha señalado que debe estudiarse: …”. 
+(iv) “Una vez hecho ese ejercicio, el juez de tutela, en caso de determinar que la mora judicial estuvo o está justificada, siguiendo los postulados de la sentencia T-230 de 2013, cuenta con tres alternativas distintas de solución: …”.
+
+---
+
+# PROVIDENCIA DDP 8261
+
+**Número de Providencia (DDP 8261):** STP18169-2025
+**Radicación (DDP 8261):** 149810
+
+**Lista de Temas (DDP 8261):**
+(i) “En el asunto bajo examen, el accionante DEIBY GONZÁLEZ VEGA invoca el amparo de sus derechos fundamentales al debido proceso, favorabilidad y libertad personal, al considerar que el Juzgado Segundo de Ejecución de Penas y Medidas de Seguridad de Montería ha incurrido en una omisión prolongada al no resolver la solicitud de redosificación de la pena presentada el 22 de julio de 2025, bajo el amparo del principio de favorabilidad penal y la aplicación del nuevo régimen de redención de pena establecido en el artículo 19 de la Ley 2466 de 2025.”. 
+(ii) “Bajo este escenario, la Sala advierte que no se configura una vulneración actual y efectiva de los derechos fundamentales invocados, puesto que el accionante cuenta con un medio judicial idóneo ante el mismo Juzgado Segundo de Ejecución de Penas y Medidas de Seguridad de Montería, quien conserva plena competencia para pronunciarse de fondo sobre la solicitud presentada. En consecuencia, no se supera el requisito de subsidiariedad, pues la acción de tutela no puede utilizarse para reemplazar la función jurisdiccional del juez natural.”. 
+(iii) “La Corte Suprema de Justicia ha sido enfática en sostener que la tutela no está concebida para anticipar, sustituir o acelerar decisiones judiciales que aún se encuentran dentro de los márgenes razonables de estudio y resolución. En la sentencia STP-1357-2023, la Sala precisó que “la demora procesal solo adquiere relevancia constitucional cuando es injustificada, prolongada o constituye una carga desproporcionada que compromete la eficacia de los derechos fundamentales”.”. 
+(iv) “De igual modo, la STP-14521-2025 (rad. 148378), invocada por el accionante, si bien reconoció la procedencia excepcional de la tutela en casos donde el juez de ejecución ha negado expresamente la aplicación de la norma más benigna, no resulta aplicable al presente asunto, dado que aquí no se ha emitido decisión negativa, sino que la solicitud se encuentra pendiente de estudio.”. 
+(v) “En este orden de ideas, la Sala constata que no existe un perjuicio irremediable que habilite la intervención excepcional del juez constitucional, ni se evidencia un comportamiento arbitrario, caprichoso o contrario al ordenamiento jurídico por parte del juzgado accionado. La demora alegada, dentro de los márgenes actuales, no puede calificarse de injustificada, máxime cuando el Tribunal de primera instancia ya instó al juez natural a pronunciarse de manera pronta y motivada, lo cual resulta una medida suficiente y razonable de protección.”.
+
+---
+
+# PROVIDENCIA DDP 8262
+
+**Número de Providencia (DDP 8262):** STP18173-2025
+**Radicación (DDP 8262):** 149765
+**Decisión (DDP 8262):** SMS DEL 3.12.2025
+
+**Lista de Temas (DDP 8262):**
+(i) “Sin embargo, se observa que no existe una vulneración a los derechos fundamentales de la parte actora que habilite la intervención del juez de tutela frente a las providencias emitidas por los Juzgados Sexto Penal Municipal con Función de Control de Garantías y Cuarto Penal del Circuito de Manizales en cuanto le negaron la libertad por vencimiento de términos al actor.”. 
+(ii) “En efecto, aquellas providencias tuvieron como fundamento el contenido del parágrafo 3 del artículo 317 del Código de Procedimiento Penal.”. 
+(iii) “El juez municipal reconoció que si bien habían transcurrido más de 120 días desde la presentación del escrito de acusación (28 febrero 2025) hasta la solicitud de libertad por vencimiento de términos (18 julio 2025), no podía atribuirse la totalidad del tiempo transcurrido a la administración de justicia, teniendo en cuenta que el defensor del procesado instauró, en la audiencia preparatoria, una solicitud de nulidad fundada en controversias probatorias, misma contra la cual, al ser denegada, instauró el recurso de apelación y que derivaron en la suspensión de proceso penal hasta que se desatara la alzada.”. 
+(iv) “Así, concluyó el ad quem que el termino de 120 días del que trata el numeral 5 del artículo 317 del Código de Procedimiento Penal no fue superado, toda vez que, al restar el tiempo atribuido a la defensa, derivado de la interrupción del proceso (solicitud de nulidad y apelación), hasta la fecha de solicitud de libertad solo habían transcurrido 69 días.”. 
+(v) “Así las cosas, aunque resultó desatinado que los jueces que decidieron la libertad por vencimiento de términos anticiparan su criterio para denegar la petición liberatoria fundamentándola en que se generó una «maniobra dilatoria» cuando, insiste ahora la Corte, una solicitud de nulidad, per se, no puede calificarse de entrada con tal naturaleza, lo cierto es que no resulta necesaria la intervención de la Sala, pues a la postre, dentro del proceso penal, la segunda instancia sí evidenció que, más allá de la búsqueda de la invalidación del trámite por violación de garantías, lo que pretendió la defensa, con su postulación, sí fue dilatar el trámite y, por esa vía, resultaba acertado que el término que transcurrió para resolver la alzada, se contara en adversidad del procesado.”.
+
+---
+
+# PROVIDENCIA DDP 8263
+
+**Número de Providencia (DDP 8263):** SP2151-2025
+**Radicación (DDP 8263):** 63507
+
+**Lista de Temas (DDP 8263):**
+(i) “Según el art. 52 inc. 3° del C.P., la pena de prisión conllevará la accesoria de inhabilitación para el ejercicio de derechos y funciones públicas, por un tiempo igual al de la pena a que accede y hasta por una tercera parte más, sin exceder el máximo fijado en la ley.”. 
+(ii) “Por su parte, el art. 51 del C.P. preceptúa que la duración máxima de la inhabilitación para el ejercicio de derechos y funciones públicas será de 20 años, salvo el caso de la inhabilidad intemporal del art. 122 de la Constitución.”. 
+(iii) “Sin embargo, desconociendo el debido proceso sancionatorio (CSJ SP 3 feb. 2016, rad. 46.647) en su componente de legalidad de la pena, el tribunal fijó automáticamente la mencionada sanción accesoria en un término igual al de la pena principal de prisión (20.8 años), desbordando así el límite atrás referido (20 años).”. 
+(iv) “Por consiguiente, a fin de reestablecer la garantía conculcada, la Sala oficiosamente casará, de manera parcial, el fallo impugnado, para ajustar la mencionada pena a los parámetros de legalidad pertinentes.”. 
+(v) “Esa corrección se hará en el sentido de declarar que la pena de inhabilitación para el ejercicio de derechos y funciones públicas impuesta al sentenciado tendrá una duración de 20 años (240 meses). En lo demás, la decisión impugnada se mantiene incólume.”.
+
+---
+
+# PROVIDENCIA DDP 8264
+
+**Número de Providencia (DDP 8264):** AP8318-2025
+**Radicación (DDP 8264):** 70151
+
+**Lista de Temas (DDP 8264):**
+(i) “SALVATORE MANCUSO GÓMEZ y la defensa interpusieron recurso de apelación con el único propósito de que se dejara sin efecto la restricción consistente en residir o acudir a los lugares donde delinquieron los postulados. En ese sentido, dado que comparten planteamientos similares, la Corte los sintetizará de manera conjunta.”. 
+(ii) “Requisitos para la sustitución de la medida de aseguramiento en el ámbito de Justicia y Paz”. 
+(iii) “Además, esta Corporación también ha diferenciado los institutos de la sustitución de la medida de aseguramiento, con aquella consagrada en el artículo 11A de la Ley 975 de 2005 que trata de la exclusión de los postulados a la justicia transicional.”. 
+(iv) “En el caso de la sustitución, como ya se sabe, se está ante una de las condiciones que acumulativamente deben cumplirse para que el magistrado con función de garantías “pueda” conceder la sustitución de la medida de aseguramiento. Ese reemplazo se ve imposibilitado ante la comisión de delito doloso por parte del postulado con posterioridad a la desmovilización, y para ello es suficiente que al momento de la solicitud se le haya formulado imputación por tal concepto.”. 
+(v) “En cambio, en lo que respecta a la segunda figura, corresponde a una causal que determina la exclusión del postulado de la lista, por parte de la Sala de Conocimiento de Justicia y Paz, y apareja la terminación del proceso. En este caso, la carga de la prueba corresponde a la Fiscalía, y requiere que exista por lo menos sentencia condenatoria.”. 
+(vi)  “Finalmente, tal y como se destacó recientemente por la Sala, «aunque MANCUSO asemeje la restricción impuesta a un “destierro” por la amplitud de los lugares sobre los que recae, desconoce que ello se debe a que justamente coincide con los territorios en los cuales delinquió y, por consiguiente, donde se encuentran primordialmente sus víctimas».”.
+
+---
+
+# PROVIDENCIA DDP 8265
+
+**Número de Providencia (DDP 8265):** SP2202-2025
+**Radicación (DDP 8265):** 65186
+
+**Lista de Temas (DDP 8265):**
+(i) “Marco normativo y jurisprudencial del delito imprudente y de la imputación objetiva del resultado lesivo”. 
+(ii) “Libertad probatoria, sistema adversarial y valoración del material probatorio bajo las reglas de la sana crítica”. 
+(iii) “De la actividad probatoria practicada se desprende que el procesado adelantaba labores de descargue en un vehículo tipo furgón estacionado sobre la vía pública, sin haber dispuesto señalización que advirtiera la maniobra. En esas circunstancias, la compuerta trasera del automotor se abrió repentinamente e impactó al motociclista que transitaba por el lugar. La apertura coincidió con el paso de un vehículo de gran tamaño que generó una corriente de aire considerable y, según lo que los testigos observaron instantes después del siniestro, la compuerta no estaba debidamente asegurada. A partir de estos elementos quedó establecido el daño sufrido por la víctima y la dinámica inmediata del hecho.”. 
+(iv) “Ahora bien, la determinación de la responsabilidad penal por un resultado imprudente supone un examen ordenado de tres aspectos: el contenido del deber objetivo de cuidado exigible al agente, su eventual infracción desde una perspectiva ex ante y la realización del riesgo en el resultado típico. Estas pautas no constituyen una fórmula retórica, sino el método que permite precisar, con base en la prueba, qué era exigible al procesado en las condiciones concretas en que actuaba y si su comportamiento creó o incrementó un riesgo jurídicamente relevante.”. 
+(v) “En este caso, la maniobra de descargue realizada en un vehículo estacionado en vía pública es una actividad lícita comprendida dentro del riesgo permitido. Sin embargo, su ejecución en una vía estrecha y con flujo constante demandaba medidas razonables de diligencia, como asegurar los mecanismos móviles susceptibles de proyectarse hacia la calzada, utilizar señalización preventiva y verificar el entorno inmediato. Estas exigencias derivan tanto del Código Nacional de Tránsito como de prácticas ordinarias de operación, y su cumplimiento se valora desde el conocimiento disponible para el agente antes de la ocurrencia del resultado.”. 
+(vi) “Tras revisar integralmente el material probatorio, esta Sala concluye que no se satisficieron los elementos estructurales de la imputación objetiva ni el estándar de conocimiento exigido por el artículo 381 del Código de Procedimiento Penal. La prueba únicamente permite afirmar el estado final de la compuerta, pero no la acción u omisión específica atribuible al procesado ni la previsibilidad del resultado desde una perspectiva ex ante. Tampoco obra en el expediente evidencia sobre el estado previo del mecanismo de cierre, ni sobre la verificación realizada por el conductor antes de iniciar el descargue, ni sobre la supuesta previsibilidad de que la corriente de aire generara la apertura, aspectos todos estructurales para fundamentar una negligencia. La ausencia total de prueba en estos puntos impide construir un juicio de responsabilidad más allá de toda duda razonable y obliga, en consecuencia, a resolver la incertidumbre en favor del acusado, lo que conduce a revocar la condena y restablecer la absolución de primera instancia.”.
+
+---
+
+# PROVIDENCIA DDP 8266
+
+**Número de Providencia (DDP 8266):** SP2177-2025
+**Radicación (DDP 8266):** 69944
+
+**Lista de Temas (DDP 8266):**
+(i) “El objeto de discusión en este asunto recae en constatar la legalidad del preacuerdo pactado entre la Fiscalía y el procesado, avalado por el Tribunal, mediante el cual MARIO ALFONSO LORA CORREA aceptó su responsabilidad como autor del delito de homicidio agravado en concurso homogéneo a cambio del reconocimiento del estado de ira o intenso dolor, la imposición de siete (7) años de pena privativa de la libertad y la concesión de prisión domiciliaria.”.  
+(ii) “Proceso penal, principio de oficiosidad y preacuerdos como mecanismo anticipado de terminación del trámite”. 
+(iii) “Uno de los pilares conceptuales de un modelo acusatorio es el ejercicio discrecional de la acción penal que en contrapartida al principio de oficiosidad, propio de los esquemas procesales que se han catalogado como inquisitivos, encuentra en lo dispositivo su razón de ser ante la imposibilidad real y material de sancionar completamente todas las conductas trasgresoras del ordenamiento jurídico, representadas en el fenómeno delictivo.”. 
+(iv) “En esas condiciones, hay una distinción fundamental que hace diferente esa perspectiva jurídica con el sistema procesal de la Ley 906 de 2004. En nuestro medio esa facultad de la Fiscalía para negociar no es autónoma, ni ilimitada, toda vez que la Constitución Nacional, en su artículo 29, establece el principio de legalidad como elemento clave del debido proceso.  De ahí que el juez sea garante de ese mandato normativo con el poder-deber de impartir justicia material y aproximarse a la verdad real, contando con potestades destinadas a controlar las facultades de esa entidad si desborda la normatividad que rige su actividad cuando la actuación culmina en virtud de preacuerdo. Esta postura fue asumida por la Corte cuando fijó su criterio inicial acerca del tema: …”. 
+(v)  “Ahora bien, de la sistemática procesal y para el tema que concita a la Sala, surge incuestionable que el acta de preacuerdo equivale al escrito de acusación. La imputación y la acusación son actos de parte a cargo de la Fiscalía, con los que se comunica al indiciado la pretensión que a través del trámite subsiguiente aspira obtener en su contra, igualmente, determina de forma provisional su situación jurídica respecto a los hechos investigados, con la precisión típica de los cargos, para garantizar el derecho de defensa.”. 
+(vi) “No obstante, en el caso de los preacuerdos, como se ha visto, el juez está llamado a efectuar un control de legalidad, pues si bien estos le son vinculantes (Ley 906 de 2004, artículo 351) lo son siempre y cuando no vulneren garantías fundamentales. Así lo indicó la Corte Constitucional, en la sentencia C-1260 de 2005: …”. 
+(vii) “Discrecionalidad reglada de la Fiscalía en los preacuerdos”. 
+(viii) “Bajo ese panorama, la Sala relacionó varios presupuestos para evaluar las prerrogativas que pueden concederse de acudirse a este mecanismo anticipado de terminación, entre los que se encuentran: «
+(i) el momento de la actuación en el que se realiza el acuerdo; 
+(ii) el daño infligido a las víctimas y la reparación del mismo, 
+(iii) el arrepentimiento del procesado, lo que incluye su actitud frente a los beneficios económicos y de todo orden derivados del delito; 
+(iv) su colaboración para el esclarecimiento de los hechos, y 
+(iv) el suministro de información para lograr el procesamiento de otros autores o partícipes».”. 
+(ix) “Lo anterior permite colegir que el preacuerdo cuestionado vulnera los lineamientos de las formas propias del juicio, tal y como lo denunció el Ministerio Público en el cargo primero principal de la demanda de casación, el cual prospera. En consecuencia, se decretará la nulidad de la actuación a partir de la decisión del Tribunal que ordenó su aprobación, lo que hace innecesario abordar el examen del cargo segundo subsidiario.”.
+
+---
+
+# PROVIDENCIA DDP 8267
+
+**Número de Providencia (DDP 8267):** SP2221-2025
+**Radicación (DDP 8267):** 63241
+**Decisión (DDP 8267):** SMS DEL 4.12.2025
+
+**Lista de Temas (DDP 8267):**
+(i) “La adecuada delimitación de los hechos jurídicamente relevantes en el proceso penal”. 
+(ii) “Para los defensores de los mencionados, la síntesis de la hipótesis fáctica expuesta por la Fiscalía en los actos de imputación y acusación fue insuficiente, porque simplemente se detalló lo referente al homicidio de D.F.B.L., pero ese específico supuesto es ajeno a los hechos que a ellos se les atribuyeron. Además, critican que incumplió la delegada Fiscal la carga de expresar las circunstancias que rodearon la comisión de las conductas que, en concreto, les fueron atribuidas.”. 
+(iii) “Ahora bien, en este apartado de la providencia, la Sala, desde ya lo advierte, descarta la infracción del principio de congruencia, pues se observa que la hipótesis fáctica que fundó la condena encuentra consonancia con la que planteó la delegada Fiscal en los actos de parte objeto de controversia. Adicionalmente, no demostraron los recurrentes, a la luz de los principios rectores de las nulidades que han de ser considerados aun cuando se trate del análisis de fondo del asunto, qué razón impone la invalidación del trámite.”. 
+(iv) “Para la defensa de ARÉVALO RODRÍGUEZ, el caso debió surtirse por conducto de la justicia penal militar, básicamente, porque los actos que se le reprochan los cometió con «ocasión de sus funciones» y se equivocaron las instancias cuando equipararon lo que el Consejo Superior de la Judicatura – para aquel entonces competente – resolvió frente al proceso que cursaba por el homicidio de D.F.B”. 
+(v) “El ad quem, sin embargo, se equivocó en el primero de los aspectos. Confundió los institutos del incidente de definición de competencias al que se refieren los artículos 43, 52, 54 y concordantes del Código de Procedimiento Penal (Ley 906 de 2004), que ha de plantearse en el marco de la audiencia de formulación de acusación o, en casos específicos en la preparatoria o de juicio oral, con el conflicto de jurisdicciones que incide sobre la legalidad del trámite, pues involucra el principio supraconstitucional del juez natural como factor fundamental de la garantía del debido proceso.”. 
+(vi) La sentencia sin motivación correcta. 
+(vii) “Las circunstancias de agravación o atenuación punitiva son situaciones de índole objetiva o subjetiva que se reflejan en la punibilidad. Tratándose de la agravación edificada sobre la participación plural, es de índole objetiva, su razón de ser responde a que cuando la conducta es realizada por varios sujetos ello facilita la vulneración del bien jurídico, al tiempo que limita o dificulta la reacción o defensa del sujeto pasivo de la acción, pues aunque suene obvio no es igual que la conducta la cometa una sola persona, que varias (Cfr. CSJ SP7473-2016, Rad. 47545, reiterada en CSJ AP7507–2024, Rad. 60642).”. 
+(viii) “Ahora bien, antes de abordar el contenido de aquellos relatos y en lo que concierne a las críticas que formulan frente a su credibilidad por haberse acogido los tres testigos a la aplicación de sendos principios de oportunidad, cabe recordar que, como dijo la Sala en sentencia CSJ SP, 23 Feb. 2009, Rad. 29418 (reiterada en CSJ SP471 – 2025, Rad. 61459): …”. 
+(ix) “También advirtió la Corte en la sentencia CSJ SP471 – 2025, Rad. 61459, que el testigo que admite responsabilidad y está interesado en obtener beneficios punitivos no puede ser descartado, exclusivamente, por ese interés. Es necesario constatar que sus aseveraciones se corroboren de manera periférica, con otros medios de convicción.”. 
+(x) El porte ilegal de armas y la pistola que se plantó en la escena del crimen. 
+(xi) “Pues bien, la garantía constitucional del non bis in ídem está constitucionalmente consagrada en el artículo 29 de la Constitución Política. Es componente del derecho fundamental al debido proceso y en síntesis se centra en que «quien sea sindicado tiene derecho (…) a no ser juzgado dos veces por el mismo hecho».”. 
+(xii) “La Corte ha excluido la posibilidad de sancionar simultáneamente un mismo supuesto fáctico por constituir una circunstancia de mayor punibilidad y, al mismo tiempo, una causal de agravación específica de igual naturaleza frente a un mismo delito. Ha considerado en ese sentido que se vulnera el principio de doble valoración cuando se aplica el agravante genérico previsto en el numeral 10º del artículo 58 del Código Penal, que establece que las situaciones allí enumeradas serán tenidas en cuenta «siempre que no hayan sido previstas de otra manera», si éste concurre con otros apartados que, bajo el mismo tenor, agravan el delito específicamente considerado …”. 
+(xiii) “Y en este evento, además de aplicar el factor obrar en coparticipación criminal doblemente, les atribuyó, por una misma acción, dos consecuencias jurídicas distintas, pues 
+(i) agravó el delito de tráfico, fabricación o porte de armas de fuego por esa razón, incrementando los extremos de la pena imponible y 
+(ii) agravó la sanción, de nuevo, cuando, acudiendo a esa acción, pero como circunstancia genérica, dosificó la pena definitiva partiendo del primer cuarto medio.”. 
+(ivx) Falsedad ideológica en documento público. 
+(xv) El primer respondiente.
+
+---
+
+# PROVIDENCIA DDP 8268
+
+**Número de Providencia (DDP 8268):** SP2183-2025
+**Radicación (DDP 8268):** 70190
+
+**Lista de Temas (DDP 8268):**
+(i) “El debido proceso y la nulidad como medida para superar su vulneración.”. 
+(ii) “Ahora, toda vez que la nulidad es una medida extrema para salvaguardar el debido proceso y restablecer los derechos y garantías de las partes e intervinientes afectados con la irregularidad identificada, debe acreditarse unos requisitos mínimos para su procedencia.”. 
+(iii)  “De acuerdo con la jurisprudencia de la Sala, quien solicite declarar una nulidad debe: …”. 
+(iv) “Vicios del consentimiento en la aceptación de cargos”. 
+(v) La aceptación de cargos y su retractación.
+
+---
+
+# PROVIDENCIA DDP 8269
+
+**Número de Providencia (DDP 8269):** AP8303-2025
+**Radicación (DDP 8269):** 71027
+
+**Lista de Temas (DDP 8269):**
+(i) El recurso de queja. 
+(ii) “… para que el recurso sea viable es necesaria la concurrencia de varios presupuestos, así: 
+(i) que la decisión sea susceptible de impugnación, 
+(ii) que el recurso se proponga antes del vencimiento de los términos legalmente destinados para ello, 
+(iii) que al recurrente le asista interés y 
+(iv) que la inconformidad esté sustentada.”. 
+(iii) “Debe recordarse que la finalidad del recurso de queja es proteger la garantía de la doble instancia, de modo que, está orientado esencialmente a determinar si fue correcta o no la negativa a conceder la alzada, sin que corresponda examinar el acierto de la providencia objeto de impugnación, conforme a lo dispuesto en los cánones 179B y siguientes ibidem.”. 
+(iv) “… el instituto de la nulidad corresponde a una solución extrema a la que, se acude, ante la verificación de los principios que la orientan. Al tiempo que, su objetivo es salvaguardar los derechos y garantías de las partes e intervinientes, buscando que las actuaciones judiciales siempre se ajusten al marco del debido proceso.”. 
+(v) “La jurisprudencia de esta Sala también ha enseñado que, es obligación del funcionario a cargo de una actuación judicial delimitar el objeto de debate y, en caso de avizorar la existencia de pedidos superfluos, intrascendentes, o claramente improcedentes, descartar de plano el requerimiento. Al respecto la Corte, en providencia AP 2266-2018, reiterada en AP1644-2023, señaló: …”. 
+(vi) “Finalmente, en providencias AP5651-2015, AP2424-2016 y AP1644-2023, entre otras, se indicó que «la ausencia de manifestación de impedimento o la negativa de aceptar una recusación, no constituye causal de anulación del trámite procesal».”. 
+(vii) “Conforme a lo anterior, la Sala estima que en el presente evento ningún error cometió el Tribunal cuando, en decisión del 6 de octubre de 2025, resolvió no habilitar la interposición del recurso de apelación contra el auto que dispuso rechazar de plano la solicitud de nulidad formulada por el defensor del procesado.”.
+
+---
+
+# PROVIDENCIA DDP 8270
+
+**Número de Providencia (DDP 8270):** AP8351-2025
+**Radicación (DDP 8270):** 62013
+
+**Lista de Temas (DDP 8270):**
+(i) "De acuerdo con el artículo 176 de la Ley 906 de 2004, el recurso de reposición procede para todas las decisiones, salvo la sentencia, y se resuelve de manera oral e inmediata en la audiencia respectiva. Sin embargo, si las providencias no se profieren en audiencia, se aplican los artículos 187 y 189 de la Ley 600 de 2000, pues la Ley 906 de 2004 no señala el trámite a seguir en esta circunstancia.". 
+(ii) “Adicionalmente, no hay duda de que la oportuna interposición y debida sustentación son condiciones necesarias para que el funcionario judicial revise su propia decisión. Por esa razón, esta Corte ha expresado que «la parte inconforme con la decisión tiene el deber de expresar los argumentos con los que soporta su discrepancia, con el propósito de evidenciar las falencias que en su criterio deben ser remediadas». También ha señalado que la sustentación del recurso podrá hacerse durante el traslado señalado por la ley para tal fin o incluso, desde la presentación de este.”. 
+(iii) “En el caso concreto, esta Corporación encuentra que, tras ser notificado del rechazo de la demanda de casación, el procesado VANEGAS LÓPEZ interpuso recurso de reposición contra esa decisión. Sin embargo, una vez corrido el traslado para su debida sustentación, no se recibió ninguna manifestación suya con los argumentos que soportan su inconformidad con la decisión adoptada.”.
+
+---
+
+# PROVIDENCIA DDP 8271
+
+**Número de Providencia (DDP 8271):** SP2176-2025
+**Radicación (DDP 8271):** 61084
+
+**Lista de Temas (DDP 8271):**
+(i) “El asunto relativo a la aplicación de la circunstancia de agravación por coparticipación criminal (art. 365, inc. 2º, n. 5, Ley 599 de 2000), en casos donde los procesados son coautores, fue abordado en la sentencia objeto del recurso de casación de la siguiente manera: …”. 
+(ii) “Luego, en las dos demandas de casación, los libelistas, en términos similares, reclaman que, si bien la condena por el delito previsto en el artículo 365 de la Ley 599 de 2000 no se controvierte, no era aplicable la circunstancia de agravación punitiva establecida en el numeral 5 del inciso 2º de la misma norma, esto es, por obrar en coparticipación criminal, pues, en su criterio, ésta no aplica para casos en los que se prueba la coautoría de los procesados.”. 
+(iii) “Por lo anterior, el problema jurídico se circunscribe, de manera exclusiva, a determinar en qué casos aplica el agravante del numeral 5 del inciso 2º del artículo 365 de la Ley 599 de 2000 y en cuáles no.”. 
+(iv) “Incluso, esta Sala ha definido, de manera pacífica, que no resulta problemático, tampoco, que coexistan el agravante del numeral 5 del inciso 2º del artículo 365 de la Ley 599 de 2000 y, asimismo, la circunstancia de mayor punibilidad prevista en el numeral 10 del artículo 58 ídem , pues: …”. 
+(v) “Finalmente, a pesar de que no hizo referencia al agravante del numeral 5 del inciso 2º del artículo 365 de la Ley 599 de 2000, sino que se sentó en el inciso 1º del artículo 290 ídem, la Corte Constitucional, en la sentencia C-283 de 2021, definió que el vocablo “copartícipe” no se refiere única ni exclusivamente a los partícipes, entendidos a la luz del artículo 30 del mismo cuerpo normativo , sino que, “la expresión designa a todos los que toman parte en la conducta”.”.
+
+---
+
+# PROVIDENCIA DDP 8272
+
+**Número de Providencia (DDP 8272):** AP8331-2025
+**Radicación (DDP 8272):** 62878
+**Decisión (DDP 8272):** SMS DEL 5.12.2025
+
+**Lista de Temas (DDP 8272):**
+(i) Un error secretarial que “… la Corte, previa ponderación del principio de legalidad frente a los de acceso a la justicia, buena fe, lealtad procesal, prevalencia del derecho sustancial sobre lo formal y el de defensa, desde la óptica del principio de confianza legítima , estima que el señalado error jurisdiccional no puede comportar efectos negativos para la parte con interés legítimo, y por tanto tendrá en cuenta el libelo allegado en ese espacio, pues solo así se predica que el recurso fue sustentado en tiempo.”. 
+(ii) La nulidad en casación. 
+(iii) El debido proceso y la nulidad. 
+(iv) “A su turno, cuando se trata de la violación del derecho a la defensa (también alegado en la censura), es indispensable determinar con claridad: las fallas que lesionaron esa garantía, en alguna sus aristas (material o técnica), y en cuál de las formas en que se materializan —según las facultades que la ley otorgada tanto al procesado como a su abogado (Ley 906, de 2004, arts. 8, 118, 121, 122, 124 y 125)—; además, acreditar que la gravedad y trascendencia de la irregularidad correspondiente hace imperioso retrotraer el proceso a una determinada fase en la que pueda conjurarse el agravio, al no existir otra manera de repararlo.”. 
+(v) “Adicional a lo anterior, en desarrollo del mismo reproche y con igual desconocimiento de las reglas de casación, el demandante aseguró «la inaplicación de una norma de derecho sustancial Art 269 del CP», así como la «falta de aplicación de los artículos 4, 6, 8, 10, 15, 26, 27 y 447-3 del Código de Procedimiento Penal», aserciones con las que abandonó la senda de ataque seleccionada, y aludió a la violación directa de la ley, vía de censura que le imponía un ejercicio argumental de estricto orden jurídico, sobre la base de aceptar los hechos y valoración probatoria plasmados en las sentencias, como supuestos que obligarían a los juzgadores a la activación de los efectos concernidos en las citadas normas, ejercicio de imposible observancia por parte del censor, cuando quiera que, como lo reconoce este, en el presente asunto no se concretó el pago de los perjuicios causados con el delito y, por lo mismo, mal puede alegarse la falta de aplicación del primero de los citados preceptos, en consonancia con los adicionalmente invocados en la integración de la proposición jurídica completa, la cual, en este caso, por lo anotado, deviene sofística.”.
+
+---
+
+# PROVIDENCIA DDP 8273
+
+**Número de Providencia (DDP 8273):** SP2285-2025
+**Radicación (DDP 8273):** 69404
+**Decisión (DDP 8273):** REVOCA LA CONDENA Y ABSUELVE EN IMPUGNACIÓN ESPECIAL.
+
+**Lista de Temas (DDP 8273):**
+(i) Prevaricato por omisión. 
+(ii) La captura en flagrancia. 
+(iii) “De tal modo, la afirmación defensiva que propone la ausencia de una flagrancia es desacertada. si bien la víctima y la fuerza pública no se percataron del hecho en el justo instante que ocurrió, fue por la advertencia de un tercero que sorprendieron e individualizaron a los implicados, para luego, perseguirlos —al punto de iniciarse un operativo policial—.”. 
+(iv)  “Entonces, es admisible la presencia de lo que se conoce como una cuasi flagrancia, conforme al art. 301, núm. 2, del C.P.P., pues los sujetos fueron sorprendidos durante la ejecución del ilícito por un vecino de José Ruíz, y después aprehendidos por persecución que involucró a los PT. Diana Lorena Parra, John Janer Herrera, KELVER MENA y el IT. VÍCTOR MANCILLA.”. 
+(v) “Procedimiento en casos de captura en flagrancia …”. 
+(vi) “La patrulla de vigilancia” y la policía judicial.
+
+---
+
+# PROVIDENCIA DDP 8274
+
+**Número de Providencia (DDP 8274):** SP2143–2025
+**Radicación (DDP 8274):** 63786
+
+**Lista de Temas (DDP 8274):**
+(i) “Según el libelista, lo atribuido por la Fiscalía y aceptado por el implicado es el delito de concierto para delinquir simple contenido en el artículo 340 del Código Penal; en esas condiciones, tenía derecho a la suspensión de la ejecución de la pena, acorde con el canon 63 ib, en tanto, la prohibición del articulo 68 A, se refiere a las agravantes de los numerales 2 y 4 de la norma sustantiva mencionada –no atribuidas-, no a la del artículo 342 íb, por tratarse ésta de una circunstancia de mayor punibilidad.”. 
+(ii) “No es cierto que la agravante del artículo 342 del C.P., corresponda a una circunstancia de mayor punibilidad. Contrario a ello, se trata de una agravante específica propia del tipo penal de concierto para delinquir y entrenamiento para actividades ilícitas, contenido en los artículos 340 y 341 íb.”. 
+(iii) “Al efecto, el legislador en su potestad legítima de configuración en materia penal aumentó las penas de los delitos mencionados -artículos 340 y 341 del Código Penal-, de una tercera parte a la mitad, cuando las conductas en ellos descritas se cometan por miembro activos o retirados de la Fuerza pública o de organismos de seguridad el Estado, según lo describe claramente el art 342 íb.SP2143–2025.”. 
+(iv) “Por manera que, la agravante mencionada corresponde a una norma de derecho sustancial que no va en contravía de la prohibición de derecho penal de autor ni de última ratio, dado que lo penalizado con mayor severidad es la calidad específica de quien ha concurrido a concertarse para cometer delitos, en este caso, respecto del concierto para delinquir, contemplado en el artículo 340 del Código Penal.”. 
+(v) “Resulta claro que la única forma de imputar la agravante específica del artículo 342 del C.P, al concierto para delinquir del canon 340 íb., es que se demuestre que el sujeto infractor, quien ejecuta el verbo rector de concertarse, tenga la calidad de miembro activo o retirado de la Fuerza Pública o de organizaciones de seguridad del Estado.”. 
+(vi) “Ahora, ¿cuándo una mujer -u hombre, según la Corte Constitucional- se puede considerar “cabeza de familia”?. La respuesta se encuentra en el artículo 2° de la Ley 82 de 1993 -modificado por el artículo 1º de la Ley 1232 de 2008-, al establecer que: …”. 
+(vii) “Ahora, en punto de los requisitos para conceder la sustitución de la prisión carcelaria por domiciliaria, el referido artículo 1º de la Ley 750 de 2002, establece: …”. 
+(viii) “Precisamente, esta Corte ha tenido como criterio pacífico, que la prevalencia del interés superior del menor no exime al juez de verificar el cabal cumplimiento de los requisitos exigidos en la ley, para acceder al sustituto de la prisión domiciliaria, por la condición de padre o madre cabeza de familia, en tanto, “no existen derechos absolutos”12. En torno a ello afirmó la Sala: …”. 
+(ix) “Por su parte, en lo que concierne a los demás aspectos relacionados con la individualización de pena y la sentencia del artículo 447 del Código de Procedimiento Penal, es una carga que la ley le impone a las partes, para que se refieran a la probable determinación de la pena aplicable y la concesión de algún subrogado, caso último en el cual tiene la obligación, quien así lo alega, de allegar los elementos para su demostración.”.
+
+---
+
+# PROVIDENCIA DDP 8274
+
+**Número de Providencia (DDP 8274):** AP7105-2025
+**Radicación (DDP 8274):** 64947
+
+**Lista de Temas (DDP 8274):**
+1 
+(i) “De la legitimidad para acudir en casación”. 
+(ii) “La Corte ha precisado que la legitimación en la causa exige acreditar el interés jurídico, entendido como el ejercicio efectivo de los principios de contradicción y doble instancia. Para ello, el demandante debe haber apelado el fallo de primera instancia y sus reparos deben guardar unidad o identidad temática con los argumentos expuestos en casación …”. 
+(iii) “De manera excepcional, el recurrente puede acudir en casación pese a no haber cuestionado el fallo de primer grado, siempre que acredite algunas de estas hipótesis: 
+(i) que de manera arbitraria no pudo ejercer los recursos de instancia, 
+(ii) que el fallo proferido en segunda instancia agravó su situación, o 
+(iii) que la pretensión invocada en esta sede sea la declaratoria de nulidad.”. 
+(iv) “Fines del recurso de casación”. 
+(v) “Principios del recurso de casación”. 
+(vi) “De las causales de casación”. 
+(vii) “Motivos de inadmisión”. 
+(viii) “La infracción de la ley se concreta en tres modalidades: 
+(i) falta de aplicación, cuando el juez omite aplicar la disposición que rige el caso concreto o desconoce su existencia; 
+(ii) indebida aplicación, cuando adecúa incorrectamente los hechos probados al supuesto de hecho previsto en la norma; y 
+(iii) errónea interpretación, cuando asigna a la disposición un sentido que no tiene o le otorga efectos contrarios a su contenido …”. 
+(viii) “Si el censor propone el cargo por la vía de la violación directa, debe circunscribirse a denunciar errores in iudicando de carácter jurídico, originados en una selección o interpretación desacertada de la norma sustancial. En consecuencia, debe abstenerse de cuestionar aspectos fácticos o probatorios y aceptar los hechos y la valoración de los medios de prueba fijados por los jueces de instancia.”. 
+(ix) La concusión.
+
+---
+
+# PROVIDENCIA DDP 8275
+
+**Número de Providencia (DDP 8275):** SP2175-2025
+**Radicación (DDP 8275):** 59576
+**Decisión (DDP 8275):** EN IMPUGNACIÓN ESPECIAL SE REVOCA LA CONDENA Y QUEDA EN FIRME LA ABSOLUCIÓN.
+
+**Lista de Temas (DDP 8275):**
+(i) “La controversia se suscita en el ámbito de la prueba indiciaria, ya que el Juzgado concluyó que la presencia de los datos del procesado en la referida guía de transporte resulta insuficiente para establecer su responsabilidad penal más allá de duda razonable, mientras que el Tribunal sostiene que ese estándar se cumplió gracias a la articulación de ese hecho indicador con otros demostrados en el proceso, a saber, la calidad de comerciante que ostentaba CARDONA CARDONA, su capacidad económica, la actitud que asumió ante la orden de decomiso administrativo y lo inverosímil de su relato sobre la comparecencia ante la POLFA en la ciudad de Pereira.”. 
+(ii) “La Sala ha sostenido que, en el ámbito de la Ley 906 de 2004, autenticar una evidencia física o un documento no es otra cosa que demostrar que es lo que la parte dice que es, según su teoría del caso. Esa demostración está regida por el principio de libertad probatoria. (CSJSP12229, 31 ago. 2016, Rad. 43916, entre otras).”. 
+(iii) “Por tanto, para establecer si la carga de probar la autenticidad se cumplió a cabalidad o no, es imperioso establecer el alcance que la parte interesada pretende darle al respectivo medio de prueba.”. 
+(iv) “Así, cuando el censor alega que no se practicó un dictamen que demuestre que las grafías plasmadas en la guía corresponden al procesado, o echa de menos el testimonio del funcionario de la transportadora que recibió las cajas con la mercancía, realmente parece indicar que la simple inclusión de los datos de una persona en una guía de transporte no es razón suficiente para demostrar que fue ella quien hizo la remisión, lo que corresponde al ámbito de la valoración de las pruebas.”. 
+(v) “Para la mejor comprensión de la insuficiencia de ese dato, debe reiterarse lo expuesto por la Sala sobre los diferentes estándares consagrados en el ordenamiento jurídico, para resaltar que la verificación de los previstos para iniciar la indagación, imputar o acusar, no implica que estén reunidos los requisitos para emitir la condena. Al respecto, en la decisión CSJSP322, 19 feb 2025, Rad. 58474, se precisó: …”. 
+(vi) “En suma, la presencia de los datos de una persona en una guía de transporte correspondiente a mercancías ilegales, puede ser soporte suficiente de la hipótesis inicial sobre la ocurrencia de un delito y la posible responsabilidad penal. Sobre esa base, la Fiscalía tiene la carga de diseñar un programa metodológico, orientado a confirmar o descartar esa hipótesis inicial de trabajo.”. 
+(vii) “En todo caso, emitir una condena por el simple hecho de que algo ilegal fue enviado o registrado a nombre de una persona en particular resulta transgresor del estándar previsto para la condena y, además, pone en riesgo a la ciudadanía en general, ya que nadie está exento de que su nombre y demás datos personales sean utilizados para actividades ilegales.”. 
+(viii) “Lo que se espera del Estado es que, por conducto de la Fiscalía, realice las verificaciones necesarias para que los responsables sean penalizados y para evitar que personas ajenas a la actividad ilegal tengan que afrontar los rigores de un proceso y, en el peor de los casos, la privación de la libertad.”.
+
+---
+
+# PROVIDENCIA DDP 8276
+
+**Número de Providencia (DDP 8276):** SP2172-2025
+**Radicación (DDP 8276):** 68699
+
+**Lista de Temas (DDP 8276):**
+(i) “Del punible de actos sexuales con menor de 14 años.”.  
+(ii) “Ahora bien, dentro de las causales de agravación previstas para el delito de actos sexuales con menor de 14 años, el artículo 211 del Código Penal en su numeral 5 prevé que: …”. 
+(iii) “Sobre el particular, la Corte en sentencia SP3141-2020, del 19 de agosto de 2020, señaló que dicha norma «de manera específica y especial, reguló las situaciones en las que los delitos sexuales contenidos en el Capítulo Segundo del Título IV del Código Penal, se dan al interior del entorno familiar o habitacional, es decir, que lo que permite la comisión del hecho delictivo son justamente las relaciones de parentesco o de cohabitación, incluidas aquellas distintas a la convivencia marital. Y aunque la citada ley fue emitida con el objeto de contrarrestar la violencia contra la mujer, también alude a la toma de medidas para evitar y sancionar situaciones de violencia familiar, como los abusos sexuales de los que puede ser víctima cualquiera de sus miembros que de una u otra forma esté integrado al seno de la familia.»”. 
+(iv) “Y más adelante, en la misma providencia, la Sala explicó que la diferencia entre esa causal de agravación y la contenida en el numeral 2 del artículo 211 de la Codificación penal, estriba en que este última «regula el vínculo de confianza de manera genérica, el cual está llamado a aplicarse sólo en los casos en los que dicho nexo provenga de situaciones diferentes a las indicadas en el numeral 5º, entre ellas el grado de parentesco entre el agresor y la víctima».”. 
+(v) “De la admisibilidad como pruebas de referencia de las declaraciones rendidas antes de juicio por la menor S.C.E.”. 
+(vi) “Comoquiera que en el presente asunto se está juzgado una conducta delictual de aquellas conocidas como de «puerta cerrada», donde su demostración se torna difícil en la medida que, por regla general, no se cuenta con pruebas directas que acrediten su materialidad, siendo  punto de partida para el análisis de responsabilidad las versiones, casi siempre encontradas, que suministran víctima y victimario, es labor del fallador tomar cada uno de esos dichos y someterlo a un proceso de constatación que le permita llegar a un estado de conocimiento más allá de toda duda razonable, en virtud del cual pueda señalar cuál de las dos aseveraciones se ajusta a la realidad.”. 
+(vii) “Ahora bien, dicho proceso de constatación, según se ha explicado, se cumple a partir de la aplicación de unos criterios de «corroboración periférica», los cuales hacen alusión a la existencia de datos que puedan hacer más creíble el testimonio de la víctima, como sería « 
+(i) la inexistencia de razones para que la víctima y/o sus familiares mientan con la finalidad de perjudicar al procesado; 
+(ii) el daño psíquico causado a raíz del ataque sexual; 
+(iii) el estado anímico de la víctima en los momentos posteriores a la ocurrencia de los hechos; 
+(iv) regalos o dádivas que el procesado le haya hecho a la víctima, sin que exista una explicación diferente de propiciar el abuso sexual, entre otros.»”.  (CSJ SP3495-2022, reiterando CSJ SP2709-2018)”.
+
+---
+
+# PROVIDENCIA DDP 8277
+
+**Número de Providencia (DDP 8277):** SEP139-2025
+**Radicación (DDP 8277):** 50985
+**Decisión (DDP 8277):** SMS DEL 9.12.2025
+
+**Lista de Temas (DDP 8277):**
+Sentencia condenatoria “dentro del proceso adelantado en contra de RODOLFO BAUTISTA PALOMINO LÓPEZ, en su condición de General de la Policía Nacional en retiro, a quien la Fiscalía acusó como autor del delito de tráfico de influencias de servidor público, consagrado en el artículo 411 de la Ley 599 de 2000, con la circunstancia de mayor punibilidad descrita en el numeral 9 del canon 58 de la misma codificación, relacionada con la posición distinguida que el agente ocupe en la sociedad.”.
+
+---
+
+# PROVIDENCIA DDP 8278
+
+**Número de Providencia (DDP 8278):** AP8332-2025
+**Radicación (DDP 8278):** 63990
+
+**Lista de Temas (DDP 8278):**
+(i) “La censura principal se planteó por vía de la causal 2ª del artículo 181 de la Ley 906 de 2004, bajo el argumento que se desconoció el debido proceso en cuanto a su estructura o la garantía de alguna de las partes, pero no concretó la modalidad y la razón de su reproche. Además, cuestiona la valoración probatoria, contexto en el cual trata de estructurar la afrenta a los artículos 2, 4, 13, 29, 93, 94, 229 y 230 de la Constitución Política.”. 
+(ii) “Tratándose de la causal de nulidad, la jurisprudencia de la Sala tiene dicho que los motivos de ineficacia de los actos procesales no son de libre proposición, por el contrario, se hallan sometidos al cumplimiento de precisos postulados que los dotan de sentido y los hacen operantes.”. 
+(iii) “De este modo, la fundamentación del ataque debe hacerse a la luz de los principios de taxatividad, acreditación, convalidación , instrumentalidad de las formas, protección, trascendencia  y residualidad , pues, si se avizora que el defecto denunciado no logra afectar en su esencialidad el desarrollo de la actuación, ni alterar lo decidido en el fallo impugnado, no hay lugar a la admisión de la censura.”. 
+(iv) “Y aun cuando la Corte ha admitido flexibilidad en su postulación y desarrollo en casación, también ha precisado que tal libertad no permite dar tránsito a cualquier escrito que exponga la existencia de un motivo de ineficacia de lo actuado.”. 
+(v) “Por eso, no resulta suficiente invocar, a manera de razón invalidante, todo aquello que no se hizo o no se obtuvo en las instancias, o que, habiendo sido objeto de pronunciamiento por la autoridad judicial, no fue del agrado de la parte afectada.”. 
+(vi) “Para hacer viable la admisión de un cargo por la causal segunda del artículo 181 de la Ley 906 de 2004, resulta imperativo para el censor identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–, acreditar su configuración, indicar la norma o normas violadas, especificar su cobertura invalidatoria y, tal vez lo más importante, demostrar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(vii) “De esa forma, la impugnante acude a la causal tercera de casación que consiste en «el manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia» (art. 181.3). Esta hipótesis cobija los errores de hecho, que acontecen en la contemplación objetiva de la prueba (existencia, identidad o raciocinio), y los errores de derecho, que tienen lugar durante su estimación jurídica (legalidad o convicción). En ambos casos, debe tratarse de equívocos judiciales ostensibles y trascendentes.”. 
+(viii) “Estos yerros (de hecho o de derecho) deben ser discriminados específicamente para hacer coherente y lógico el cargo, y su omisión conduce a la indefectible inadmisión de la demanda. Así el censor debe establecer en cuál de las siguientes posibilidades incurrió el Tribunal: …”. 
+(ix) Las regla de la experiencia.
+
+---
+
+# PROVIDENCIA DDP 8279
+
+**Número de Providencia (DDP 8279):** AHP8730-2025
+**Radicación (DDP 8279):** 71359
+
+**Lista de Temas (DDP 8279):**
+(i) “De la acción de habeas corpus”. 
+(ii) “… aduce que su hija fue privada de la libertad partiendo del hecho que dejó de verla con fundamento en las medidas de protección ordenadas por el ICBF Resolución No. 00674 del 1º de agosto de 2024 y ratificadas por el Juzgado Trece de Familia de Bogotá a través del auto de 10 de diciembre de 2024.”. 
+(iii) “Esas decisiones, administrativa y judicial, se adoptaron cuando SARITH SÁRQUEZ ERAZO era menor de edad -17 años- y porque no se encontró que su madre -aquí accionante- pudiera proporcionar las condiciones adecuadas para su cuidado por lo que se otorgó custodia provisional a Diana Erazo tía materna y restringió las visitas por parte de su progenitora.”. 
+(iv) “En la actualidad SARITH SÁRQUEZ ERAZO es mayor de edad y, de acuerdo con lo manifestado en el trámite de primera instancia cuando se estableció comunicación telefónica, manifestó con claridad su deseo de no tener contacto con su madre.”. 
+(v) “De igual modo, se advierte que se encuentra en libertad a partir de la información proporcionada por Fiscalía Noventa y Ocho Especializada de Bogotá, dentro de la investigación No 110016000050202417225, originada por la denuncia formulada por desaparición forzada por la aquí accionante. En concreto, señaló que el 29 de agosto de 2025 se realizó diligencia de constatación de supervivencia a SARITH SÁRQUEZ ERAZO dejando registro fotográfico el cual se envió a la actora.”.
+
+---
+
+# PROVIDENCIA DDP 8280
+
+**Número de Providencia (DDP 8280):** CP285-2025
+**Radicación (DDP 8280):** No especificado
+**Decisión (DDP 8280):** RE 69543.
+
+**Lista de Temas (DDP 8280):**
+Concepto favorable para la “solicitud de extradición elevada por el Gobierno de la República del Perú, respecto del ciudadano colombiano ARTURO LUNA CORAL, para que comparezca a juicio ante la Corte Superior de Justicia Especializado en Delitos de Crimen Organizado y de Corrupción de Funcionarios del Perú, por el delito de tráfico de drogas ilícitas agravado.”.
+
+---
+
+# PROVIDENCIA DDP 8281
+
+**Número de Providencia (DDP 8281):** AP8097-2025
+**Radicación (DDP 8281):** 70681
+
+**Lista de Temas (DDP 8281):**
+(i) El incidente de definición de competencia. 
+(ii) “Ahora, tratándose del juez con función de control de garantías, este no sólo puede declarase incompetente para celebrar la formulación de imputación, sino de las demás audiencias de su competencia . Regla que igualmente se hace aplicable cuando esta es impugnada por alguna de las partes.”. 
+(iii) “De otra parte, en decisión del 17 de julio de 2019, CSJ AP2863-2019, al interior del radicado 55616, se explicó el trámite que debe cumplirse en el marco del incidente de impugnación de competencia. En dicha oportunidad se señaló que, cuando alguna de las partes o intervinientes rechaza la competencia del juez para conocer de un determinado asunto -ya sea en sede de conocimiento o de control de garantías-, surgen dos posibilidades, a saber: …”. 
+(iv) “Al respecto, el artículo 39 del Código de Procedimiento Penal – modificado por el artículo 48 de la Ley 1453 de 2011 – señala que la función de control de garantías será ejercida por cualquier juez penal municipal. Lo anterior significa que, en principio, se estableció una competencia nacional para los jueces de control de garantías, de forma que cualquiera de ellos está facultado para ejercer dichas funciones, independientemente del lugar donde ocurran los hechos. No obstante, la Corte precisó que dicho precepto debe ser aplicado en forma razonable y no arbitraria.”. 
+(v) “Bajo ese entendido, las partes deben optar preferentemente por el juez de garantías que tenga competencia en el lugar de ocurrencia de los hechos, y sólo en casos excepcionales -que deberán explicarse en la respectiva audiencia- podrán acudir a sitio diverso, en aras de brindar la mayor protección posible de las garantías procesales.”. 
+(vi) “Ahora, tratándose de procesos seguidos contra miembros de Grupos Delictivos Organizados (GDO) y Grupos Armados Organizados (GAO), en los que se ha hecho reconocimiento expreso de su pertenencia a ellos, el conocimiento de las audiencias preliminares sufre una variante, pues la regla aplicable es la fijada en el parágrafo 3º del artículo 317A de la Ley 906 de 2004, adicionado por la Ley 1908 de 2018.”. 
+(vii) “Dicha disposición prevé que la libertad de los miembros de Grupos Delictivos Organizados y Armados Organizados solo podrá ser solicitada ante los jueces de control de garantías del lugar donde se formuló la imputación, presentó o debe presentarse el escrito de acusación. Sobre el particular, la Sala ha señalado que estas disposiciones legales establecen: …”. 
+(viii) “También ha precisado que los funcionarios competentes para atender, de forma preferente y prioritaria, las audiencias preliminares relacionadas con los delitos cometidos por miembros de un GDO o un GAO son los jueces de control de garantías ambulantes , los cuales, «podrán desplazarse para ejercer sus funciones sin que ello afecte su competencia», de acuerdo con lo previsto en el artículo 26 de la Ley 1908 de 2018.”. 
+(ix) “Es pertinente también indicar que la Corte, en el AP558 del 1º de marzo de 2023, Rad. 63189, al armonizar el contenido de los artículos 307A y 317A de la Ley 906 de 2004 con la atribución especial de competencia fijada señalada, precisó que los jueces con función de garantías ambulantes con competencia territorial en el lugar donde se formuló la imputación o se presentó el escrito de acusación, son los que deben asumir el conocimiento de las audiencias preliminares que versen contra personas respecto de quienes se advierte su pertenencia a un GDO y GAO.”. 
+(x) “Por otro lado, se tiene que la efectiva pertenencia de los procesados a un Grupo Delictivo Organizado o Armado Organizado debe aparecer expresamente reconocida en la imputación o la acusación  -cuando estos actos ya han tenido lugar- para que incidan en la fijación de la competencia y se garantice el debido proceso y defensa de los procesados.”. 
+(xi) “De manera que, resulta de importancia que la Fiscalía precise en la imputación o la acusación, de acuerdo con los hechos jurídicamente relevantes. Si la conducta por la cual llama a juicio al indiciado fue ejecutada como integrante de un grupo delincuencial común o, en su condición de perteneciente a un Grupo Delictivo Organizado; o Grupo Armado Organizado. A partir de esta distinción se tendrá claridad sobre -entre otros aspectos-, la duración de la medida de aseguramiento que se imponga y las causales de libertad.”.
+
+---
+
+# PROVIDENCIA DDP 8282
+
+**Número de Providencia (DDP 8282):** SP2222-2025
+**Radicación (DDP 8282):** 60046
+**Decisión (DDP 8282):** SMS DEL 10.12.2025
+
+**Lista de Temas (DDP 8282):**
+(i) El oficio del contador público. 
+(ii) “De otra parte, los papeles de trabajo, como enseña el artículo 9º de la misma codificación, son insumos que debe utilizar el contador para dejar «constancia de las labores realizadas para emitir su juicio profesional».  Aquellos, prosigue la norma, «son propiedad exclusiva del Contador Público» y pueden ser examinados, entre otros, «por los funcionarios de la Rama Jurisdiccional en los casos previstos en las leyes».”. 
+(iii) “Y los estados financieros, de acuerdo con lo previsto en el artículo 19 del Decreto 2649 de 1993 , «son el medio principal para suministrar información contable a quienes no tienen acceso a los registros de un ente económico. Mediante una tabulación formal de nombres y cantidades de dinero derivados de tales registros, reflejan, a una fecha de corte, la recopilación, clasificación y resumen final de los datos contables».”. 
+(iv) “Los estados financieros certificados, de acuerdo con lo previsto en el artículo 33 de esa disposición, «son… aquellos firmados por el representante legal, por el contador público que los hubiere preparado y por el revisor fiscal, si lo hubiere, dando así testimonio de que han sido fielmente tomados de los libros».”. 
+(v) “La solución del caso pasa por determinar si la hipótesis alternativa propuesta por la defensa, y que se fundó, principalmente, en la experticia contable introducida para rebatir las conclusiones a las que llegó el perito contable de la Fiscalía, muestra un estado de duda razonable en el caso concreto, en punto de determinar si CARLOS JULIO VARGAS CRUZ obró o no de manera dolosa al emitir, como revisor fiscal, el certificado de suficiencia patrimonial con el que la Clínica Revivir IPS Valle de Laboyos se inscribió como prestadora del servicio de salud.”. 
+(vi) “… la incorporación de declaraciones anteriores al juicio oral, está necesariamente supeditada a la indisponibilidad del testigo y solo procede en las hipótesis taxativamente previstas por el legislador ; porque la declaración previa menoscaba el derecho a la confrontación  y el principio de inmediación, que son garantías procesales fundamentales  (cfr., CSJ SP1177 – 2022, entre otras).”. 
+(vii) “La obligación de decir la verdad deriva, en algunos casos, de la delegación que el Estado hace en los particulares de la facultad certificadora de la verdad, en razón a la función o actividad que cumplen o deben cumplir en sociedad, como ocurre, verbigracia, con los médicos, revisores fiscales y administradores de sociedades, quienes, frente a determinadas situaciones, y para ciertos efectos, deben dar fe, con carácter probatorio, de hechos de los cuales han tenido conocimiento en ejercicio de su actividad profesional.”. 
+(viii) “Además, que no se precisara, como sí se hizo en la sentencia, que se trataba de coautoría propia o impropia no incide en el núcleo fáctico que soportó uno y otro acto, mucho menos cuando lo que en verdad resultaba relevante era la manera en que los acusados intervinieron en la ejecución y consumación, e incluso hasta el agotamiento, de los hechos y sus circunstancias. La calificación de impropia o propia podía resultar dogmáticamente relevante, pero en nada afectó la claridad de los sucesos y las circunstancias que los rodearon y así por demás lo entendieron los propios acusados y sus defensores a juzgar por el ejercicio de contradicción que desplegaron en orden a establecer la ajenidad de aquellos en la materialización de los punibles.”.
+
+---
+
+# PROVIDENCIA DDP 8283
+
+**Número de Providencia (DDP 8283):** SP2225-2025
+**Radicación (DDP 8283):** 61968
+**Decisión (DDP 8283):** REVOCA LA CONDENA Y ABSUELVE.
+
+**Lista de Temas (DDP 8283):**
+(i) El prevaricato por acción. 
+(ii) Lo subjetivo del delito de trato. 
+(iii) “Y es que, en otras palabras, proferir una resolución es “tanto como resolver, bien sea mediante una sentencia o un acto o una resolución administrativa, un asunto sometido funcionalmente a su solución”, por lo que, aunque el vocablo en cuestión pueda asociarse al Derecho Administrativo, debe entenderse para “cualquier providencia dictada” , ya que, en lo sustancial, la acción, como acto declarativo, implica: …”. 
+(iv) “Por su parte, el dictamen es una “opinión que, en relación con el punto específico que ha sido sometido a su consideración” . Éste puede ser emitido por un perito dentro de un proceso, pero no se limita a ello de manera exclusiva, pues también puede rendirlo “el Ministerio Público y, a veces, la Contraloría y auditores fiscales” .”. 
+(v) “Ahora bien, para la Corte Constitucional, el vocablo “concepto”, que no estaba presente en la configuración típica del delito de prevaricato por acción prevista en el artículo 149 del Decreto 100 de 1980, ni cuando fue modificado por el artículo 28 de la Ley 190 de 1995, es sinónimo del dictamen, ya que, en la sentencia C-335 de 2008 , definió que: …”. 
+(vi) “Y es que, aunque el defensor de WILMAR GÓMEZ OROZCO reclama que, en realidad, se trata de una solicitud de parte, desplegada en ejercicio del derecho de postulación, desconoce que esta Corporación ha definido que los actos de postulación son realizados por tan solo una de las partes y, para su validez, no requieren de la aprobación del otro sujeto procesal ni el control judicial ordinarios.”. 
+(vii) “No obstante, lo anterior no es suficiente para concluir que debe confirmarse el fallo apelado, pues, más allá de definir que sí emitió un concepto y no un acto de postulación, para que se configure la tipicidad objetiva del delito en cuestión, como se vio, es necesario que la solicitud de preclusión sea producto del capricho o de la arbitrariedad de WILMAR GÓMEZ OROZCO.”. 
+(viii) “No obstante, si las pruebas ofrecidas para sustentar la solicitud de preclusión eran suficientes -o no- para que ésta saliera avante, aquello no pasa de ser una manifestación de la disparidad de opiniones respecto de un determinado punto de derecho e impide confirmar el fallo condenatorio.”.
+
+---
+
+# PROVIDENCIA DDP 8284
+
+**Número de Providencia (DDP 8284):** AP8685-2025
+**Radicación (DDP 8284):** 32805
+
+**Lista de Temas (DDP 8284):**
+(i) “De la discusión en el ámbito judicial colombiano sobre la validez de los procesos de única instancia en contra de aforados constitucionales”. 
+(ii) “Sentencia de la Corte IDH en el caso Arboleda Gómez vs. Colombia”. 
+(iii) “Alcance y limitaciones de la Convención Americana de Derechos Humanos y la jurisprudencia de la Corte Interamericana de Derechos Humanos en el orden jurídico interno”. 
+(iv) “¿La sentencia de 3 de junio de 2024 de la Corte IDH, en el caso Arboleda Gómez vs. Colombia, es obligatorio para esta Corte? ¿De manera automática y sin otra consideración debe conceder y tramitar el mecanismo de impugnación especial para garantizar el principio de doble conformidad, frente a todas las primeras condenas dictadas contra aforados constitucionales desde el año 2000 –o antes, inclusive-? ¿Su alcance se extiende para cualquier otro ciudadano respecto de las emitidas en segunda instancia o al resolverse el recurso de casación?”.
+
+---
+
+# PROVIDENCIA DDP 8285
+
+**Número de Providencia (DDP 8285):** SP2228-2025
+**Radicación (DDP 8285):** 66157
+
+**Lista de Temas (DDP 8285):**
+(i) Impugnación especial en la justicia penal militar. 
+(ii) La prescripción para los servidores públicos por delitos cometidos en ejercicio de sus funciones. 
+(iii) “Dicho incremento también se aplica a los integrantes de la Fuerza Pública, sin diferenciar entre los delitos comunes y los típicamente militares, cuando sean cometidos “en ejercicio de sus funciones, de su cargo o con ocasión de ellos””.  
+(iv) “Según el recurso la vulneración sustancial al debido proceso radica en que la Magistrada del Tribunal Superior Militar y Policial, ponente de la decisión que se impugna, se encontraba impedida para adoptar la decisión por cuanto previamente, el 11 de julio de 2017, en su calidad Fiscal Penal Militar, corrió traslado al Ministerio Público previo a resolver la apelación sobre la cesación de procedimiento, recibió el concepto presentado por ese sujeto procesal y dejó, el 25 de agosto de 2017, una constancia en la que indicó que el asunto se resolvería en el turno asignado en atención a la fecha de ingreso, su prescripción y carga del despacho.”. 
+(v) “La jurisprudencia pacífica de esta Sala ha establecido que el solo hecho de haber actuado como fiscal dentro de proceso no afecta la imparcialidad del funcionario, pues es necesario que con ella haya comprometido su criterio en el asunto de fondo por resolver (CSJ. AP2392-2019, jun,18, rad 55505).”. 
+(vi) “Sobre el particular debe recordarse que en virtud del principio de selección probatoria el fallador no está obligado a hacer mención expresa de cada una de las pruebas incorporadas al proceso ni un examen exhaustivo explícito de todas ellas, sino que basta con que exponga los aspectos fundamentales necesarios y pertinentes para motivar su decisión ...”. 
+(vii) “Adicionalmente, según lo establece el artículo 32 del Reglamento del Régimen Disciplinario para las Fuerzas Militares -Ley 836 de 2003- vigente para la fecha de los hechos, respecto de la oportunidad para el cumplimiento de la orden militar, se tiene que: …”. 
+(viii) “Como lo ha referido la jurisprudencia tanto de la Corte Constitucional -C-540 de 2012 y C-431 de 2004- como de esta Sala “una orden es ilegítima cuando excede los límites de la competencia o conduce manifiestamente a la violación de la Constitución Política, la ley, las normas institucionales o las órdenes legítimas superiores”-CSJ. SP3968-2022, nov. 30, rad. 60522-, situación que no se acredita en el presente caso.”. 
+(ix) Prisión domiciliaria para este caso.
+
+---
+
+# PROVIDENCIA DDP 8286
+
+**Número de Providencia (DDP 8286):** AP8407-2025
+**Radicación (DDP 8286):** 71061
+
+**Lista de Temas (DDP 8286):**
+(i) “Correspondería definir la autoridad competente para conocer de la solicitud de «libertad» o «beneficio de la domiciliaria» presentada por EDWIN DAVID BEJARANO BARRERA y DUVER MAURICIO ROMERO MOGOLLÓN, en tanto se resuelve el recurso de apelación frente al fallo condenatorio, sin embargo, la Sala advierte que carece de competencia para ello.”. 
+(ii) “El numeral 3° del artículo 32 de la Ley 906 de 2004, modificado por el artículo 12 de la Ley 2098 de 2021, señala que la Sala de Casación Penal de la Corte Suprema de Justicia es la encargada de definir la competencia cuando se trate de aforados constitucionales y legales, de tribunales o de juzgados de diferentes distritos.”. 
+(iii) “En el asunto examinado la controversia se suscita entre el Juzgado Promiscuo Municipal de Pasca (Cundinamarca) y la Sala Penal del Tribunal Superior del Distrito Judicial de Cundinamarca y Amazonas, autoridades judiciales del mismo distrito judicial. Esa característica ubica esta actuación por fuera de los escenarios regulados en la norma antes citada.”. 
+(iv) “Dada la categoría y pertenencia a un mismo distrito judicial, la norma aplicable es el inciso 2o del artículo 18 de la Ley 270 de 1996. Allí, se determina que los conflictos que se presenten entre autoridades de igual o diferente categoría y pertenecientes al mismo distrito judicial, serán resueltos por el respectivo Tribunal Superior por conducto de las Salas Mixtas integradas del modo que señale el reglamento interno de cada Corporación.”. 
+(v) “En ese contexto, el caso particular es ajeno a la asignación de competencias de la Sala de Casación Penal de la Corte Suprema de Justicia, debido a que no involucra autoridades pertenecientes a distritos judiciales diferentes. De tal manera, la Sala se abstendrá de decidir y dispondrá la remisión del asunto a la Sala Mixta del Tribunal Superior del Distrito Judicial de Cundinamarca y Amazonas.”. 
+(vi) “La determinación asumida sigue el criterio fijado en la providencia CSJ AP5875-2025, rad. 70189, 3 sept. 2025. Además, guarda consistencia con las decisiones adoptadas en el ámbito constitucional …”.
+
+---
+
+# PROVIDENCIA DDP 8287
+
+**Número de Providencia (DDP 8287):** AHP8671-2025
+**Radicación (DDP 8287):** 71333
+**Decisión (DDP 8287):** SMS DEL 11.12.2025
+
+**Lista de Temas (DDP 8287):**
+(i) “La acción de habeas corpus.”. 
+(ii) “El contexto expuesto permite concluir que no se configura una prolongación o privación ilegal de la libertad, como acertadamente lo señaló la Magistrada de primera instancia. A pesar de ello, el amparo constitucional invocado por la defensa resulta procedente por conducto del hábeas corpus correctivo o preventivo, en la medida en que se evidencia la existencia de una vía de hecho en las condiciones de reclusión de Jhon Héctor Mosquera Lemus.”. 
+(iii) “Esto es así, comoquiera que, a partir del 17 de junio de 2025, debió darse cumplimiento a la restricción de la libertad en la forma en que le fue impuesta a Jhon Héctor Mosquera Lemus por el Juzgado Promiscuo Municipal del Medio Atrato en el proceso n.° 270016001100 -2020 - 00321 00. Es decir, medida de aseguramiento de detención preventiva en la residencia del procesado.”. 
+(iv) “Como este trámite no se ha cumplido, resulta necesaria la intervención del juez constitucional. Máxime que no se tiene noticia alguna de las actuaciones adelantadas por el establecimiento carcelario de La Picota para dar alcance al mandato del juez de control de garantías, pese a las solicitudes elevadas por el apoderado del accionante y al tiempo que ha transcurrido.”. 
+(v) “El panorama descrito impone la aplicación de la figura del hábeas corpus correccional o preventivo a fin de proteger los derechos del accionante al debido proceso y a la dignidad humana, los cuales resultan afectados con la prolongación de la detención en centro carcelario. Lo anterior, pues si bien es cierto que la prisión domiciliaria sigue siendo una medida de restricción de la libertad, en todo caso sus impactos en el privado de la libertad son mucho menos gravosos, en tanto le permite cumplir los objetivos de la medida cautelar de orden personal en el lugar de residencia del afectado.”.
+
+---
+
+# PROVIDENCIA DDP 8288
+
+**Número de Providencia (DDP 8288):** AP8334-2025
+**Radicación (DDP 8288):** 66767
+
+**Lista de Temas (DDP 8288):**
+(i) “Violación directa de la ley sustancial”. 
+(ii) “Ahora, el reparo del recurrente se dirige a que el procesado para el momento de la sentencia, en virtud de la medida preventiva de detención domiciliaria, había permanecido privado de la libertad por el término de ocho (8) meses, los que debían descontarse de la sanción de 100 meses de prisión impuesta y por ello demanda considerar que en definitiva el término que debía descontar en prisión es de 92 meses, inferior a los ocho años que establece el requisito inicial contemplado en el artículo 38B, por lo que si es viable la concesión de este mecanismo. Empero, tal planteamiento carece por completo de asidero, toda vez que de una interpretación literal de la norma, es claro que no hay lugar a considerar el término de la sanción impuesta, ni el tiempo a redimir producto de una medida de aseguramiento, sino que la sentencia se imponga por un delito cuya pena mínima prevista en la ley sea de ocho años de prisión o menos”. 
+(iii) “Además de lo señalado, aunada a la incoherencia que entraña postular la aplicación indebida de normas (56 y 57) y pretender su empleo en el caso, se evidencia también la ausencia de interés para recurrir, pues en el recurso de apelación no se planteó la discusión en torno a la supuesta existencia de ira o dolor o marginalidad, que dicho sea de paso son instituciones autónomas e independientes que sin acierto el defensor equipara como iguales.”. 
+(iv) “Se itera que la sentencia condenatoria es producto de una aceptación preacordada de responsabilidad, por lo que toda la argumentación del profesional del derecho, encaminada a obtener una reducción de la sanción previa y expresamente pactada, no es otra cosa que una retractación velada, del todo inadmisible”.
+
+---
+
+# PROVIDENCIA DDP 8288
+
+**Número de Providencia (DDP 8288):** SP2579-2025
+**Radicación (DDP 8288):** 65193
+**Decisión (DDP 8288):** EN IMPUGNACIÓN ESPECIAL SE REVOCA LA CONDENA DEL TRIBUNAL.
+
+**Lista de Temas (DDP 8288):**
+1 
+(i) “Fundamentos de una sentencia condenatoria”. 
+(ii) “Estructura típica de los delitos de fraude procesal, falsedad ideológica en documento público agravada y falsedad en documento privado.” 
+(iii) “Finalmente, la regla de la experiencia invocada por el Tribunal resulta mal aplicada. La Sala ha señalado que las reglas de la experiencia derivan de patrones de comportamiento generalizados y recurrentes en un contexto social y cultural. Su validez depende de su aplicabilidad universal o alta probabilidad, salvo que existan factores excepcionales que modifiquen el resultado. Por ello, deben basarse en criterios objetivos y verificables, no en apreciaciones subjetivas ni en conjeturas sin respaldo empírico.”. 
+(iv) “En este caso, el Tribunal aplicó la regla de la experiencia según la cual los integrantes de un cierto gremio o quienes se dedican a una determinada profesión saben en qué condiciones pueden ejercer sus actividades y adquirir los correspondientes permisos, autorizaciones o licencias.”.
+
+---
+
+# PROVIDENCIA DDP 8289
+
+**Número de Providencia (DDP 8289):** SP2147-2025
+**Radicación (DDP 8289):** 60684
+**Decisión (DDP 8289):** CASA Y REVOCA LA ABSOLUCIÓN DE SEGUNDO GRADO.
+
+**Lista de Temas (DDP 8289):**
+(i) “La admisibilidad de las declaraciones rendidas por la víctima por fuera del juicio oral”. 
+(ii) “Aunque es cierto que el video no pudo ser reproducido en el juicio, también lo es que, ante esa eventualidad, la Fiscalía optó por incorporar el informe donde estaban contenidos los aspectos más importantes de la entrevista rendida por la víctima. Bajo el entendido de que ese informe había sido solicitado en la audiencia preparatoria, en el juicio oral se accedió a la pretensión de la Fiscalía de incorporarlo como prueba, con plenas garantías para la defensa, ya que tuvo la oportunidad de oponerse a esa solicitud y cuestionar la respectiva decisión.”. 
+(iii) “A la luz de lo anterior, la decisión del Tribunal sobre este punto resulta equivocada, por las siguientes razones: 
+(i) para cuando se realizó el juicio, ya la jurisprudencia se había referido a la necesidad de brindar una especial protección a las víctimas de abuso sexual infantil, lo que incluye la flexibilización de las reglas sobre la incorporación de declaraciones anteriores al juicio a título de prueba de referencia; 
+(ii) además, y principalmente, con la Ley 1652 de 2013, vigente para cuando ocurrieron los hechos, se dispuso que la entrevista debidamente diligenciada puede ser incorporada como prueba de referencia, lo que no está supeditado a la disponibilidad de la víctima como testigo en el juicio; y 
+(iii) en este caso se presentó un inconveniente técnico para reproducir el respectivo video, que fue superado gracias a la existencia de un informe que contenía los aspectos más relevantes de la entrevista, documento que la defensa pudo confrontar ampliamente, además de las posibilidades de impugnar al testigo con el cual fue incorporado, tal y como se acaba de explicar.”. 
+(iv) “La teleología y reglamentación de la impugnación de la credibilidad de testigos en la Ley 906 de 2004.”. 
+(v) La perspectiva de género y la perspectiva etaria.
+
+---
+
+# PROVIDENCIA DDP 8290
+
+**Número de Providencia (DDP 8290):** AP8302-2025
+**Radicación (DDP 8290):** 71098
+
+**Lista de Temas (DDP 8290):**
+(i) Definición de competencia. 
+(ii) “Para definir la controversia, es necesario acudir a los postulados del artículo 52 (conexidad) de la Ley 906 de 2004, y no del canon 43 ibidem (competencia por el lugar donde ocurrió el delito).”. 
+(iii) “Allí, se refiere que la competencia para conocer de delitos conexos, en principio, le corresponde al juez de mayor jerarquía, pero si los funcionarios enfrentados son del mismo nivel, el factor determinante será el territorial, de forma excluyente y preferente, en el siguiente orden: i) donde se haya cometido el delito más grave, ii) donde se haya realizado el mayor número de delitos, iii) donde se haya producido la primera captura o iv) donde se haya formulado la primera imputación.”. 
+(iv) “Sobre el particular, en la decisión CSJ AP, 19 jun. 2013, rad. 41532, la Sala señaló: …”. 
+(v) “De conformidad con la reseña jurisprudencial y el art. 51 de la Ley 906 de 2004, la conexidad se predica, entre otros casos, cuando se imputa: …”. 
+(vi) La competencia funcional. 
+(vii) Consumación del concierto para delinquir.
+
+---
+
+# PROVIDENCIA DDP 8291
+
+**Número de Providencia (DDP 8291):** SP2149-2025
+**Radicación (DDP 8291):** 65968
+
+**Lista de Temas (DDP 8291):**
+(i) “De conformidad con el cargo propuesto en la demanda, el problema jurídico central a resolver, consiste en determinar si en el presente asunto en el que los hechos tuvieron ocurrencia el 26 de noviembre de 2021 en la ciudad de Bogotá, adelantado bajo la cuerda procesal de la Ley 522 de 1999, le son aplicables, por favorabilidad, las normas que regulan el instituto de la prescripción de la acción penal para el delito de Deserción contenidas en la Ley 1407 de 2010 o, por el contrario, rigen aquellas contempladas en los artículos 83 y 86 del Código Penal Militar de 1999.”. 
+(ii) “Sin embargo, verifica la Sala que la acción penal prescribió, porque la sentencia no adquirió ejecutoria antes del 01 de febrero de 2024. En efecto, después de la adopción de la sentencia de segunda instancia, transcurrió el tiempo que se tomó la notificación del fallo de segunda instancia, el de los traslados – tanto para interponer el recurso de casación como para presentar la correspondiente demanda – y el de envío de la actuación a la Corte Suprema de Justicia.  Así, allegado el expediente a esta Corporación, el proceso es repartido al Magistrado ponente hasta el 12 de marzo de 2024, según la correspondiente acta, esto es, un (1) mes y seis (6) días después de haber operado el fenómeno prescriptivo.”. 
+(iii) “Es de aclarar, que el fallo de segundo grado no se casará, como quiera que fue adoptado antes de la operancia de la prescripción, conforme fue explicado en precedencia, lo que quiere decir que aquella se encuentra conforme a derecho.”.
+
+---
+
+# PROVIDENCIA DDP 8292
+
+**Número de Providencia (DDP 8292):** AP8404-2025
+**Radicación (DDP 8292):** 63380
+**Decisión (DDP 8292):** SMS DEL 12.12.2025
+
+**Lista de Temas (DDP 8292):**
+(i) “Sobre la oportunidad para interponer y sustentar el recurso extraordinario de casación”. 
+(ii) “Si bien la Magistrada ponente indicó, en el auto con el que remitió el expediente a la Corte (de 27 de febrero de 2023) , que el recurso fue presentado de forma oportuna, lo cierto es que los términos procesales se encuentran fijados en la ley, como la Sala acaba de reiterar (ver supra, párr. n.° 10). De tal manera, las partes e intervinientes tienen el deber de verificar las fechas, por lo que los errores de los funcionarios judiciales no justifican una actuación extemporánea.”. 
+(iii) “Además, ese yerro no tuvo la virtud de incidir en la interposición extemporánea, por cuanto fue posterior al vencimiento del término para sustentar el recurso (que venció el 22 de febrero de 2023). Así, no habría lugar a inaplicar las reglas generales para garantizar los principios de buena fe y confianza legítima.”. 
+(iv) “Debido a lo anterior, y de acuerdo con los principios de preclusión de los actos procesales y de economía procesal (el Tribunal debió denegarlo; Cfr. CSJ AP4503-2025 y AP6348-2025), la Sala declarará desierto, por extemporáneo, el recurso extraordinario de casación interpuesto por el defensor de JUAN CARLOS CIFUENTES MARÍN. En consecuencia, se abstendrá de analizar la admisibilidad de la demanda y devolverá el expediente al despacho de origen.”.
+
+---
+
+# PROVIDENCIA DDP 8293
+
+**Número de Providencia (DDP 8293):** STP19569-2025
+**Radicación (DDP 8293):** 150168
+
+**Lista de Temas (DDP 8293):**
+(i) La tutela contra providencia judicial. 
+(ii) “De la reparación integral, como causal de la extinción de la acción penal.”. 
+(iii) “WISTON CASAS ROMERO, por medio de apoderado, pretende que la Corte deje sin efectos los autos del 1º de septiembre y 17 de octubre de 2025, por medio de los cuales el Juzgado 1º de Ejecución de Penas de Valledupar y la Sala Penal del Tribunal Superior de esa ciudad no declararon la extinción de la sanción penal en el radicado No. 20178-60-01-233-2023-00002-00, en aplicación, por favorabilidad, de los artículos 3º y 4º de la Ley 2477 de 2025.”. 
+(iv) “La Corte observa que las autoridades judiciales accionadas no analizaron en debida forma la aplicación, por favorabilidad, de la Ley 2477 de 2025 en fase de ejecución de penas. Lo anterior, por cuanto hay lugar a la aplicación favorable de esa norma en aquellos casos en los que concurren los presupuestos fijados en ella, así ya estén en la fase de ejecución de la pena. Es decir, en aquellos eventos en los que, de haber estado vigente dicha disposición normativa durante el trámite del proceso y de cumplirse los restantes requisitos allí establecidos, habría operado la extinción de la acción penal. En eso consiste, precisamente, la aplicación retroactiva de la ley penal favorable.”. 
+(v) “No tiene ningún sentido que, respecto de una persona en quien concurren los presupuestos fijados en la nueva normatividad, pero cuya sentencia se ejecutorió antes de su entrada en vigor, se afirme que no procede su aplicación bajo el supuesto de que ahora ya no se trata de la extinción de la acción penal, sino de la extinción de la pena.”.
+
+---
+
+# PROVIDENCIA DDP 8294
+
+**Número de Providencia (DDP 8294):** STP18665-2025
+**Radicación (DDP 8294):** 149603
+
+**Lista de Temas (DDP 8294):**
+(i) “De la aparente falta de resolución de la solicitud de prisión domiciliaria por enfermedad grave.”. 
+(ii) “En este contexto resulta imperioso concluir que como la actuación judicial en punto al tema debatido está en curso y es en ese escenario procesal donde debe alegar sus derechos y sustentar los fundamentos respectivos en procura de sacar avante sus pretensiones, la que, se itera, está a la espera de ser definida por la autoridad judicial accionada, y contra la correspondiente decisión, en caso de serle desfavorable, podrá activar los recursos ordinarios dispuestos en la ley, desde tal perspectiva deviene impróspera la acción tuitiva.”. 
+(iii) “A su vez, la postulación debe ser resuelta en el trámite ordinario respetándose el sistema de turnos aplicado por tal autoridad judicial diseñado, precisamente, para resolver el cúmulo de postulaciones pendientes de estudio acorde con el orden de llegada al despacho, en virtud de la alta cogestión por la que actualmente atraviesan, situación que, entre otras cosas, es notorio en este distrito judicial para los juzgados de esa especialidad.”. 
+(iv) “Sobre dicha pretensión, la Sala encuentra necesario recordar que la acción de tutela no tiene connotación alternativa o supletoria, es decir, su ejercicio no puede darse en forma paralela a los medios de defensa judiciales comunes, ni tampoco se instituyó como último recurso al cual se pueda acudir cuando aquéllos no se ejercitan o, habiéndolo hecho, resultan desfavorables al interesado.”. 
+(v) “En tal sentido, es claro que la parte demandante no demostró haber presentado solicitud alguna ante las autoridades demandadas, ni obra documento alguno que permita inferir que las accionadas conocen la solicitud en cuestión, siendo que «quien pretende la protección judicial de un derecho fundamental debe demostrar los supuestos fácticos en que se funda su pretensión, como quiera que es razonable sostener que quien conoce la manera exacta como se presentan los hechos y las consecuencias de los mismos, es quien padece el daño o la amenaza de afectación» (sentencia CC T-835/00).”. 
+(vi) “Estudiar la viabilidad de un traslado bajo las premisas alegadas por el actor sin que medie un estudio previo por parte de la Junta Asesora de Traslados, impide contar con la necesaria valoración de aspectos relevantes concebidos dentro del marco propio del Sistema Penitenciario y Carcelario, tales como: el Nivel de seguridad de la Persona Privada de la Libertad vs. el nivel de Seguridad que tiene el Establecimiento de Reclusión al que solicita traslado; el Índice de hacinamiento del Establecimiento al cual se solicita traslado; el perfil del recluso, referido al perfil socio-jurídico de la persona; las condiciones de seguridad, o si esta persona genera un riesgo para el resto de la población reclusa.”.
+
+---
+
+# PROVIDENCIA DDP 8295
+
+**Número de Providencia (DDP 8295):** SENTENCIAT-227 DE 2025
+**Radicación (DDP 8295):** No especificado
+
+**Lista de Temas (DDP 8295):**
+(i) Violencia contra la mujer por razón de género. 
+(ii) La justicia con perspectiva de género. 
+(iii) “la tutela de protección inversa se activa, excepcionalmente, cuando el juez constitucional advierte que la persona accionada podría ser, a su vez, sujeto de una posible vulneración a sus derechos, en un contexto de discriminación estructural que demanda una especial atención de parte del juez constitucional. Esta particular situación se configura respecto de la profesora (accionada)... la profesora advirtió en el trámite de la acción de tutela, y lo reiteró luego ante la Corte Constitucional, que sufrió conductas que vulneraron sus derechos por haber defendido y apoyado a las estudiantes que presentaron la denuncia de acoso.”. 
+(iv) La libertad de expresión y la violencia contra la mujer. 
+(v) El archivo de la indagación preliminar. 
+(vi) El menor víctima en el proceso penal.
+
+---
+
+# PROVIDENCIA DDP 8296
+
+**Número de Providencia (DDP 8296):** AUTO 1855 DE 2025
+**Radicación (DDP 8296):** No especificado
+
+**Lista de Temas (DDP 8296):**
+La “Corte ordena adoptar medidas sanitarias urgentes en establecimientos carcelarios, penitenciarios y centros de detención transitoria de Antioquia y Santander por brotes de tuberculosis”.
+
+---
+
+# PROVIDENCIA DDP 8297
+
+**Número de Providencia (DDP 8297):** STP 18659-2025
+**Radicación (DDP 8297):** 150241
+**Decisión (DDP 8297):** SMS DEL 15.12.2025
+
+**Lista de Temas (DDP 8297):**
+(i) “Dispone el artículo 86 de la Constitución Política, y así lo reitera el artículo 1º del Decreto 2591 de 1991, que toda persona tendrá acción de tutela para reclamar ante los jueces la protección inmediata de sus derechos fundamentales, cuando quiera que estos resulten vulnerados o amenazados por acción u omisión de cualquier autoridad pública o de los particulares en los casos que la ley contempla; amparo que solo procederá si el afectado no dispone de otro medio de defensa judicial, salvo que se utilice como mecanismo transitorio para evitar un perjuicio irremediable.”. 
+(ii) “En sede de impugnación, el juez constitucional debe verificar el contenido de la misma, en contraste con el acervo probatorio y el fallo, tanto que, si a su juicio la sentencia carece de fundamento, procederá a revocarla o de lo contrario la confirmará, tal como lo dispone el artículo 32 del Decreto 2591 de 1991, por el cual se regula el trámite constitucional.”. 
+(iii) “El anterior recuento, permite advertir que asiste razón a la Sala Penal del Tribunal Superior del Distrito Judicial de Medellín, al declarar improcedente la demanda de tutela, tras considerar que se incumplió el requisito de subsidiariedad, por cuanto, en efecto contra el auto proferido el 25 de septiembre de 2025, por medio del cual, el Juzgado 2° de Ejecución de Penas y Medidas de Seguridad de la misma ciudad, negó «la readecuación de las redenciones de pena por estudio que depreca, por no cumplir los requisitos que señala el artículo 19 de la Ley 2466 del 25 de junio de 2025», no se interpuso recurso alguno.”. 
+(iv) “De tal modo, se concluye que, aun cuando contaba con la posibilidad de ejercer el derecho de contradicción y oponerse a lo resuelto por la autoridad judicial en auto del 25 de septiembre de 2025, DAIRO DE JESÚS OSORIO PARRA asumió una actitud pasiva y no interpuso en debida forma los recursos ordinarios que procedían; con ello, permitió que la decisión que considera adversa a sus intereses cobrara firmeza. En consecuencia, resulta improcedente ahora acudir de manera directa a la jurisdicción constitucional, desconociendo su carácter subsidiario.”.
+
+---
+
+# PROVIDENCIA DDP 8298
+
+**Número de Providencia (DDP 8298):** No especificado
+**Radicación (DDP 8298):** CUI 76248-60-00-173-2023-00047-01 (
+**Decisión (DDP 8298):** AC-739-25).
+
+**Lista de Temas (DDP 8298):**
+(i) Los impedimentos. 
+(ii) La “intervención del juez en el proceso”. 
+(iii) “La Corte Suprema, en otras oportunidades, ha considerado que la emisión de una sentencia producto de un preacuerdo no constituye, por sí misma, una causal de impedimento que deba aplicarse automáticamente …”. 
+(iv) “En tratándose de impedimento, es necesario que en cada caso particular y concreto los funcionarios judiciales (…) expliquen cuáles son las razones por las cuales su imparcialidad, su ecuanimidad, su independencia o su equilibro podrían afectarse frente a cada uno de los implicados, por el hecho de haber participado ya en el proceso. El género de argumentación que se exige, incluye especificar las circunstancias o condiciones en que se produjo la participación del funcionario judicial en el proceso original o en alguno de los procesos derivados por la ruptura de la unidad procesal; y si la actividad del Juez (…) se extendió ya a la valoración de elementos probatorios o de información susceptible de convertirse en prueba, se precisa indicar cómo y de qué manera las apreciaciones anteriores inciden en el ánimo del juzgador al conocer el asunto en ocasiones posteriores, frente a cada uno de los implicados o situaciones concretas por resolver”.”.
+
+---
+
+# PROVIDENCIA DDP 8299
+
+**Número de Providencia (DDP 8299):** No especificado
+**Radicación (DDP 8299):** CUI 110016000050202160170 00 (119
+**Decisión (DDP 8299):** 23).
+
+**Lista de Temas (DDP 8299):**
+(i) La Fiscalía como víctima. 
+(ii) “Del conocimiento para proferir una sentencia condenatoria”. 
+(iii) Prevaricato por acción. 
+(iv) Individualización de la pena para este caso. 
+(v) “… el llamado delito continuado, instituido en su forma de punición por el parágrafo del artículo 31 del C.P., corresponde a una ficción jurídica que busca delimitar en un solo objeto de persecución penal lo que ontológicamente corresponde a varias y separables ejecuciones punibles que se ligan, en calidad de factor común aglutinante, por el propósito que desde el inicio animó al autor (CSJ AP, 28 may. 2014, rad. 43803).”. 
+(vi) “el delito continuado es aquel en el que se produce una pluralidad de acciones u omisiones de hechos típicos diferenciados que no precisan ser singularizados en su exacta dimensión, las cuales se desarrollan con un dolo unitario, no renovado, con un planteamiento único que implica la unidad de resolución y de propósito criminal, es decir, un dolo global o de conjunto como consecuencia de la unidad de intención, y que fácticamente se caracterizan por la homogeneidad del modus operandi en las diversas acciones, lo que significa la uniformidad entre las técnicas operativas desplegadas o las modalidades delictivas puestas a la contribución del fin ilícito, siendo preciso una homogeneidad normativa, lo que impone que la continuidad delictiva requiera que el autor conculque preceptos penales iguales o semejantes, que tengan como substrato la misma norma y que ésta tutele el mismo bien jurídico; y se exige la identidad de sujeto activo en tanto que el dolo unitario requiere un mismo portador.”.
+
+---
+
+# PROVIDENCIA DDP 8300
+
+**Número de Providencia (DDP 8300):** No especificado
+**Radicación (DDP 8300):** CUI 76001-60-00-193-2021-09442-01 (
+**Decisión (DDP 8300):** AC-716-25).
+
+**Lista de Temas (DDP 8300):**
+(i) Impedimento para “conocer del incidente de reparación integral”. 
+(ii) “Sobre la intervención como juez de control de garantías.”. 
+(iii) “Adicionalmente, la Corte Suprema, en decisión CSJ SP1604, 19 jun. 2024 rad. 56753, precisó que el incidente es un mecanismo independiente al proceso penal, puesto que lo que se discute es la responsabilidad civil del condenado, respecto de los daños ocasionados con el injusto, como ya se había expuesto en la decisión CSJ AP2428, 12 may. 2015, rad. 42527, entre otras tantas.”. 
+(iv) “Esto quiere decir que las reglas procesales aplicables, se insiste, en lo que no se encuentre regulado l capítulo IV del título II de la Ley 906 de 2004, son las del Código General del Proceso, las cuales fueron creadas para los procesos de responsabilidad civil.”. 
+(v) “En similares términos, a pesar de que resulta discutiblemente aplicable, es preciso señalar que, sobre la causal de que trata el numeral 13 del artículo 56 del Código de Procedimiento Penal (que el juez haya ejercido el control de garantías), la Corte Suprema de Justicia, mediante decisión CSJ AP, 15 mar. 2023, rad. 63280, señaló que el fundamento de la causal de impedimento es que el funcionario judicial no tuviese aproximación frente a los temas que serán objeto de debate en el juicio oral.”. 
+(vi) “Con eso mente, teniendo en cuenta que, según la Corte Suprema de Justicia (CSJ SP1604, 19 jun. 2024, rad. 56753 y CSJ AP678, 8 mar. 2023, rad. 54242), el incidente de reparación integral tiene como propósito la definición del “la ocurrencia del daño y su estimación pecuniaria, más no su fuente, puesto que, en la sentencia ya se declaró la comisión del delito y la responsabilidad penal del procesado”, los eventuales medios de prueba con los que haya tenido contacto (que no expuso en su solicitud) no tienen relación con el objeto del trámite incidental, sino de la responsabilidad de los procesados, problema jurídico ya culminado a través de la sentencia: …”.
+
+---
+
+# PROVIDENCIA DDP 8301
+
+**Número de Providencia (DDP 8301):** No especificado
+**Radicación (DDP 8301):** CUI 76-147-60-00170-2024-01146-01 (
+**Decisión (DDP 8301):** AC-507-25).
+
+**Lista de Temas (DDP 8301):**
+(i) “Sobre el control judicial de la imputación o la acusación.”. 
+(ii) “Efectivamente, la Corte Suprema de Justicia, en la decisión CSJ AP3382, 28 may. 2025, rad. 60721, precisó que los jueces están llamados a efectuar un control “sobre la claridad y concreción de los hechos” y, excepcionalmente, sobre la calificación jurídica atribuida: …”. 
+(iii) “En conclusión, en la imputación y la acusación, el control judicial es más amplio respecto de los hechos (en cuanto a su claridad, comprensión y completitud) y más restrictivo sobre la calificación jurídica o el juicio de tipicidad, pues es procedente solo en casos evidentes. Además, todavía no se realiza una valoración de la suficiencia probatoria, por lo que no podría, en esa instancia, determinar si se cumple con el estándar probatorio para imputar o acusar, a diferencia de lo que ocurre en otros escenarios, como la sentencia anticipada, la sentencia ordinaria, la preclusión y la medida de aseguramiento, por ejemplo.”. 
+(iv) “Entonces, a pesar de que es posible, en el marco de un preacuerdo, por ejemplo, evaluar las pruebas aportadas, la invalidación de un acto de negociación debe obedecer a una manifiesta discordancia entre los hechos atribuidos -y los demostrados- y el juicio de tipicidad. Si eso no ocurre, sería una inadecuada intromisión a las facultades del ente acusador, quien está regido por los principios de objetividad y discrecionalidad reglada.”.
+
+---
+
+# PROVIDENCIA DDP 8302
+
+**Número de Providencia (DDP 8302):** No especificado
+**Radicación (DDP 8302):** CUI 11001-60-00-192-2017-03311-01 (
+**Decisión (DDP 8302):** AC-535-25). SMS DEL 16.12.2025
+
+**Lista de Temas (DDP 8302):**
+(i) “Sobre el permiso administrativo de hasta setenta y dos horas”. 
+(ii) “Entre tanto, tiene razón el juzgado de primera instancia en que se debe verificar el requisito objetivo previsto en el artículo 199 numeral 8 de la ley 1048 de 2006, el cual señala la exclusión de beneficios para delitos cometidos contra niños, niñas y adolescentes, entre ellos, para el homicidio, por el cual fue sancionado el apelante.”. 
+(iii) “Sobre el particular, la Corte Suprema de Justicia, en un caso similar, concluyó que no procede avalar el permiso administrativo de 72 por la prohibición expresa del artículo mencionado.”. 
+(iv) “En efecto, de acuerdo con el artículo 146 de la Ley 65 de 1993, el permiso objeto de apelación es un beneficio administrativo, el cual está excluido para algunos delitos, por expresa prohibición legal, incluido, el homicidio cometido contra niñas, niños y adolescentes, según el numeral 8 del artículo 199 del código de infancia y la adolescencia: …”.
+
+---
+
+# PROVIDENCIA DDP 8303
+
+**Número de Providencia (DDP 8303):** SP2181-2025
+**Radicación (DDP 8303):** 67841
+
+**Lista de Temas (DDP 8303):**
+(i) “Errores de hecho por violación indirecta de la ley”. 
+(ii) “La Sala ha reiterado que el error de hecho por falso raciocinio se configura cuando el fallador, pese a haber apreciado la prueba en su integridad, la valora desconociendo las reglas del razonamiento probatorio. En consecuencia, quien alega esta clase de yerro debe identificar el medio de prueba o la inferencia en que recayó el error; las reglas de la lógica, de la experiencia y de la ciencia desconocidas por el juzgador, y explicar cómo su observancia habría evitado la conclusión equivocada. Además, cualquier error invocado en casación debe ser trascendente; esto es, de tal entidad que su corrección produzca una decisión sustancialmente diversa.”. 
+(iii) “Es sabido que una declaración corregida y corroborada puede ser mucho más confiable que una mentira sostenida bajo coacción. Desatender un testimonio presencial auténtico por meros prejuicios temporales supone desconocer tanto la lógica –que indica que el contexto de la declaración afecta su contenido– como las reglas de la experiencia en contextos de violencia –en los cuales las víctimas y testigos suelen callar hasta sentirse a salvo–.”. 
+(iv) “Por el contrario, cuando varios testigos incurren en omisiones o discrepancias concertadas respecto de hechos centrales, corresponde al juez inferir lógicamente que existe un ocultamiento intencional y valorar esa actitud en contra de la credibilidad de sus dichos. El Tribunal hizo caso omiso de este aspecto y adoptó una visión ingenua o complaciente de unas declaraciones claramente sospechosas. Al normalizar las inconsistencias graves y tratar las mentiras concertadas como simples “percepciones diferentes”, el fallador de segundo grado se apartó de las inferencias lógicas que emanaban del acervo probatorio.”. 
+(v) “Verificados los yerros de hecho por falso raciocinio, le corresponde a la Corte analizar su trascendencia; es decir, determinar si, al enmendar tales vicios, el sentido del fallo debe cambiar. Según el artículo 232.2 de la Ley 600 de 2000, solo es procedente proferir una sentencia condenatoria en casación si, eliminados los errores de apreciación probatoria, las pruebas conducen a la certeza sobre la existencia del delito y la responsabilidad penal de los procesados. En caso contrario, debería mantenerse la absolución.”. 
+(vi) “Bajo esa premisa, la pena accesoria de inhabilitación no podía ser fijada en igual lapso que la prisión, porque excedía en 12 años y 5 meses el máximo legal permitido. En ese orden, el juez de primera instancia vulneró el principio de legalidad al imponer una sanción fuera del marco legal.”.
+
+---
+
+# PROVIDENCIA DDP 8304
+
+**Número de Providencia (DDP 8304):** AEP144-2025
+**Radicación (DDP 8304):** 00352
+**Decisión (DDP 8304):** CON SALVAMENTO DE VOTO.
+
+**Lista de Temas (DDP 8304):**
+(i) “Aunque en la actualidad el imputado no ostenta el rango de general en servicio activo, lo que lo despojaría en principio de su condición de aforado, por recaer este trámite sobre hechos relacionados con las funciones desempeñadas por él, la Sala es competente para conocer de estas diligencias.”. 
+(ii) “De los preacuerdos y negociaciones”. 
+(iii) “El rol del juez de conocimiento en la verificación de los preacuerdos”. 
+(iv) “Del delito de interés indebido en la celebración de contratos”. 
+(v) “Del delito de peculado por apropiación”. 
+(vi) “De la legalidad de los términos pactados en el preacuerdo”.
+
+---
+
+# PROVIDENCIA DDP 8305
+
+**Número de Providencia (DDP 8305):** CP297-2025
+**Radicación (DDP 8305):** 70505
+
+**Lista de Temas (DDP 8305):**
+Concepto para extradición de un “ciudadano colombo-ruso, solicitado por el Gobierno de la República de Lituania.”.
+
+---
+
+# PROVIDENCIA DDP 8306
+
+**Número de Providencia (DDP 8306):** AHP9039-2025
+**Radicación (DDP 8306):** 71419
+
+**Lista de Temas (DDP 8306):**
+(i) “El artículo 30 de la Constitución Política1 consagra el habeas corpus en favor de la persona que privada de su libertad en virtud de decisión judicial, cree estarlo ilegalmente. La Ley Estatutaria 1095 de 20062, a su vez, lo define como derecho fundamental y acción constitucional, que tutela la libertad personal de quien es privado de ella con violación de las garantías constitucionales o legales, o cuando esta se prolonga ilegalmente.”. 
+(ii) “El habeas corpus en su carácter reparador, persigue restablecer la libertad personal de quien ha sido privado de esta sin mandato judicial (principio de reserva judicial), salvo la hipótesis de la captura en flagrancia prevista en la Carta Política3 y desarrollada legalmente en el artículo 301 de la Ley 906 de 2004 modificado por el artículo 57 de la Ley 1453 de 2011, o la del que se encuentra detenido en virtud de decisión judicial pero se prolonga sin justificación legal.”. 
+(iii) “En el presente asunto, Daniel Hernández Ossa invoca la acción de habeas corpus alegando que la privación de su libertad por cuenta del proceso 050016000000202200660 se ha tornado en ilícita por cuanto, en su sentir, en estos momentos ya cumplió con la totalidad de la pena que le fuera impuesta por el Juzgado Segundo Penal del Circuito Especializado de Medellín en sentencia del 7 de septiembre de 2022, donde fue declarado penalmente responsable por la comisión del delito de concierto para delinquir agravado, imponiéndole una sanción de 54 meses de prisión.”. 
+(iv) “Visto el anterior contexto, evidente resulta que el actor, de manera libre, consciente y voluntaria, dejó vencer la oportunidad procesal que le fue habilitada con el objeto de ejercer su derecho de defensa y controvertir la providencia por cuya virtud le fue negada su solicitud de libertad por pena cumplida.”. 
+(v) “En efecto, si lo deseado por el accionante era cuestionar lo resuelto por el Juez Décimo de Ejecución de Penas y Medidas de Seguridad de Medellín, lo correcto hubiera sido que acudiera al uso de los recursos de reposición y, en subsidio, apelación, para de ese modo provocar de los jueces naturales, primero una reevaluación del asunto por parte del A quo y, segundo un análisis de lo resuelto a cargo del juez de segundo grado.”. 
+(vi) “Bajo ese contexto y, teniendo en cuenta que ello no ocurrió, pertinente es decir que el actor se equivocó al acudir en uso de la acción de habeas corpus para buscar revertir lo resuelto por la juez vigía, pues con tal proceder, el accionante está desconociendo la finalidad de dicho instituto, el cual no es otro distinto que el de asegurar la salvaguarda del derecho de libertad, mas no el de servir como recurso en contra de providencias donde se haya resuelto sobre esa temática.”.
+
+---
+
+# PROVIDENCIA DDP 8307
+
+**Número de Providencia (DDP 8307):** AP8502-2025
+**Radicación (DDP 8307):** 63383
+**Decisión (DDP 8307):** SMS DEL 17.12.2025
+
+**Lista de Temas (DDP 8307):**
+(i) “En el caso bajo examen, lo primero que debe clarificarse es que si bien la demanda formalmente contiene dos cargos, el fundamento de cada uno de ellos es el mismo: que las instancias mal interpretaron el contenido normativo del artículo 454 de la Ley 599 de 2000, en la medida en que condenaron a LÓPEZ SABOGAL por el delito de fraude a resolución judicial o administrativa de policía, sin demostrar que la sustracción al cumplimiento de la obligación impuesta por el Inspector de Policía obedeció a una conducta engañosa, como resultaba imperativo para superar el juicio de tipicidad y acreditar la antijuridicidad material de la conducta.”. 
+(ii) “Baste recordar, como de antaño lo ha hecho la Corte, que el fraude se presenta cuando el incumplimiento no obedece a la imposibilidad material o jurídica de satisfacer la orden judicial, sino a negligencia, artificios, argucias, mentiras, engaños, etc., a través de los cuales se desacata una orden legítima que se está obligado a cumplir y por ello se incurre en el comportamiento que se debe reprimir penalmente.”. 
+(iii) “Así las cosas, la Corte concluye que, no es este un evento en donde se verifique atípica la conducta desplegada por LÓPEZ SABOGAL, se itera, por cuanto la omisión en cumplir con el mandato administrativo operó por el camino de un comportamiento que pudo estimarse engañoso o mentiroso, lo cual descarta que únicamente se haya acreditado la actividad contraria a lo exigido, sin el cumplimiento de las exigencias normativas del tipo objetivo del punible de fraude a resolución judicial o administrativa.”. 
+(iv) “La querella policiva por perturbación a la posesión está encaminada a que la autoridad policiva adopte medidas tendientes a proteger el derecho que se reclama y que se tomen las medidas correctivas respecto del comportamiento contrario a la convivencia.”. 
+(v) “La perturbación a la posesión y mera tenencia se protege mediante el proceso verbal abreviado reglamentado en el artículo 77 de la Ley 1801 de 2016. De acuerdo con dicha normatividad, toda persona a quien se hubiere perturbado, sin legítimo derecho u obstaculizado el libre ejercicio a la posesión o al domicilio, podrá pedir por sí o por medio de apoderado, debidamente constituido, mediante querella ante la respectiva autoridad competente, la protección del derecho consagrado en la ley.”. 
+(vi) “En este orden de ideas, la querella civil de policía lo que busca es dar una medida de protección a esos derechos debidamente constituidos bajo el procedimiento establecido en la normatividad vigente en materia policiva, esto es, la Ley 1801 de 2016, Código Nacional de Policía.”.
+
+---
+
+# PROVIDENCIA DDP 8308
+
+**Número de Providencia (DDP 8308):** AP8298–2025
+**Radicación (DDP 8308):** 63929
+
+**Lista de Temas (DDP 8308):**
+(i) “Amplia y reiteradamente la Sala de Casación Penal ha enfatizado en que el error de hecho por falso raciocinio corresponde al manifiesto desconocimiento de las reglas de la sana crítica en el proceso de valoración de la prueba sobre la cual se ha fundado la sentencia, es decir, el juez incurre en un yerro protuberante en el proceso inferencial mediante el cual fija el mérito probatorio, por la desatención de los parámetros que garantizan la persuasión racional.”. 
+(ii) “Por ende, la sustentación de tal yerro no corresponde a la elaboración de un escrito que, como acontece en este asunto, se percibe desprovisto del cumplimiento cabal de los mínimos argumentativos exigidos para su correcta aducción, pues, es necesario que el casacionista indique, en concreto, 
+(i) lo que dice de manera objetiva el específico medio probatorio; 
+(ii) qué se infirió de él en la sentencia atacada; 
+(iii) cuál fue el mérito persuasivo otorgado; 
+(iv) el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en el fallo, debiendo enseñar su consideración correcta; y 
+(v) la trascendencia del error, expresando con claridad cuál debe ser la inferencia adecuada de la prueba, con la indeclinable obligación de acreditar, a través del examen conjunto de los medios suasorios, que la enmienda del yerro daría lugar a una declaración de derecho esencialmente diversa y opuesta a la criticada.”. 
+(iii) “Nótese que el recurrente se limitó a indicar que “en la cama matrimonial, lógicamente pernoctan los cónyuges”, lo que, sumado al estado de embriaguez de JAIME LOZANO RUEDA, la hora en que ocurrieron los hechos y la oscuridad del recinto donde los mismos se desarrollaron, produjo que el acusado acariciara la menor víctima, en vez de hacerlo con su compañera sentimental, para justificarse en un error de tipo.”.
+
+---
+
+# PROVIDENCIA DDP 8309
+
+**Número de Providencia (DDP 8309):** AP8297-2025
+**Radicación (DDP 8309):** 62938
+
+**Lista de Temas (DDP 8309):**
+(i) “Ahora bien, entiéndase como violación directa de la ley sustancial, la incorrección que se presenta cuando a partir de la ponderación de los hechos objeto de juzgamiento legal, debida  y oportunamente acreditados dentro de la actuación, los falladores dejan de aplicar la disposición que se ocupa de la situación en concreto, en cuanto, yerran acerca de su existencia –falta de aplicación o exclusión evidente–, realizan una equívoca adecuación de los hechos probados a los supuestos que contempla el precepto –aplicación indebida–, o le atribuyen a la norma un sentido que no tiene, o le asignan efectos diversos o contrarios a su contenido –interpretación errónea–.”. 
+(ii) “En tal caso, cualquiera sea la modalidad de violación directa de la ley sustancial, el yerro de los juzgadores recae necesaria e inmediatamente sobre la normatividad, circunstancia que traslada el debate a un ámbito estrictamente jurídico, sea porque se deja de lado el precepto regulador de la situación específica demostrada, ora porque el hecho se adecua a un precepto estructurado con supuestos distintos a los establecidos o bien porque se desborda la intelección propia de la disposición aplicable al caso concreto, todo lo cual exige, como punto de partida, la aceptación de la realidad fáctica definida en las instancias, inmodificable dentro del proceso.”. 
+(iii) “En ese orden, si bien, la vía de error escogida por el casacionista lo habilita para actuar, desde la perspectiva del interés jurídico para recurrir, dado que el presente asunto culminó mediante preacuerdo y lo que plantea el defensor es una equivocada interpretación de los artículos de orden constitucional y legal que regulan los sustitutos penales, lo cierto es que el defensor no evidenció en realidad algún yerro en la decisión del ad quem. En contrario, lo que advierte la Sala es que la demanda se erige apenas en la representación de la postura del censor respecto de la forma en que se debe examinar el beneficio de la prisión domiciliaria, a partir de su propia convicción.”. 
+(iv) “De todas maneras, descartado un reparo de estricto derecho, si el propósito era alegar la violación indirecta por un error de hecho, falso juicio de identidad, era su deber identificar, a través del cotejo objetivo de lo dicho en el medio probatorio y lo asumido en el fallo, el aparte omitido, añadido o tergiversado de la prueba, los efectos producidos a partir de ello y, lo más importante, cuál es la trascendencia que tuvo el yerro en la parte resolutiva de la sentencia atacada, tópico de improcedente demostración con el simple planteamiento del criterio subjetivo del recurrente acerca del medio de prueba cuya distorsión denuncia, en cuanto, es su obligación acreditar materialmente la incidencia del yerro en la falta de aplicación o la aplicación indebida de la ley sustancial en el fallo, esto es, señalar la modificación sustancial de la sentencia atacada, a partir de la corrección del yerro y la debida valoración de la prueba, en su conjunto.”.
+
+---
+
+# PROVIDENCIA DDP 8310
+
+**Número de Providencia (DDP 8310):** AP8354-2025
+**Radicación (DDP 8310):** 63197
+
+**Lista de Temas (DDP 8310):**
+(i) La acción de revisión. 
+(ii) “En este caso, del examen de los anexos y la demanda que aquí se califica, se advierte que el demandante, si bien allegó copia de las sentencias de primera y segunda instancia, omitió presentar la constancia de ejecutoria.  De esta manera, se incumple con una de las exigencias formales necesarias para la admisión de la demanda. Tan solo a través de esa pieza procesal es posible establecer con certeza que las sentencias cuestionadas han hecho tránsito a cosa juzgada.”. 
+(iii) “En efecto, por mandato legal se debe adjuntar certificación expresa y directa en la que se haga una declaración en este sentido . Esto permite tener certidumbre sobre la firmeza material de la decisión que se reclama examinar y remover sus efectos cuando se advierta la injusticia en la misma. No es posible acudir en revisión suponiendo la ejecutoria del fallo, de manera que la constancia no es un mero formalismo, sino un requisito esencial pues la acción procede únicamente contra decisiones en firme. Sobre ello, la Corte ha expresado lo siguiente …”. 
+(iv) “Afirma el libelista que el fallo dictado en contra de su asistido debe derruirse ante la configuración de lo dispuesto en el numeral 3º del artículo 192 de la Ley 906 de 2004, esto es, «cuando después de la sentencia condenatoria aparezcan hechos nuevos o surjan pruebas no conocidas al tiempo de los debates, que establezcan la inocencia del condenado, o su imputabilidad».”. 
+(v) La prueba nueva. 
+(vi) “El demandante asume de manera inapropiada la acción de revisión pues la concibe como un estadio adicional de la actuación ya finiquitada, y así proseguir con la dinámica probatoria ordinaria. No como un espacio para demostrar la injusticia del fallo con fundamento en pruebas nuevas desconocidas para el momento del debate probatorio.”. 
+(vii) “La causal invocada para remover la cosa juzgada exige que después de la firmeza de la sentencia condenatoria aparezcan «hechos nuevos o surjan pruebas» no conocidas al tiempo de los debates. Debido a esto es ineficaz para esos propósitos que el actor pretenda su ejercicio basado en medios cognitivos con los cuales busca reabrir discusión sobre una variante fáctica que se consideró y discutió ampliamente por los jueces cognoscentes.”. 
+(viii) “Así es, pues la causal prevista en el numeral 6º autoriza la remoción de la cosa juzgada cuando se demuestre que el fallo objeto de pedimento de revisión se basó al fundar sus conclusiones, en todo o en parte, en prueba falsa. Sin embargo, en el presente asunto no se acreditó la existencia de una decisión judicial en firme  que haya declarado la falsedad de los testimonios de la víctima menor de edad y los testigos de cargo, los cuales fueron pruebas que fundamentaron la decisión de condena.”. 
+(ix) “Sin el mencionado presupuesto, no tiene cabida la causal aludida.”.
+
+---
+
+# PROVIDENCIA DDP 8311
+
+**Número de Providencia (DDP 8311):** AP8296-2025
+**Radicación (DDP 8311):** 71142
+
+**Lista de Temas (DDP 8311):**
+(i) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico, para establecer de manera perentoria y definitiva cuál de los distintos jueces que reclaman o rehúsan el conocimiento de un asunto, es el llamado a asumirlo.”. 
+(ii) “Esta Corporación, en la providencia CSJ AP 2863-2019, 17 jun. 2019, precisó el trámite que se debe surtir, para resolver un incidente de definición de competencia, así: …”. 
+(iii) “Tratándose de conductas delictivas sobre las cuales deban aplicarse las reglas de conexidad, como aquí ocurre, la competencia del juez se determina a partir de los presupuestos indicados en el artículo 52 del Código de Procedimiento Penal y en cuanto a su aplicación, esa Corporación ha señalado. …”. 
+(iv) “Por su parte, el canon 51 de la Ley 906 de 2004 señala que la conexidad se presenta, entre otros eventos, cuando se imputa «a una o más personas la comisión de uno o varios delitos en las que exista homogeneidad en el modo de actuar de los autores o partícipes, relación razonable de lugar y tiempo, y, la evidencia aportada a una de las investigaciones pueda influir en la otra».”. 
+(v) “Así las cosas, de conformidad con el artículo 52, en los casos de juzgamiento de delitos conexos deberá conocer el juez de mayor jerarquía, según la competencia determinada por el fuero legal o la naturaleza del asunto. Si los jueces pertenecen a la misma jerarquía, el factor de competencia será el territorio, en forma excluyente y preferente, conforme al siguiente orden: i) el lugar donde se haya cometido el delito más grave; ii) el lugar donde se haya realizado el mayor número de delitos; iii) el lugar donde se haya producido la primera aprehensión o donde se haya formulado primero la imputación.”. 
+(vi) La competencia funcional. 
+(vii) “Del escrito de acusación se desprende que Janer Esneider Polindara Muñoz, Jhon Kevin Polindara Muñoz y Jonathan Stiven Mosquera Navarro están siendo procesados por tres hechos constitutivos del delito de hurto calificado y agravado, los cuales, según refiere la Fiscalía, fueron cometidos con homogeneidad en el modo de actuar de los imputados, y tuvieron lugar en dos distintos lugares del país: los eventos 1 y 3 en Santander de Quilichao y, el restante en la ciudad de Cali.”. 
+(viii) “En consecuencia, dado que del escrito de acusación se desprende con claridad que dos de los tres eventos de hurto calificado y agravado ocurrieron en el municipio de Santander de Quilichao, resulta procedente la aplicación de esta subregla.”.
+
+---
+
+# PROVIDENCIA DDP 8312
+
+**Número de Providencia (DDP 8312):** AP8300-2025
+**Radicación (DDP 8312):** 69089
+**Decisión (DDP 8312):** SMS DEL 18.12.2025
+
+**Lista de Temas (DDP 8312):**
+(i) “De la imposición de medidas cautelares sobre bienes para la reparación de víctimas en el proceso de justicia y paz.”. 
+(ii) “El artículo 17B de la Ley 975 de 2005, adicionado por el canon 16 de la Ley 1592 de 2012,  señala que la imposición de medidas cautelares procede respecto de los bienes entregados, ofrecidos o denunciados por los postulados para contribuir a la reparación integral de las víctimas y sobre aquellos identificados por la Fiscalía General de la Nación en el curso de las investigaciones, siempre que sea factible inferir que su titularidad, real o aparente, corresponde al postulado o al grupo armado al margen de la ley al cual pertenecía.”. 
+(iii) “Además, deben ostentar vocación reparadora, la que, según el artículo 11C de la Ley 975 de 2005, se entiende como «la aptitud que deben tener todos los bienes entregados, ofrecidos o denunciados por los postulados en el marco de la presente ley para reparar de manera efectiva a las víctimas.»; al tiempo que son bienes sin vocación reparadora «los que no puedan ser identificados e individualizados, así como aquellos cuya administración o saneamiento resulte en perjuicio del derecho de las víctimas a la reparación integral.».”. 
+(iv) “Ahora bien, el capítulo II del título IV del Decreto 3011 del 2013 –por medio del cual se reglamentan las Leyes 975 de 2005, 1448 de 2011 y 1592 de 2012-, regula lo concerniente al procedimiento de alistamiento, recepción de bienes y determinación de la vocación reparadora. En relación con la vocación reparadora, en el artículo 62 señala: …”. 
+(v) “Frente a la excepción de evaluar la vocación reparadora respecto de los bienes rurales, prevista en dicho parágrafo, la Sala mediante providencia AP3297-2014, 18 jun. 2014, rad. 43660, se pronunció en los siguientes términos: …”.
+
+---
+
+# PROVIDENCIA DDP 8313
+
+**Número de Providencia (DDP 8313):** SP2226-2025
+**Radicación (DDP 8313):** 64725
+
+**Lista de Temas (DDP 8313):**
+(i) “Los hechos jurídicamente relevantes. Su alcance en las solicitudes de nulidad”. 
+(ii) “La exigencia legal para que la imputación y la acusación sean claras y sucintas tiene una justificación sustancial. En concreto: solo cuando el procesado conoce con precisión los hechos que se le atribuyen puede ejercer de manera efectiva su defensa (Cfr. SP3329-2020, rad. 52901 y SP835-2024, rad. 64633). Un escenario distinto conduciría a que el ejercicio de la acción penal esté marcado por la ambigüedad e indefinición.”. 
+(iii) "Ahora bien, no toda incorrección en la relación de los hechos jurídicamente relevantes conduce a que se decrete la nulidad. Tal remedio extremo solo ocurre cuando no se cubren sus «mínimos procesales», como son: «claridad, suficiencia, precisión y univocidad» (Cfr. SP1736-2025, rad. 60926). Pero no de cualquier manera, sino a tal punto que la imputación no sea un antecedente legítimo de la acusación ...". 
+(iv) “El mismo sentido, no constituye una irregularidad trascendente que la autoridad judicial describa los hechos en la sentencia conforme a lo probado en la práctica probatoria, siempre que no se desnaturalicen los hechos imputados y acusados. Si la sentencia se ajusta a los hechos jurídicamente relevantes contenidos en la acusación, no habría motivo alguno para que prospere un alegato de nulidad por este motivo.”. 
+(v) “Sea del caso señalar que el decreto probatorio no es un mandato rígido que debe cumplirse irrestrictamente en el juicio oral. Esta última etapa no es ajena a la depuración de la actividad probatoria, sobre todo cuando en el curso de la diligencia las partes cumplen los objetivos que se plantean con sus teorías del caso, escenario en el cual continuar ahondando sobre algún tema podría volverse repetitivo y contrario a la economía procesal.”. 
+(vi) “El delito de acceso carnal en persona puesta en incapacidad de resistir agravado”. 
+(vii) “El enfoque de género como herramienta hermenéutica para el análisis de casos de violencias contra las mujeres”. 
+(viii) Cuidado con el trato que partes e intervinientes le dan a la victima en sus alegaciones. 
+(ix) “La violencia institucional en contra de la víctima”. 
+(x) “Lo que se observa es que el funcionario judicial, lejos de direccionar la audiencia de manera objetiva y equilibrada, tomó partido frente al derrumbe emocional que padeció la víctima en la práctica de su testimonio, descalificándolo. Con esta forma de proceder no solo quebrantó su deber de imparcialidad, sino de afectación a la integridad de la víctima que, en el marco de la investidura y dignidad que ostenta como juez de la República, constituye un claro ejemplo de violencia institucional.”.  
+(xi) “La Corte impartirá algunas órdenes orientadas a mitigar las afectaciones que sufrió la víctima, en especial, por el ejercicio inadecuado de la defensa técnica de los procesados y por las manifestaciones de violencia institucional por un funcionario de la judicatura, identificadas en los acápites precedentes. En concreto: …”.
+
+---
+
+# PROVIDENCIA DDP 8314
+
+**Número de Providencia (DDP 8314):** AP8312-2025
+**Radicación (DDP 8314):** 63343
+
+**Lista de Temas (DDP 8314):**
+(i) “En primer término, que las muestras en cuestión fueron enviadas al Instituto Nacional de Medicina Legal y Ciencias Forenses en el año 2019, sin que deba perderse de vista que la toma de muestras al procesado fue autorizada posteriormente, lo que, aunado al tiempo que tardan esos exámenes, explica por qué el fiscal no estaba en capacidad de suministrar los datos del respectivo perito para cuando se celebraron las audiencias de acusación y preparatoria.”. 
+(ii) “Además, el artículo 415 de la Ley 906 de 2004, establece la posibilidad de que la base de opinión pericial se conozca con posterioridad a esas diligencias, bajo la única condición de que la defensa tenga acceso a ella por lo menos 5 días antes del juicio.”. 
+(iii) “Sumado a ello, si en gracia de discusión se aceptara que existió algún yerro sobre el particular, la impugnante no explica su transcendencia, bien el ámbito de las garantías debidas al procesado o frente a la confiabilidad de la evidencia.”.
+
+---
+
+# PROVIDENCIA DDP 8315
+
+**Número de Providencia (DDP 8315):** SP2407-2025
+**Radicación (DDP 8315):** 68802
+
+**Lista de Temas (DDP 8315):**
+(i) “La conciliación como requisito de procedibilidad.”. 
+(ii) “En otras palabras, que no se haya expuesto por alguna de las partes una propuesta de acuerdo, no significa que la audiencia no haya existido o no se haya verificado efectivamente, eso quiere decir simplemente que, la audiencia fracasó, porque no existiendo ánimo conciliatorio, ninguna de las partes vio la oportunidad de ofrecer algunos términos de convenio.”. 
+(iii) “Vale decir, si los hechos que se dicen injuriosos se han venido calificando, desde un enfoque de género, como una forma de violencia contra la denunciante, la investigación podía adelantarse oficiosamente y bajo tal supuesto es claro que no era tampoco necesaria la condición de procedibilidad, porque en esas circunstancias no se trataría de un delito querellable pues, en términos del artículo 522 de la Ley 906 …”. 
+(iv) “Como lo tiene establecido la jurisprudencia de la Sala, la observancia al principio de congruencia impone a la fiscalía y a los jueces el deber de conservar la uniformidad de los hechos jurídicamente relevantes comunicados desde la imputación, de modo que, para garantizar el derecho de defensa, estos deben permanecer invariables durante la acusación y la sentencia.”. 
+(v) “El concepto de hechos jurídicamente relevantes se identifica, así, con la descripción que el legislador hace en cada tipo penal, por eso en su estructuración deben considerarse aspectos tales como: i) Delimitación de la conducta que se le atribuye al imputado; ii) Indicación de las circunstancias de tiempo, modo y lugar que la rodearon; iii) Confrontación con los elementos descriptivos de la conducta típica; iv) Análisis de su antijuridicidad y la culpabilidad y v) Valoración de las circunstancias de agravación, atenuación o de mayor o menor punibilidad que puedan concurrir.”. 
+(vi) “Como procedió en contrario y con eso vulneró efectivamente las garantías de congruencia y non bis in ídem, esto porque la posición social o laboral del sujeto activo es elemento típico del punible citado, la consecuencia será eventualmente en la dosificación de la sanción, toda vez que, dado el principio de residualidad, no es la nulidad el que como remedio último permita una solución adecuada y razonable que garantice esos parámetros del debido proceso.”. 
+(vii) La retractación y su oportunidad: “Igualmente, más allá del juicioso examen jurisprudencial e histórico que se hizo de la figura, lo que corresponde entonces es determinar si en el esquema procesal de la Ley 906 de 2004 tal oportunidad debe entenderse hasta antes de anunciarse el sentido de fallo, o hasta antes de proferirse éste, bajo el entendido, desde luego, que los dos actos comprenden una unidad jurídica que conforman la sentencia.”. 
+(viii) “La retractación que de las imputaciones deshonrosas hizo el procesado tras anunciarse el sentido del fallo, lo fue de manera inoportuna, toda vez que, dada la sistemática de la Ley 906 de 2004, fue formulada luego de la sentencia entendida como acto complejo que comprende su anuncio y su proferimiento propiamente dicho. En este ordenamiento debe entenderse que la oportunidad de retractación va hasta antes de que se anuncie el sentido del fallo.”. 
+(ix) El “estándar para condenar”. 
+(x) La “jerarquía” de los militares. 
+(xi) “El acoso sexual”. 
+(xii)  “La injuria”. 
+(xiii) La dosificación punitiva para este caso.
+
+---
+
+# PROVIDENCIA DDP 8316
+
+**Número de Providencia (DDP 8316):** AP8304-2025
+**Radicación (DDP 8316):** 71089
+
+**Lista de Temas (DDP 8316):**
+(i) “Las víctimas en el proceso penal”. 
+(ii) “En relación con el daño, la Sala tiene establecido que este debe ser real, concreto y especifico, sin que se reduzca a aquél de índole patrimonial, pero quien, en todo caso, pretenda constituirse víctima está obligada a acreditarlo sumariamente ante el juez, como carga procesal mínima que debe cumplir quien solicita el reconocimiento, no asimilable a la exigida para dar curso al incidente de reparación integral, de que trata el artículo 102 de la Ley 906 de 2004.”. 
+(iii) “El momento procesal para determinar la calidad de víctima y reconocer su representación legal, en caso de que la hubiere, es la audiencia de formulación de acusación, según el artículo 340 de la Ley 906 de 2004, sin que en virtud de esta disposición legal se entienda que no pueda actuar antes o que precluye la oportunidad para su reconocimiento, dado que la ley y la jurisprudencia autoriza su intervención en las distintas etapas del proceso penal.”. 
+(iv) “Ahora bien, debe recordarse que desde la Ley 190 de 1995, norma actualmente vigente, se dispuso en su artículo 36 que «en todo proceso por delito contra la administración pública, será obligatoria la constitución de parte civil a cargo de la persona jurídica de derecho público perjudicada»; precepto legal que la Corte Constitucional encontró ajustado a derecho en sentencia C-038 de 1996, al señalar que en virtud de la potestad legislativa, no existía prohibición alguna para que el Congreso de la República estableciera la intervención en el proceso penal como parte civil de la persona jurídica de derecho público perjudicada con el delito.”. 
+(v) “La Sala ha avalado la posibilidad de aplicar a un caso adelantado bajo el procedimiento de la Ley 906 de 2004 lo consagrado en el citado artículo 137 por integración, dado que esa disposición está orientada a proteger el patrimonio público y, en general, el interés jurídico de la administración pública, como bien jurídico que resulta afrentado con esta clase de delitos , siendo por esto admisible que las entidades afectadas estén representadas en el proceso, con la mayor amplitud y transparencia posible.”.
+
+---
+
+# PROVIDENCIA DDP 8317
+
+**Número de Providencia (DDP 8317):** AP8310-2025
+**Radicación (DDP 8317):** 70984
+**Decisión (DDP 8317):** SMS DEL 19.12.2025
+
+**Lista de Temas (DDP 8317):**
+(i) “Acorde con el artículo 54 del estatuto procesal en cita, el incidente de definición de competencia es un mecanismo ágil y expedito a través del cual el superior funcional, en caso de incertidumbre frente a este presupuesto procesal, dilucida a quién debe asignársele el conocimiento de un asunto.”. 
+(ii) “En este caso, la controversia se contrae exclusivamente a determinar cuál es la autoridad judicial llamada a resolver el impedimento manifestado por el Juzgado Promiscuo Municipal de Puente Nacional (Santander) para seguir conociendo del proceso con radicado 680776106030201500034.”. 
+(iii) Trámite del impedimento. 
+(iv) “De este modo, si en el lugar existe un despacho de la misma categoría deberá remitirlo a quien le siga en turno para que resuelva el impedimento.”.
+
+---
+
+# PROVIDENCIA DDP 8318
+
+**Número de Providencia (DDP 8318):** SP2178-2025
+**Radicación (DDP 8318):** 61908
+
+**Lista de Temas (DDP 8318):**
+(i) El prevaricato por acción. 
+(ii) “En ese orden de ideas, son atípicas aquellas providencias que sean el resultado de un análisis de las distintas disposiciones que regulen el asunto, en las cuales exista la posibilidad de diversas interpretaciones, pues esta Corporación tiene establecido que el juicio en el prevaricato no es de acierto sino de legalidad, en las precisas condiciones contextuales del problema jurídico sometido a consideración, sin que se exijan elaboradas e imbricadas consideraciones para afirmar la evidente y ostensible vulneración del ordenamiento jurídico.”. 
+(iii) “La función de control de garantías en la legalización de captura”. 
+(iv) “En los términos de los artículos 295 y siguientes del Estatuto Procesal de 2004, las normas relativas a la restricción de la libertad son de interpretación restrictiva, de aplicación necesaria, adecuada, proporcional y razonable, siempre que medie la comprobada existencia de alguno de los fines constitucionales legitimantes; esto es, evitar la obstrucción de la justicia o asegurar la comparecencia del imputado al proceso, la protección de la comunidad y de las víctimas, o para el cumplimiento de la pena.”. 
+(v) “Así las cosas, la decisión de decretar ilegal la captura no se aprecia manifiestamente contraria al ordenamiento jurídico, en tanto el aquí procesado identificó unas situaciones que, en su criterio, “contaminaban” la captura y esas circunstancias encuentran respaldo legal en lo contemplado en los artículos 296 (finalidad de la restricción) y 299 (inmediatez) del C.P.P.”.
+
+---
+
+# PROVIDENCIA DDP 8319
+
+**Número de Providencia (DDP 8319):** AP8888-2025
+**Radicación (DDP 8319):** 65156
+
+**Lista de Temas (DDP 8319):**
+(i) “La acreditación de la causal de casación y la modalidad de error escogida -violación directa- debe contraerse a una mera oposición entre la sentencia y la ley, sin que tenga cabida la intermediación de aspectos probatorios, con base en los cuales el juez fija la premisa fáctica del silogismo jurídico.”. 
+(ii) “Ello, además, implica la aceptación de la estructura probatoria fijada por los juzgadores de instancia. Los hechos con base en los cuales se aplica el juicio de responsabilidad penal son inalterables, inmodificables, intangibles. De igual manera, la argumentación que soporta esa fijación de proposiciones fácticas ha de reputarse correctamente construida, sin que sea dable cuestionarla ni alterarla.”. 
+(iii) “Sin embargo, el planteamiento de la censura desconoce tales presupuestos, pues el denunciado error de juicio normativo, de inicio, se hace depender de una apreciación y valoración distinta de las pruebas, propuesta por el demandante como base del reclamo. Es más: la postulación del cargo está precedido de un acápite que aquél denomina “nuestro relato”, en el que descalifica los hechos que los juzgadores declararon probados por ser “sobredimensionados”, y presenta sus propias proposiciones fácticas.”. 
+(iv) “De esa manera, el recurrente quebranta la unidad lógica del cargo por violación directa, pues la supuesta aplicación indebida de los tipos penales por los cuales los juzgadores declararon la responsabilidad del procesado no depende de un yerro de juicio eminentemente normativo o de alguna incorrección hermenéutica, sino de la inadecuación de otros hechos, ajenos a la unidad decisoria impugnada, en las normas respectivas (art. 331 C.P., mod. por el art. 33 de la Ley 1453 de 2011, y art. 338 original del C.P. con el aumento de penas del art. 14 de la Ley 890 de 2004).”.
+
+---
+
+# PROVIDENCIA DDP 8320
+
+**Número de Providencia (DDP 8320):** AP8850-2025
+**Radicación (DDP 8320):** 62723
+
+**Lista de Temas (DDP 8320):**
+(i) “De entrada, se destaca que la demanda infringe el principio de crítica vinculante propio del recurso extraordinario y por cuyo medio se exige al casacionista «una argumentación fundada en las causales previstas taxativamente por la normatividad vigente y el cumplimiento de los requisitos de forma y contenido de acuerdo con la causal seleccionada por el actor», lo cual significa, como desde ya se anuncia, la inadmisión de los dos cargos formulados.”. 
+(ii) “En ese sentido y para evitar repeticiones innecesarias, pues ambas censuras adolecen de la misma falencia, ha de señalarse que aun cuando la defensa anunció su ataque bajo la senda de la nulidad del trámite por supuestas deficiencias fincadas en la motivación de la sentencia, la vía correcta para plantear aquellas premisas era la de la violación directa de la ley sustancial en cuyo marco la labor de demostración del vicio se centra en acreditar la exclusión evidente, la aplicación indebida o la interpretación errónea de la norma – constitucional o legal – llamada a regular el caso.”. 
+(iii) “Con todo, aun si por cuenta del principio de caridad  se acogiera la hipótesis propuesta por el libelista, bajo la senda de la causal primera de casación, con facilidad se advierte que ninguno de los cargos ostenta aptitud sustancial para ser admitido.”. 
+(iv) “En ese sentido, el principio de corrección material al que de igual manera debió sujetarse el casacionista, enseña con suficiencia que las premisas que soportan los reproches no tienen respaldo alguno en la actuación procesal.”. 
+(v) “Finalmente, el cargo segundo, que también fue desatinadamente invocado por la causal segunda de casación, cuando, como se dijo, debió ser formulado por la vía de violación directa de la ley sustancial, también atenta contra la corrección material.”.
+
+---
+
+# PROVIDENCIA DDP 8321
+
+**Número de Providencia (DDP 8321):** AP7702-2025
+**Radicación (DDP 8321):** 63784
+**Decisión (DDP 8321):** CON SALVAMENTO DE VOTO DE CUATRO MAGISTRADOS.
+
+**Lista de Temas (DDP 8321):**
+(i) Prescripción de la acción penal para el delito de acoso sexual. 
+(ii) “En primer lugar, es preciso señalar que le asiste razón tanto a la defensa como a las instancias que han conocido del presente caso, en relación con el hecho de que la correcta calificación jurídica de los hechos relevantes para la presente actuación no es, precisamente, el delito de acoso sexual agravado, tal y como fue imputado por la Fiscalía General de la Nación en la diligencia del 18 de septiembre de 2015. Sólo que de ello no se deriva la absolución del procesado, sino la declaratoria de nulidad de la actuación, a partir de la audiencia de formulación de imputación, tal y como pasará a explicarse a continuación.”. 
+(iii) “Por lo demás, respecto de la manera en que la Fiscalía relató los hechos relevantes, que fueron tan pobremente calificados, debe agregarse que la Sala ha indicado ya en varias ocasiones que estos no deben limitarse a la simple narración de los acontecimientos o a la reproducción del contenido de la denuncia o de los elementos materiales probatorios o evidencia física presente en la carpeta de la indagación.”. 
+(iv) “Además, en casos en los que se observe violencia contra la mujer, se exige que en la identificación de los hechos jurídicamente relevantes se aplique el enfoque de género. Ello no solo para suprimir de la descripción fáctica cualquier valoración soportada en estereotipos, sino también para incluir de manera clara todos aquellos elementos que visibilizan la violencia basada en género.”. 
+(v) “En ese sentido, el juez está llamado, por mandato legal, a ejercer control sobre la claridad y concreción de los hechos -art. 288 C.P.P.; y, excepcionalmente, sobre la calificación jurídica de la conducta, a fin de evitar una evidente vulneración al principio de legalidad, cuando de manera manifiesta, con la sola contrastación entre los hechos narrados por el ente acusador y la denominación del delito -sin que medie ninguna valoración sobre los medios de convicción-, advierta un exabrupto en la adecuación típica que se propone …”. 
+(vi)  “Al respecto, la Sala ha enseñado que, cuando la adecuación típica, en criterio del juez, no concuerda de manera evidente con los hechos narrados, el juez puede y debe sugerirle a la Fiscalía que la revise , y ordenar un receso en la audiencia, bien de imputación o de acusación, para darle la oportunidad al titular de la acción penal de revisar y reconsiderar la calificación jurídica de la conducta.”. 
+(vii) “Incluso, si el fiscal del caso insiste en una tipificación que evidentemente no está conforme a la ley, el juez puede darle la oportunidad para que, conforme a la Resolución 1053 del 21 de marzo de 2017, expedida por la Fiscalía General de la Nación, solicite ante el respectivo director la realización de un “comité técnico-jurídico” y, en dado caso, suspender la audiencia para esos efectos, hasta que cuente con el acta de la realización del comité o con la decisión negativa de plano de la dirección ante la que elevó la petición.”. 
+(viii) “Ahora bien, la Sala también ha enfatizado en que no es competencia del juez entrar a insinuar ni a realizar la adecuación típica de la conducta, pues no le corresponde sustituir a la Fiscalía General de la Nación y hacer la calificación jurídica de la conducta de una determinada manera. Esa potestad es exclusiva del ente acusador.”. 
+(ix) “La labor del juez, de ser necesario, es advertir la eventual inconsistencia o yerro ante una calificación jurídica de la conducta abiertamente ilegal y trasladar la responsabilidad a la Fiscalía para que, en cumplimiento de sus competencias constitucionales y legales, realice lo pertinente.”. 
+(x) “Igualmente, en otras ocasiones la Sala ha aclarado que el control que ejerce el juez no recae sobre la suficiencia probatoria para imputar o acusar, ni sobre el estándar para hacerlo bajo una determinada calificación jurídica, pues la valoración frente a los medios de conocimiento solo puede hacerla preliminarmente para pronunciarse sobre la medida de aseguramiento   y de manera definitiva en la sentencia al decidir sobre la responsabilidad penal.”. 
+(xi) “[sobre] La calificación jurídica o el juicio de tipicidad adecuado a los hechos fijados por la fiscalía, recae un control judicial limitado o excepcional. Ante casos contrafácticos o totalmente discordantes entre la premisa fáctica y su adecuación jurídica, o frente a calificaciones con deflación o inflación evidente o, en otras palabras, imputaciones o acusaciones manifiestamente ilegales, al juez le corresponde no convalidar el respectivo acto de parte” . 
+(xii) “En este orden de ideas, la violación al debido proceso, por omisión al deber de debida diligencia, da cuenta de una irregularidad de carácter sustancial que comporta una afectación grave al derecho humano de la mujer víctima de violencia sexual e implica el incumplimiento de una obligación estatal. Al respecto, el Estado tiene una obligación de garantía, al punto de que su incumplimiento le puede implicar responsabilidad internacional; por lo tanto, resulta imprescindible adoptar las medidas necesarias para remediarlo.”. 
+(xiii) “A juicio de la Sala, este es uno de aquellos casos en donde se evidencia la existencia de una tensión entre: 
+(i) la prohibición de reforma en peor y 
+(ii) el debido proceso de las mujeres víctimas de violencia sexual, en los que, como se advirtió, está inmersa de manera especial la obligación de debida diligencia.”. 
+(ivx) La nulidad en este caso.
+
+---
+
+# PROVIDENCIA DDP 8322
+
+**Número de Providencia (DDP 8322):** SP2385-2025
+**Radicación (DDP 8322):** 59915
+**Decisión (DDP 8322):** SMS DEL 22.12.2025
+
+**Lista de Temas (DDP 8322):**
+(i) “En principio, podría afirmarse que el error evidente de declarar desierto un recurso de apelación oportunamente interpuesto y sustentado debe dar lugar a la anulación del trámite, por la afectación de un elemento estructural del debido proceso, como lo es la posibilidad de impugnar la sentencia condenatoria.”. 
+(ii) “Sin embargo, la regulación de las nulidades y su respectivo desarrollo jurisprudencial incluyen una serie de principios que deben tenerse en cuenta para tomar una decisión tan drástica como la anulación del trámite, que puede afectar gravemente la prontitud y eficacia de la administración de justicia. Reiteradamente, la Sala se ha referido a esos principios, así: …”. 
+(iii) “Con fundamento en lo anterior, la Sala encuentra razonable la petición de la Fiscalía de no decretar la nulidad invocada por el censor, por la falta de trascendencia del yerro cometido frente al recurso de apelación interpuesto por la defensa de SUÁREZ GARAVITO en contra del fallo de primera instancia.”. 
+(iv)  “Además de la evidente falta de sustentación, ya que en el escrito de apelación se mencionó esta circunstancia, pero no se explicó en qué consiste el yerro de los juzgadores ni se presentó una solicitud sobre esta temática, es claro que la Fiscalía realizó una aclaración que favorece al procesado, en esencia porque: 
+(i) no hubo cambios en lo que concierne al acuerdo celebrado con los servidores públicos para apoderarse del combustible, ni en las acciones de apoderamiento referidas en el fallo impugnado; y 
+(ii) la aclaración estaba orientada a la imposición de una pena menor, como quiera que el artículo 30 en cita establece, para el interviniente, una rebaja equivalente a una cuarta parte de la pena prevista para el respectivo delito.”. 
+(v) “El cambio de calificación jurídica propuesta por el delegado del Ministerio Público”. 
+(vi) “El supuesto error de hecho, por falso juicio de existencia, que recayó sobre las pruebas del estado de salud SUÁREZ GARAVITO”.
+
+---
+
+# PROVIDENCIA DDP 8323
+
+**Número de Providencia (DDP 8323):** SP2384-2025
+**Radicación (DDP 8323):** 60751
+
+**Lista de Temas (DDP 8323):**
+(i) “No se discute la posibilidad de variar la calificación jurídica de violencia intrafamiliar a lesiones personales, al tratarse de un delito menor incluido, se mantuvo el núcleo fáctico y no se propone una vulneración de garantías.  Tampoco las partes expresaron su inconformidad con la falta de prueba sobre la existencia de un núcleo familiar entre el procesado y Rosa Amanda Herrera.”. 
+(ii) “La caducidad de la querella”. 
+(iii) “En primera medida, es cierto que ante cambios en la calificación jurídica, el funcionario judicial debe examinar si se interpuso la querella como requisito de procedibilidad de la acción penal respecto del nuevo punible. En la misma línea, también debe validar si no operó su caducidad …”. 
+(iv) “No obstante, el impugnante olvida que la Sala tiene dicho que la denuncia puede equipararse a la querella, cuando exista una variación en la calificación jurídica”. 
+(v) “Al respecto, debe aclararse que la denuncia no es un medio de prueba autónomo, sino que contiene una declaración previa de la víctima, la cual debe ser analizada de conformidad con las reglas relativas a la prueba de referencia …”.  
+(vi) “La extinción de la acción penal por indemnización integral.”.
+
+---
+
+# PROVIDENCIA DDP 8323
+
+**Número de Providencia (DDP 8323):** SP1886-2025
+**Radicación (DDP 8323):** 67901
+
+**Lista de Temas (DDP 8323):**
+1 “Derrotero que no se acompasa con la postura de esta Corporación, toda vez que desde la decisión CSJ SP, 6 mar. 2019, rad. 519511, la Corte ha sostenido que, en el marco del delito de violencia intrafamiliar, cuando el agente maltrata física o sicológicamente a varios miembros de su núcleo familiar o al mismo, en pluralidad de actos, no se estructura un concurso material de delitos, dada la naturaleza del bien jurídico, su titularidad, así como la forma de realización del verbo rector y circunstancias. En esa ocasión se precisó: …”.
+
+---
+
+# PROVIDENCIA DDP 8324
+
+**Número de Providencia (DDP 8324):** AP8356-2025
+**Radicación (DDP 8324):** 68023
+**Decisión (DDP 8324):** SMS DEL 23.12.2025
+
+**Lista de Temas (DDP 8324):**
+(i) El vocero en el proceso penal. 
+(ii) “De la repetición de pruebas en el procedimiento de la Ley 600 de 2000.”. 
+(iii) “Los postulados de pertinencia de la prueba en el ámbito de la Ley 600 de 2000.”. 
+(iv) “Para concluir, la Sala recuerda que no es suficiente la mera mención de la pertinencia, en forma nominal, sin llenarla de contenido. Para que se considere correctamente presentada la solicitud probatoria, lo determinante es que sea justificada sustancialmente de cara a la estrategia o finalidad que persiga cada sujeto procesal.”. 
+(v) “Al respecto, la Sala evidencia que la nueva defensa pretende en el marco del recurso de apelación mejorar o modificar los argumentos expuestos en la solicitud probatoria en beneficio de su prohijado. La adecuada solicitud es una carga que debe exigirse y cumplirse en el momento procesal oportuno. Si así no se hace no es admisible suplir dichas falencias en la sustentación del recurso incoado. A través del medio de impugnación es posible exponer errores argumentativos o fácticos en la decisión que se recurre, mas no complementar o llenar vacíos en las peticiones que a través de ella se resolvieron.”.
+
+---
+
+# PROVIDENCIA DDP 8325
+
+**Número de Providencia (DDP 8325):** SP2246-2025
+**Radicación (DDP 8325):** 63440
+
+**Lista de Temas (DDP 8325):**
+(i) “En segundo término, el defensor y la representante de víctimas allegaron documentos en sede de impugnación especial. De ningún modo, estos pueden ser objeto de valoración por su completa ajenidad a la dinámica de la práctica probatoria que gobierna la Ley 906 de 2004. Para la solución del caso concreto, la Sala está sujeta, en forma exclusiva, a la apreciación y valoración de las pruebas practicadas en el juicio oral y público, con inmediación y contradicción.”. 
+(ii) “Estructura típica del delito de fraude procesal”. 
+(iii) “Uso de contratos simulados como medio fraudulento”. 
+(iv) “No es poco frecuente que, ante acciones judiciales con incidencia en el patrimonio de los compañeros permanentes, alguno opte por transferir la titularidad de bienes a familiares cercanos, con actos aparentes, a efectos de marginarlos del patrimonio común.”. 
+(v) “Adicionalmente, la misma Sala ha señalado que en los conflictos que gravitan alrededor de los efectos económicos del matrimonio o de la unión marital de hecho -como los casos de simulación de actos de disposición de activos sociales-, pueden subyacer estereotipos de género encaminados a frustrar el reparto equitativo, prolongando así un desprecio por la participación de uno de los miembros de la pareja en la construcción del acervo común (CSJ SC963-2022, rad. 2012-00198-01, 1 jul. 2022).”. 
+(vi) “Uno de los mecanismos para materializar el restablecimiento del derecho es la cancelación de títulos y registros fraudulentos, regulado en el artículo 101 del C.P.P. Esa norma dispone que en la sentencia -o decisión definitiva adoptada en el proceso penal- se ordenará la cancelación de los títulos y registros respectivos cuando exista convencimiento más allá de toda duda razonable sobre las circunstancias que den cuenta de que el título de propiedad fue obtenido fraudulentamente.”.
+
+---
+
+# PROVIDENCIA DDP 8326
+
+**Número de Providencia (DDP 8326):** AP8521-2025
+**Radicación (DDP 8326):** 68885
+**Decisión (DDP 8326):** SMS DEL 24.12.2025
+
+**Lista de Temas (DDP 8326):**
+(i) “El demandante invoca el artículo 181 numeral 1º de la Ley 906 de 2004, porque considera que los juzgadores dejaron de aplicar «una norma constitucional o legal llamada a regular el caso», al negar la concesión de la prisión domiciliaria a la procesada.”. 
+(ii) “Sin embargo, con claro desconocimiento del principio de claridad, el recurrente alega sin distinción el supuesto cumplimiento de los requisitos previstos en el artículo 314 numeral 5º del Código de Procedimiento Penal (referido a la condición de madre cabeza de familia), y el artículo 38 G del Código Penal.”. 
+(iii) “Pues bien, cuando se demanda en casación la violación directa de la ley sustancial, como parece hacerlo el recurrente, se tienen que aceptar los hechos que se declararon probados en la sentencia impugnada, no pueden desconocerse, acotarse, adicionarse, ni apreciarse de otra manera. Tampoco es permitido discutir la valoración probatoria efectuada por los juzgadores.”. 
+(iv) “Lo que se pretende con este cargo, formulado desde la violación directa de la ley por falta de aplicación de las normas constitucionales y legales llamadas a regular el caso, es que se conceda la prisión domiciliaria a la acusada por su condición de madre cabeza de familia y por cumplirse los requisitos establecidos en el artículo 38G del Código Penal.”.
+
+---
+
+# PROVIDENCIA DDP 8327
+
+**Número de Providencia (DDP 8327):** AP8525-2025
+**Radicación (DDP 8327):** 71029
+
+**Lista de Temas (DDP 8327):**
+(i) “Según lo establece el artículo 58A del Código de Procedimiento Penal, cuando no se acepte el impedimento presentado por un magistrado de un Tribunal Superior, «la actuación pasará a la Corte Suprema de Justicia para que dirima de plano la cuestión». Por esta razón, la Sala es competente para pronunciarse sobre el impedimento manifestado por el magistrado Héctor Roveiro Agredo León.”. 
+(ii) “El instituto de los impedimentos y recusaciones tiene por objeto garantizar el derecho que le asiste a las partes de un proceso judicial a que el asunto sea conocido por un juez o tribunal independiente e imparcial, que resulte ajeno a cualquier interés distinto al de la recta administración de justicia. Con el propósito de asegurar esta garantía, el Congreso de la República precisó taxativamente en qué circunstancias un funcionario judicial está impedido para conocer un proceso (CSJAP2240-2024).”. 
+(iii) “En lo que respecta al caso concreto, la Sala evidencia que el magistrado Héctor Roveiro Agrado León se declaró impedido para conocer el proceso penal que se inició en contra de ALICIA CASTRILLÓN PAZ con base en la causal contenida en el numeral quinto del artículo 56 de la Ley 906 de 2004, pues sostiene una «relación de cercanía, solidaridad y confianza» con el también magistrado Silvio Castrillón Paz, quien es hermano de la procesada. Ahora bien, con respecto a esta causal esta Sala ha señalado lo siguiente: …”. 
+(iv) “Adicionalmente, esta Corporación ha señalado que esta causal de impedimento es extensible a los familiares de las partes, aun cuando estos no hagan parte del proceso, siempre que a partir de la argumentación presentada sea posible evidenciar la necesidad de salvaguardar la objetividad e imparcialidad de la administración de justicia (CSJ AP8091-2024). De este modo, la Sala ha señalado que: …”.
+
+---
+
+# PROVIDENCIA DDP 8328
+
+**Número de Providencia (DDP 8328):** SP2156-2025
+**Radicación (DDP 8328):** 64357
+**Decisión (DDP 8328):** SMS DEL 26.12.2025
+
+**Lista de Temas (DDP 8328):**
+(i) El prevaricato por omisión. 
+(ii) “La infracción al deber funcional debe ser además relevante, requisito que la doctrina entiende cumplido cuando la conducta afecta las expectativas legítimas de los ciudadanos en su relación con la administración, porque impide u obstaculiza el ejercicio de un derecho concreto, pone en serio peligro la posibilidad de acceso o de participación en el disfrute de servicios, o en el desarrollo de actividades que las instituciones deben garantizar.”. 
+(iii) “Asimismo, el artículo 138 de la Ley 906 de 2004 enumera, como deberes comunes a todos los funcionarios judiciales e intervinientes en el proceso penal, «resolver los asuntos sometidos a su consideración dentro de los términos previstos en la ley y con sujeción a los principios y garantías que orientan el ejercicio de la función jurisdiccional», ello por supuesto, dentro del ámbito de su competencia.”. 
+(iv) “Ni ahora con la reforma, ni con anterioridad, se puede tolerar que el funcionario a cargo de la investigación, arbitrariamente espere el cumplimiento del término impuesto a ese estadio procesal o, el agotamiento de la acción penal, en aras de formular imputación; pues de esa manera se vería transgredido el imperativo de administrar pronta y cumplida justicia y desde luego el Estado habría declinado a uno de sus fines esenciales como lo es garantizar la efectividad de los derechos”. 
+(v) “No está demás precisar que el simple agotamiento del límite cronológico previsto en la ley para la ejecución de un determinado acto procesal, no constituye el delito de prevaricato por omisión, pues lo sancionado es la omisión, denegación o demora dolosa e injustificadas.”. 
+(vi) “En este sentido, la Fiscalía no logró probar que el procesado actuó dolosamente; pues, si bien, como lo testificó la doctora Betty Leonarda Pérez Peña, faltó atención y cuidado en el conocimiento de las indagaciones, esto no es indicativo del comportamiento a conciencia de querer apartarse de los deberes propios de su cargo.”.
+
+---
+
+# PROVIDENCIA DDP 8329
+
+**Número de Providencia (DDP 8329):** SP2148-2025
+**Radicación (DDP 8329):** 60414
+
+**Lista de Temas (DDP 8329):**
+(i) “El inciso 3° del artículo 184 de la Ley 906 de 2004, faculta a la Corte para proveer de oficio cuando, a pesar de inadmitir la demanda de casación, se requiera materializar alguna de las finalidades del recurso extraordinario previstas en el artículo 180 ejusdem, por razones distintas a las planteadas en el libelo.”. 
+(ii) “La jurisprudencia de la Sala, reiterada y uniforme, ha establecido que si en las audiencias de formulación de imputación y/o de acusación, la Fiscalía no expresa de manera clara, completa y suficiente los hechos jurídicamente relevantes, al extremo que el inculpado no tiene la posibilidad de conocer por qué sucesos está siendo investigado o juzgado, se vulnera de manera flagrante el debido proceso en sus vertientes de congruencia y defensa, propiciando la nulidad de la actuación.”. 
+(iii) “La Corte encuentra que la inclusión en la acusación de la circunstancia agravante alusiva a la coparticipación criminal en la ejecución delictual, fue deducida en la exposición de los hechos con relevancia jurídico penal y se adecuó al dispositivo penal en forma correcta; el procesado, al igual que su defensa técnica, la conocieron inequívocamente y tuvieron oportunidad de controvertirla en la etapa de juzgamiento.”. 
+(iv) “La redacción del tipo penal de hurto por medios informáticos o semejantes contenida en el artículo 269 I del Código Penal, adicionado por la Ley 1273 de 2009, es del siguiente tenor. …” y esta es su adecuación típica. 
+(v) “Con todo, su carácter es pluriofensivo porque el ámbito de protección no se limita a ese bien jurídico, sino que se extiende a precaver y reprobar la comisión de conductas de tal índole cuando media la vulneración de seguridades o sistemas informáticos.”. 
+(vi) “Las precedentes consideraciones llevan a la Corte a concluir que en el fallo de segunda instancia el Tribunal, en unidad jurídica con la decisión de la juzgadora de primera instancia, no se incurrió en una eventual violación directa de la ley sustancial por aplicación indebida del numeral 10 del artículo 241 del Código Penal.”. 
+(vii) “En ese contexto no erró el ad quem, ni el a quo, al acoger la adecuación típica que de los hechos jurídicamente relevantes presentó la Fiscalía en el escrito de acusación génesis de la actuación, acorde con el artículo 536 de la Ley 906 de 2004, esto es, en desarrollo del procedimiento abreviado instituido en la Ley 1826 de 2017.”.
+
+---
+
+# PROVIDENCIA DDP 8330
+
+**Número de Providencia (DDP 8330):** SP2150-2025
+**Radicación (DDP 8330):** 60200
+**Decisión (DDP 8330):** SMS DEL 29.12.2025
+
+**Lista de Temas (DDP 8330):**
+(i) El prevaricato por acción. 
+(ii) El dolo en el prevaricato por acción. 
+(iii) La compraventa de un inmueble con pacto de retroventa. 
+(iv) La justificación del archivo en este caso. 
+(v) “Ahora bien, es cierto, como aduce la representación de víctimas, que esta conducta realmente podía leerse a la luz del artículo 264 del Código Penal, es decir, como una constitutiva del delito de perturbación de la posesión sobre inmueble. Dogmáticamente hablando, esta interpretación parte de aceptar, de entrada, la conclusión del Fiscal 15 Local de Santa Marta, en relación con que, en realidad, no se había cometido el delito de invasión de tierras o edificaciones.”. 
+(vi) “En últimas, como se indicó, el yerro de la decisión consistió, entonces, en un simple descuido que, por lo demás, podía resolverse por los mecanismos legales previstos para ello: una petición de desarchivo –que es diferente al recurso de “apelación” que interpuso el apoderado de Sánchez Segrera– y, en caso de confirmación, una solicitud de audiencia preliminar ante un juez de control de garantías. A juicio de la Sala, este descuido o desacierto puede imputarse a varias causas, que no se circunscriben a la manifiesta intención de hacerle fraude a la ley; tales como la ignorancia o la inexperiencia, particularmente en relación con el tratamiento dogmático de delitos poco comunes que usualmente se derivan de situaciones fácticas complejas.”. 
+(vii) “En cuanto al argumento relacionado con que, antes de proceder al archivo, el Fiscal debió haber ordenado la realización de actos de investigación, debe decirse lo siguiente: 
+(i) en primer lugar, es preciso recordar que los fiscales, particularmente los locales ubicados en ciudades grandes o intermedias, suelen estar sometidos a inmensas cargas de trabajo y altos índices de congestión; 
+(ii) además, a ellos se les exige el cumplimiento de ciertas metas estadísticas, que pasan por el reporte de casos evacuados, ya sea mediante la culminación de juicios, o mediante archivos o preclusiones; 
+(iii) ello implica que, si un fiscal considera de entrada que una conducta denunciada es atípica, qué incentivo tiene para ordenar el uso de los escasos recursos investigativos con los que cuenta para indagar por una situación que, en últimas, terminará por archivar.”.
+
+---
+
+# PROVIDENCIA DDP 8331
+
+**Número de Providencia (DDP 8331):** SP2098-2025
+**Radicación (DDP 8331):** 59921
+
+**Lista de Temas (DDP 8331):**
+(i) “Enfoque de género y principio pro infans.” 
+(ii) “En la práctica, se exige «contextualizar y definir episodios ocurridos antes, con ocasión y luego de la violencia ejercida sobre la mujer, orientados a verificar si medió una relación asimétrica de poder caracterizada por prácticas derivadas de prejuicios sociales, estereotipos machistas o patriarcales, o religiosos”. 
+(iii) “Del testimonio del infante víctima de delitos sexuales”. 
+(iv) “En cuanto a las declaraciones rendidas por el infante víctima de delitos sexuales previo al juicio oral, la Corte ha destacado el compromiso ético de otorgar un tratamiento privilegiado a este grupo poblacional, con el fin de hacer efectiva la protección reforzada a la que tienen derecho. En ese sentido, se ha venido decantando una línea jurisprudencial sobre esos elementos (como pruebas de referencia admisibles) que se orienta por un tratamiento privilegiado de esos medios de conocimiento, en cuanto a las exigencias para su incorporación y los fines para los cuales pueden ser utilizadas en el debate procesal. Con ese fin se establecieron las siguientes premisas: …”. 
+(v) “Finalmente, en caso de que los medios de conocimiento acerca de la ocurrencia y materialidad del delito, o de la responsabilidad del acusado en el mismo, ostentan la condición de ser de referencia (como lo sería la declaración anterior al juicio oral rendida por el menor de edad), el fallador no podrá soportar en ellos, exclusivamente, una declaración de condena, en observancia de la tarifa legal negativa asignada a esos elementos, según lo dispuesto en el segundo inciso del art. 381 de la Ley 906 de 2004.”. 
+(vi) “La prueba de corroboración periférica”. 
+(vii) “Para evitar hacer un listado taxativo de las formas de corroboración de la declaración de la víctima, la Sala ha indicado los siguientes ejemplos de corroboración en casos de delitos sexuales con menores de edad: …”.
+
+---
+
+# PROVIDENCIA DDP 8332
+
+**Número de Providencia (DDP 8332):** SP2099-2025
+**Radicación (DDP 8332):** 60274
+**Decisión (DDP 8332):** SMS DEL 30.12.2025
+
+**Lista de Temas (DDP 8332):**
+(i) Un acto sexual violento con la pena de una injuria por vías de hecho. 
+(ii) “Antes de empezar, es pertinente recordar que en los casos de terminación anticipada del proceso, bien sea por vía del allanamiento a cargos, ora por el sendero de la negociación, la Sala tiene dicho que el procesado solamente posee interés para controvertir, a través de los recursos legales (apelación o casación), la vulneración de sus garantías fundamentales, el quantum de la pena y los aspectos referidos a su determinación; aunque, frente al segundo tópico, no puede alegar inconformidad si tales aspectos fueron objeto de preacuerdo, siempre y cuando el juez los haya respetado …”. 
+(iii) “La anterior rememoración del discurrir y auténticos términos de la negociación entre la Fiscalía y el procesado ZAMORA ARCILA, y la consecuente aprobación por el juez primer grado, permite afirmar sin mayores lucubraciones, por la propia objetividad de lo recapitulado, la improsperidad de la queja del censor, pues, en este caso, en ningún momento del preacuerdo llegó a ser considerada la variación de la calificación de los hechos jurídicamente relevantes, para dar al suceso un nomen iuris distinto del que realmente le corresponde, y por esa vía permitir, conforme a la pena finalmente impuesta, la concesión de subrogados, en armonía con la pretendida «nueva» adecuación del hecho.”. 
+(iv) “Conclúyase de lo anterior que tampoco está llamada a prosperar la crítica del demandante, aupada por el Delegado de la Fiscalía, en el sentido de que los juzgadores interpretaron erradamente el citado artículo 350-2 de la Ley 906 de 2004, porque, como lo revelan las precisiones sobre la actuación y la última cita jurisprudencial, los falladores acogieron el criterio vigente al momento de la celebración del preacuerdo, ceñido el mismo —parcialmente, como ahora se destacará— a los derroteros más recientes fijados por esta Sala de Casación Penal.”. 
+(v) Una disminución punitiva desproporcionada. 
+(vi) La imposibilidad de nulitar en este caso.
+
+---
+
+# PROVIDENCIA DDP 8333
+
+**Número de Providencia (DDP 8333):** AP81292025
+**Radicación (DDP 8333):** 62381
+
+**Lista de Temas (DDP 8333):**
+(i) La nulidad. 
+(ii) El debido proceso. 
+(iii) “La defensora solicita la declaratoria de nulidad, argumentando la violación del debido proceso de su defendido, basándose en dos puntos: El retén no fue legalmente establecido y el procedimiento debió haber sido realizado por la Policía de Tránsito y no por las Fuerzas Militares.”. 
+(iv) El principio de trascendencia. 
+(v) El principio de autonomía en casación. 
+(vi) “La prueba indiciaria surge de un hecho indicador, probado en el proceso, del cual el operador judicial infiere lógicamente la existencia de otro, es decir, el indicio es un hecho conocido del cual se deduce otro desconocido. Así pues, la operación del juez al encontrarse con un indicio, consiste en tomar el hecho demostrado y analizarlo bajo las reglas de la experiencia y de la lógica, para que como resultado aparezca la conclusión lógica que se está buscando”. 
+(vii) El principio de limitación. 
+(viii) “En conclusión, como se observa en el fallo de segunda instancia69, la autonomía del delito de lavado de activos, en un principio, permite su investigación y sanción independiente del delito fuente que originó los bienes ilícitos. Así, en el nivel sustantivo (protege un bien jurídico distinto, esto es el orden económico y social), y en el procesal (no requiere condena previa del delito precedente).”. 
+(ix) “la violación directa de la ley sustancial”. 
+(x) No se alegó en la apelación, ahora imposible resulta hacerlo en casación. 
+(xi) “Ahora, en cuanto a la presunta interpretación errónea del artículo 45 de la ley 599 de 2000, respecto a la pena de inhabilitación para el ejercicio de funciones públicas impuesta a LUIS JAVIER MORERA ROJAS, se debe precisar que dicha disposición establece que la pena accesoria de inhabilitación opera como complemento de la pena principal, sin que ello implique una aplicación indebida de la norma.”.  
+(xii) Violación indirecta de la ley sustancial. 
+(xiii) “En cuanto a la falta de justificación de la tenencia del dinero, la jurisprudencia ha establecido que ocultar el origen de bienes es suficiente para configurar el delito de lavado de activos.”. 
+(ivx) “De acuerdo con lo anterior, el falso juicio de identidad no se sostiene, pues, según el análisis probatorio realizado por las instancias judiciales, confirma que no hubo tergiversación ni alteración sustancial de la prueba. La defensa argumentó una interpretación errónea de los videos y testimonios, pero la valoración de los jueces se basó en un análisis integral de los elementos disponibles, sin distorsionar su contenido. Según se enfatiza en la sentencia cuestionada.”. 
+(xv) Del alegado “falso juicio de identidad por “tergiversación””.
+
+---
+
+# PROVIDENCIA DDP 8334
+
+**Número de Providencia (DDP 8334):** AP8503-2025
+**Radicación (DDP 8334):** 63113
+**Decisión (DDP 8334):** SMS DEL 31.12.2025
+
+**Lista de Temas (DDP 8334):**
+(i) La “intrascendencia obliga de la inadmisión de la demanda.”. 
+(ii) “De esta manera, al recurrente no le basta con verificar objetivo el yerro notorio, sino que además le cabe la carga de determinar cómo ese vicio incide, en el caso concreto, en la manifestación del fallador, para efectos de obligar revocar o mutar lo resuelto.”. 
+(iii) “Lo primero que cabe precisar al recurrente, es que los errores de derecho se diferencian con mucho de los de hecho y, entonces, si se dice que se presentan los primeros, debería demostrarse que lo ocurrido refiere un falso juicio de legalidad -cuando se acepta como válido un medio suasorio inválido, o se invalida uno legítimo- o un falso juicio de convicción -en los casos de tarifa legal, cuando se supera lo demandado por el legislador acerca del efecto de determinado medio-.”. 
+(iv) “De esta forma, si lo alegado, acorde con lo expuesto por el defensor, son vicios por falso juicio de existencia y de identidad, ello atiende a errores de hecho y no de derecho, en cuanto, remiten al examen que se hizo de los medios suasorios y no a su legitimidad.”. 
+(v) “En lo que corresponde al falso juicio de existencia por suposición, que es el propuesto en el cargo, el recurrente debe demostrar que el Tribunal se valió de una prueba inexistente, no allegada al juicio.”. 
+(vi) “Y, en lo que toca con el falso juicio de identidad, este comporta tres aristas -por adición, por omisión y por tergiversación-, que demandan demostrar cómo el sentenciado agregó algo que el testimonio no contiene, segregó de este un apartado importante, o tergiversó el sentido natural de lo que dijo el declarante.”.
+
+---
+
+# PROVIDENCIA DDP 8335
+
+**Número de Providencia (DDP 8335):** AP8504-2025
+**Radicación (DDP 8335):** 64311
+
+**Lista de Temas (DDP 8335):**
+(i) “De cara a la determinación del interés para impugnar sentencias condenatorias producto de la aceptación unilateral o preacordada, la jurisprudencia ha clarificado que hay falta de legitimación en la causa o ausencia de interés jurídico para recurrir cuando se discuten aspectos que impliquen retractación respecto de lo aceptado por el procesado.”. 
+(ii) “La razón de ser de esa limitación es, precisamente, que al sujeto procesal no le asiste interés para recurrir en casación cuando la sentencia impugnada -descartada la vulneración de garantías fundamentales- satisface integralmente sus pretensiones, bien porque acoge su postura unilateral frente a los cargos o porque se dicta en total correspondencia con los acuerdos realizados en el marco de la justicia consensuada.”. 
+(iii) “En ese entendido, como clarifica la jurisprudencia, si la decisión se pronuncia en el sentido reclamado por la parte en la instancia procesal pertinente, aquélla se deslegitima para cuestionarla, pues, habiéndose accedido a sus requerimientos, mal podría haber resultado perjudicada. En modo alguno puede causar daño la decisión judicial que accede a lo pedido, de lo cual deriva que la determinación judicial que se pronuncia en ese sentido no puede ser señalada de haber cometido un error susceptible de ser corregido por vía de los recursos.”. 
+(iv) “En efecto, para la Sala es indiscutible que HÉCTOR ARIEL TRUJILLO infringió la ley penal al llevar consigo un artefacto bélico “sin permiso de autoridad competente”. El porte del arma de manera ilícita se actualizó al momento en que exhibió un salvoconducto vencido hacía casi 12 años, concretamente, el 19 de abril de 2008, pues, ello es equivalente a no tenerlo.”. 
+(v) “De todas maneras, cabe agregar, en punto del interés jurídico con ocasión de la impugnación extraordinaria, es menester que el demandante haya reprochado el fallo de primera instancia y que exista identidad temática entre las pretensiones de la alzada y las de la demanda de casación, con independencia de que sus fundamentos y motivos sean diversos.”.
+
+---
+
+# PROVIDENCIA DDP 8336
+
+**Número de Providencia (DDP 8336):** AP8516-2025
+**Radicación (DDP 8336):** 71133
+**Decisión (DDP 8336):** SMS DEL 2.1.2026
+
+**Lista de Temas (DDP 8336):**
+(i) “Trámite incidental de impugnación de competencia”. 
+(ii) “Previo a resolver el caso, es oportuno recordar que la Sala, en auto CSJ AP2863-2019, 17 jul. 2019, rad. 55616 (ratificada en CSJ AP1720 – 2023), varió su jurisprudencia en torno al trámite de la impugnación de competencia que debe surtirse frente al artículo 54 de la Ley 906 de 2004. En concreto, estableció que cuando se suscite una disputa acerca del funcionario competente de la actuación, se pueden presentar dos situaciones distintas: …”. 
+(iii) “Competencia de los jueces penales municipales con función de control de garantías”. 
+(iv) “Algunas de las situaciones excepcionales para variar la competencia por el factor territorial de los jueces de control de garantías, ocurren cuando: i) el sujeto haya sido aprehendido en área distinta, ii) se encuentre privado de la libertad en establecimiento carcelario de lugar diferente al de la comisión del acontecer fáctico, iii) sea en otro territorio donde deban recopilarse las evidencias físicas o los elementos materiales probatorios pertinentes al caso1 o iv) por la calidad de la víctima, en casos de delitos sexuales y ante la necesidad de darle trámite célere a una audiencia que convoca al acto urgente para asegurar la comparecencia del indiciado”.”. 
+(v) “Frente a la consumación del punible de omisión del agente retenedor o recaudador, la Sala ha venido sosteniendo reiteradamente lo siguiente: …”.
+
+---
+
+# PROVIDENCIA DDP 8337
+
+**Número de Providencia (DDP 8337):** AP8518-2025
+**Radicación (DDP 8337):** 63417
+
+**Lista de Temas (DDP 8337):**
+(i) “La censura se postuló por violación directa de la ley, sentido de quebranto que teóricamente supone aceptar los hechos declarados en el fallo recurrido y abstenerse de cuestionar la valoración probatoria realizada por los juzgadores, por lo cual el debate se circunscribe a la aplicación del derecho, sin que tengan cabida aspectos relacionados con la credibilidad de los elementos de juicio o el acontecer fáctico.”. 
+(ii) “Conviene recordar, en este sentido, que como tres son los conceptos a través de los cuales se llega a la violación directa de una norma de derecho sustantivo, cada uno de ellos exige composiciones argumentativas claramente definidas e independientes.”. 
+(iii) “La falta de aplicación o exclusión evidente de una norma.”.  
+(iv) “la indebida aplicación”.
+
+---
+
+# PROVIDENCIA DDP 8338
+
+**Número de Providencia (DDP 8338):** AP8697-2025
+**Radicación (DDP 8338):** 71204
+**Decisión (DDP 8338):** SMS DEL 5.1.2026
+
+**Lista de Temas (DDP 8338):**
+(i) “En lo relativo al incidente de definición de competencia, la Sala tiene establecido que para que sea procedente acudir al trámite contemplado en el artículo 54 de la Ley 906 del 20043, es necesario la existencia de controversia, bien sea entre las partes o intervinientes de una actuación o entre dos autoridades judiciales.”. 
+(ii) “Ahora, si bien dicha tesis está prevista para las manifestaciones de competencia o declaratoria de incompetencia que se propongan en el ejercicio de la función de garantías o de conocimiento de procesos penales ordinarios, en la práctica, ello se ha extendido a la fase de ejecución de la pena, con las siguientes variables:”. 
+(iii) “Mientras el Juez Cuarto de Ejecución de Penas y Medidas de Seguridad de Manizales rehusó el conocimiento del asunto porque la mencionada se encuentra cumpliendo su servicio de utilidad pública en la «Confraternidad carcelaria de Colombia, regional Risaralda », con sede en Pereira; su homólogo Cuarto de Pereira disiente de dicha postura, por cuanto la condenada no se encuentra privada de la libertad.”. 
+(iv) “… en la providencia AP8312-2016 del 30 de noviembre 2016, (Rad. 49271) se establecieron algunas subreglas para la resolución de los problemas jurídicos relacionados con la determinación del juez competente en materia de ejecución de penas y medidas de seguridad. En ese ocasión se indicó:”. 
+(v) “Lo anterior significa que, el factor personal que acompaña al condenado en la ejecución de la sanción determina que la competencia del juez de ejecución de penas y medidas de seguridad. Así, por el lugar donde se encuentre ubicado el establecimiento carcelario si el sentenciado está recluido o, en aquél donde se emitió la sentencia de primera instancia en el evento en que se halle en libertad.”. 
+(vi) “No obstante, estas reglas de competencia tienen aplicación, únicamente, cuando la restricción de la libertad tiene origen en el cumplimiento de una sentencia en firme, más no, por ejemplo, en una medida de aseguramiento impuesta en otro proceso que aún se encuentra en curso (Cfr. AP881-2020, Rad. 56801).”.
+
+---
+
+# PROVIDENCIA DDP 8340
+
+**Número de Providencia (DDP 8340):** SP2499-2025
+**Radicación (DDP 8340):** 60397
+
+**Lista de Temas (DDP 8340):**
+(i) “No obstante, la Sala debe reiterar su criterio consistente en que, tratándose de prueba directa, es suficiente con lo declarado por el testigo en la audiencia de juicio oral para soportar la sentencia de condena, siempre y cuando se considere creíble, en la medida en que ella se soporta en consideraciones cualitativas y no cuantitativas (CSJ SP833-2024, rad. 57803).”. 
+(ii) El principio de congruencia y su supuesta vulneración. 
+(iii) “Ahora bien, es cierto que en el escrito de acusación y en la audiencia de formulación de acusación, el Fiscal 196 Seccional, refiriéndose a uno de los episodios de agresión o violación sexual imputados, sustituyó lo relacionado con la lengua dentro de la vagina por la expresión «sexo oral». No obstante, resulta muy obvio que se trató de una precisión o variación terminológica, no de la supresión o el retiro del componente fáctico del acceso carnal abusivo objeto de acusación.”. 
+(iv) “La Sala no desconoce que la ausencia de hechos jurídicamente relevantes en la formulación de la acusación, no puede suplirse o convalidarse con lo comunicado en la audiencia de formulación de imputación. Sobre este punto, el mismo impugnante cita la sentencia CSJ SP3831-2019, 17 sep. 2019, rad. 47671.”. 
+(v) “Como suele ocurrir con los delitos que se cometen a puerta cerrada o de manera clandestina, el testimonio directo incriminatorio proviene de la propia víctima. Al respecto ha sido ampliamente reconocido por la Corte: …”. 
+(vi) “La víctima en esta clase de delitos es un testigo de excepción, por cuanto es sobre ella que se ejecutan las maniobras libidinosas en escenarios que generalmente carecen de la presencia de terceros (SP684-2024). Por tanto, se exige que la valoración de su testimonio se realice con especial cuidado y esmero.”. 
+(vii) “Como lo ha señalado la jurisprudencia de la Sala, a través de la prueba de corroboración se puede otorgar una mayor credibilidad a la versión de la víctima, cuando probatoriamente se constatan datos como: 
+(i) la inexistencia de razones para que la víctima y/o sus familiares mientan con la finalidad de perjudicar al procesado; 
+(ii) el daño psíquico causado a raíz del ataque sexual; 
+(iii) el estado anímico de la víctima en los momentos posteriores a la ocurrencia de los hechos, entre otros (Cfr. SP108-2019, CSJ SP-2024, 7 feb. 2024, rad. 60307).”. 
+(viii) “En CSJ SP3332-2016, rad. 43886, la Sala expuso otros criterios o elementos de corroboración periférica, con fundamento en la jurisprudencia del Tribunal Supremo Español, veamos: …”. 
+(ix) “Finalmente, como se expuso en el resumen de la sentencia de primera instancia, el fallo absolutorio se fundamentó en que la víctima menor de edad no mostró afectación, congoja o rencor en contra de su agresor durante su testimonio en la audiencia de juicio oral. Además, nunca manifestó haber rechazado los abusos sexuales, con lo que se habría dado a entender su consentimiento. Y, como según lo declarado por algunos testigos la menor era «confianzuda» con el acusado, ello indicaba que nada le había pasado.”. 
+(x) “Entonces, la Sala encuentra necesario llamar la atención al juez de conocimiento para que, en lo sucesivo, aborde los casos de esta naturaleza con perspectiva etaria y de género, con atención de las obligaciones consignadas en los artículos 13, 18 y 19 de la Ley 1719 de 2014, que precisamente establecen los derechos y garantías para las víctimas de violencia sexual y las recomendaciones para los funcionarios judiciales en el tratamiento de la prueba, pues en su sentencia, revocada en segunda instancia por el Tribunal Superior de Bogotá, se evidencian prejuicios y falsas reglas de la experiencia que desconocen abiertamente dichas obligaciones.”.
+
+---
+
+# PROVIDENCIA DDP 8341
+
+**Número de Providencia (DDP 8341):** AP8728-2025
+**Radicación (DDP 8341):** 63976
+**Decisión (DDP 8341):** SMS DEL 6.1.2026
+
+**Lista de Temas (DDP 8341):**
+(i) “En el presente asunto, la Sala se abstendrá de examinar la demanda de casación presentada por el defensor de CARLOS ANDRÉS VANEGAS MEDINA, contra el fallo de segunda instancia, comoquiera que resulta insoslayable analizar, en virtud del principio de favorabilidad, la aplicación de lo consignado en la Ley 2477 de 2025, en lo concerniente a la declaratoria de extinción de la acción penal por la reparación integral del daño causado.”. 
+(ii) “La ley 2477 de 20251, en sus artículos 3º y 4º, dispone: …”. 
+(iii) “Vigente la norma, para la Sala es claro que la reciente normatividad debe aplicarse, en virtud del principio de favorabilidad, en todos los casos en curso y futuros que satisfagan las exigencias que para el efecto fijó la Sala en decisión AP546-2025, radicado 62410 del 13 de agosto de la presente anualidad, a saber: …”.
+
+---
+
+# PROVIDENCIA DDP 8342
+
+**Número de Providencia (DDP 8342):** AP8761–2025
+**Radicación (DDP 8342):** 70144
+
+**Lista de Temas (DDP 8342):**
+(i) “En los casos de terminación anticipada del proceso, bien sea por vía del allanamiento a cargos, ora por el sendero de la negociación, la Sala tiene dicho (Cfr. CSJ AP, 14 sept. 2009, rad. 32032) que el procesado solamente posee interés para controvertir, a través de los recursos legales (apelación o casación), la vulneración de sus garantías fundamentales, el quantum de la pena y los aspectos referidos a su determinación y forma de ejecución, siempre y cuando estos últimos no se hubieren acordado, pues, de haberlo sido, solo pueden ser atacados si el juez los desconoce.”. 
+(ii) “En este caso, si bien es cierto, el demandante acertó en la postulación de la censura a través de la causal segunda del artículo 181 de la Ley 906 de 2004, pues, la indebida estructuración de los hechos jurídicamente relevantes en la formulación de imputación comporta una lesión al debido proceso, también lo es que el desarrollo de la censura no deja de ser un nuevo intento de retractación de los cargos aceptados por su prohijado en la audiencia de formulación de imputación; ello, a partir de un discurso extraño a la realidad procesal, del que refulge su impertinente pretensión de retrotraer el trámite de la actuación por circunstancias completamente ajenas a la vulneración de garantías.”. 
+(iii) “Así las cosas, ante el comprobado acierto de la fiscalía en el deber de exponer la relación clara, precisa y concreta de los hechos jurídicamente relevantes, así como el acoplamiento que tal conducta encontró en la normatividad sustantiva penal, resulta inadmisible que el censor pretenda, a través de este recurso extraordinario (incluido los cargos principal y subsidiario), esbozar un supuesto yerro en torno a la tipicidad de tal comportamiento, alegación impropia que, sin comprobación alguna, se convierte en una forma disimulada de retractarse, una vez más, de los cargos aceptados.”. 
+(iv) “Precisamente, en relación con el principio de irretractabilidad consagrado en el artículo 293 de Lay 906 de 2004, ha reiterado la Sala , que, …”. 
+(v) “Cuando el procesado acepta cargos renuncia a cualquier tipo de controversia posterior que conduzca a exonerarse de responsabilidad penal, en el entendido, a la par, que también la fiscalía depone su labor investigativa y la consecuente posibilidad de hacer más gravosa la conducta, entre otras razones, porque le es permitido modificar el nomen iuris de la conducta en la acusación, sin limitaciones …”. 
+(vi) “La Corte deja en claro que no existe la obligación legal de detallar hasta la saciedad las categorías dogmáticas de cada ilicitud. Basta su abordaje en el cuerpo de la sentencia, con la adecuada explicación.”.  
+(vii) “Además, cabe resaltar, cuando se trata de la aceptación de cargos operada en sede de la formulación de imputación, del juez no se espera una muy profunda o decantada elaboración dogmática, conceptual o probatoria, precisamente, porque el allanamiento a cargos implica la renuncia a controvertir tales aspectos.”. 
+(viii) “Acerca de la supuesta afectación del derecho a la defensa técnica, abordada por el libelista a partir de exponer el que entiende equivocado asesoramiento de los profesionales del derecho que lo antecedieron, la jurisprudencia de la Corte ha sido prolífica en un tema de suyo subjetivo que dice relación con la independencia y autonomía propias del profesional del derecho.”. 
+(ix) “Es claro que en estos temas no existen verdades reveladas ni mecanismos únicos y es precisamente la particularidad de cada caso el factor a examinar para definir si hubo o no comportamiento negligente u omisivo y, a renglón seguido, si esta falta de actividad tuvo efectos trascendentes que perjudicaron la condición sub iudice del vinculado penalmente.”.
+
+---
+
+# PROVIDENCIA DDP 8343
+
+**Número de Providencia (DDP 8343):** SP2454-2025
+**Radicación (DDP 8343):** 66278
+**Decisión (DDP 8343):** SMS DEL 7.1.2026
+
+**Lista de Temas (DDP 8343):**
+(i) “La estructura típica del delito de contrato sin cumplimiento de requisitos legales”. 
+(ii) “La estructura típica del delito de peculado por apropiación, agravado por la cuantía”. 
+(iii) “Aunque el legislador tiene previsto la existencia de un peculado culposo (artículo 400 del Código Penal), el delito materia de análisis, peculado por apropiación (artículo 397) solo admite la modalidad dolosa, pues su consumación está atada al conocimiento de la sustracción de los bienes públicos y la voluntad de incorporarlos en la esfera privada del sujeto activo o de un tercero.”. 
+(iv) “Los principios que rigen la contratación estatal”. 
+(v) “Del fraccionamiento de contratos”. 
+(vi) “De tal manera, para advertir configurado un indebido fraccionamiento deben concurrir las siguientes circunstancias: «1) Que sea posible pregonar la unidad de objeto en relación con el contrato cuya legalidad se cuestiona y, de ser así, 2) determinar cuáles fueron las circunstancias que condujeron a la administración a celebrar varios contratos, pues solo de esta manera se puede inferir si el actuar se cimentó en criterios razonables de interés público, o si por contraste, los motivos fueron simulados y orientados a soslayar las normas de la contratación pública».”. 
+(vii) “Del principio de confianza”. 
+(viii) “En ese orden de ideas, el titular de la función contractual no puede eximirse de responsabilidad frente a la constatación de la legalidad del trámite precedente, basado en que éste se hallaba asignado a un subalterno, toda vez que, si bien, la «administración pública tiene un desempeño complejo, pues requiere la intervención de numerosos funcionarios, (…) no por ello, puede escudarse la defensa en el principio de confianza y buena fe, dado que la función del procesado no se agota con el examen formal de la actuación, ni con la firma mecánica de los contratos, por el contrario, su deber ineludible radica en “observar” o “verificar” el cumplimiento de los requisitos legales esenciales antes de proceder a la “tramitación”, “celebración” o “liquidación” del contrato» …”. 
+(ix) “Se debe recordar que el principio de planeación, «como pilar de la actividad negocial, exige que la decisión de contratar responda a necesidades identificadas, estudiadas, evaluadas, planeadas y presupuestadas previamente a la contratación por parte de la administración», pues la contratación pública no puede dejarse a la liberalidad de las interpretaciones que surjan frente a su procedencia.”. 
+(x) “En todo caso, conviene indicar que la Sala tampoco emitirá juicios de valor frente a documentos que la defensa adjuntó con la sustentación de la apelación, alusivos al Comité de Contratos, pese a ser consciente de su ilegalidad, por no haber sido incorporado conforme al debido proceso probatorio.”. 
+(xi) Modificación de la dosificación punitiva en este caso.
+
+---
+
+# PROVIDENCIA DDP 8344
+
+**Número de Providencia (DDP 8344):** SP2423-2025
+**Radicación (DDP 8344):** 63935
+
+**Lista de Temas (DDP 8344):**
+(i) “Esta Sala es competente para pronunciarse de manera oficiosa frente a la legalidad de las penas conforme a lo dispuesto por el artículo 184 de la Ley 906 de 2004. Así obrará en el entendido que con el recurso de casación se «pretende la efectividad del derecho material, el respeto de las garantías de los intervinientes, la reparación de los agravios inferidos a éstos y la unificación de la jurisprudencia» (art. 180 CPP). Al respecto ha señalado la Sala: …”. 
+(ii) “En el caso de la pena principal, el Tribunal partió del mínimo para el caso del feminicidio agravado tentado, proceso de dosificación que realizó al haber modificado la conducta por la cual se produjo la condena en primera instancia. Ahora bien, en relación con el segundo delito, uso de documento falso, el aumento no lo realizó respetando el proceso de dosificación realizado por el a quo, sino realizando un aumento porcentual que explicó así: …”. 
+(iii) “Para la Corte no existió un fundamento que explicara por qué, en relación con el segundo delito, el aumento debió hacerse de manera porcentual. En primera instancia fue fijado en 8 meses de forma discrecional siguiendo las reglas del artículo 31 del Código Penal al señalar que el aumento se realizará «hasta en otro tanto». Entonces, el criterio fijado por el ad quem se torna novedoso, implicó un incremento no justificado de la sanción principal y no encuentra una explicación, pues nada se discutió sobre el delito de uso de documento falso. Por lo anterior, se violó el principio de legalidad de la pena y debido proceso del sentenciado.”. 
+(iv) “En relación con las penas privativas de otros derechos, se encuentra la inhabilitación para el ejercicio de derechos y funciones públicas (art. 43, núm. 1. CP). Consiste en la privación «de la facultad de elegir y ser elegido, del ejercicio de cualquier otro derecho político, función pública, dignidades y honores que confieren las entidades oficiales» (art. 44 CP).”. 
+(v) “Esta pena puede ser principal o accesoria y su proceso de dosificación ha sido explicado por esta Sala así (CSJ SP340, 19 feb. 2025, rad. 63481): …”.
+
+---
+
+# PROVIDENCIA DDP 8345
+
+**Número de Providencia (DDP 8345):** AP9071-2025
+**Radicación (DDP 8345):** 71041
+**Decisión (DDP 8345):** SMS DEL 8.1.2026
+
+**Lista de Temas (DDP 8345):**
+(i) “En virtud del artículo 46 del Código de Procedimiento Penal, el cambio de radicación puede disponerse como excepción a las reglas de competencia por el factor territorial, cuando se acredita que en el lugar donde se tramitan las diligencias existen comprobadas «circunstancias que puedan afectar el orden público, la imparcialidad o la independencia de la administración de justicia, las garantías procesales, la publicidad del juzgamiento, la seguridad o integridad personal de los intervinientes» en el proceso.”. 
+(ii) “El fundamento de esta figura se encuentra en que «en la zona específica donde se adelanta la actuación no es posible conjurar los factores o circunstancias que afectan el orden público, la imparcialidad, la independencia o, en fin, todos esos mínimos requeridos para que el juzgamiento discurra adecuado» (CSJ AP2866-2019, 17 jul. 2019, rad. 55650).”. 
+(iii) “Respecto del trámite que debe surtir el incidente de cambio de radicación, con fundamento en los artículos 47, 48 y 49 del Código de Procedimiento Penal, la Corte ha establecido lo siguiente: …”. 
+(iv) “Es decir que, con independencia del lugar al cual se pide el envío del proceso (al mismo distrito judicial o a otro), «corresponde al juez de conocimiento pronunciarse sobre el cumplimiento de los requisitos adjetivos para la procedencia de la solicitud, y al tribunal sobre sus fundamentos, con el fin de determinar si es posible conjurar los factores que amenazan la recta impartición de justicia en el mismo distrito judicial, o es necesario acudir a otro distrito.» …”. 
+(v) “Dicho de otra manera, corresponde al juez de conocimiento pronunciarse respecto de los requisitos formales de la solicitud de cambio de radicación, pues, de no cumplir con ellos, debe rechazarla de plano (artículo 48), mientras que, en caso afirmativo, debe remitir el expediente al superior. A su vez, los tribunales superiores deben resolver sobre la solicitud de cambio de radicación de los procesos que conozcan los juzgados de su jurisdicción, ya sea que se trate de peticiones de cambio al interior del mismo distrito judicial o a otro distinto. En caso de no encontrar procedente la petición, así lo declarará, «mediante auto contra el cual no procede recurso alguno» (ibid.); pero, de estimar conveniente el cambio de radicación, «señalará el lugar donde deba continuar el proceso», si se trata de otro juzgado de su ámbito territorial, o, si considera que se debe trasladar a otro distrito, «la solicitud pasará a la Corte Suprema de Justicia para que decida» (artículo 49).”.
+
+---
+
+# PROVIDENCIA DDP 8346
+
+**Número de Providencia (DDP 8346):** AP8923-2025
+**Radicación (DDP 8346):** 70409
+
+**Lista de Temas (DDP 8346):**
+(i) “Cabe recordar que esta Corporación, a través del auto CSJ AP8312-2016, decantó las reglas relevantes para la determinación del juez competente en materia de ejecución de penas y medidas de seguridad, las cuales son aplicables tanto para los casos de sentencias condenatorias proferidas bajo la égida de la Ley 906 de 2004, como para aquellas dictadas en el marco de la Ley 600 de 2000. Al respecto indicó: …”. 
+(ii) “Bajo ese panorama, la competencia para la vigilancia de la sanción corresponde, según el factor personal que acompaña al condenado, al juez de penas y medidas de seguridad del lugar donde se encuentre ubicado el establecimiento carcelario, si se encuentra privado de la libertad, o del lugar donde se dictó la sentencia de primera instancia, en el evento en que se encuentre en libertad.”. 
+(iii) “De igual manera, esta Corporación ha referido que ese criterio solo es aplicable cuando la restricción de la libertad obedece al cumplimiento de una sentencia en firme, mas no cuando aquella es consecuencia de una medida de aseguramiento consistente en detención preventiva dictada al interior de un proceso en curso.”. 
+(iv) “Es claro, que la regla según la cual, cuando el sentenciado se encuentra privado de la libertad, vigila el cumplimiento de la sanción el juez de ejecución de penas [d]el lugar donde se encuentra ubicado el centro penitenciario en el que descuenta la misma, es predicable únicamente en aquellos eventos donde la restricción de la libertad obedece al cumplimiento de una sentencia en firme, mas no cuando deriva de medida de aseguramiento de detención preventiva, proferida dentro de procesos en curso.”. 
+(v) “Bajo tales presupuestos, le asiste razón al Juzgado 6° de Ejecución de Penas y Medidas de Seguridad de Tunja al indicar que carece de competencia para materializar la amnistía reconocida por la Sala de Amnistía o Indulto de la Jurisdicción Especial para la Paz en Resolución SAI-DF-ASM-044-2022 de 15 de diciembre de 2022; pues, desde que LUIS ENRIQUE MORA GUASCA recobró su libertad por la designación antes mencionada, su situación jurídica no ha mutado.”. 
+(vi) “En ese sentido, lo adecuado es dar aplicación a la línea jurisprudencial de la Corte que indica que, ante un asunto con persona en libertad, corresponde conocer la fase de vigilancia de la sanción penal al juzgado de ejecución de penas y medidas de seguridad de la circunscripción territorial de la autoridad judicial que emitió el fallo condenatorio.”.
+
+---
+
+# PROVIDENCIA DDP 8347
+
+**Número de Providencia (DDP 8347):** SP2403-2025
+**Radicación (DDP 8347):** 65216
+**Decisión (DDP 8347):** SMS DEL 9.1.2026
+
+**Lista de Temas (DDP 8347):**
+(i) “El recurrente propone un ejercicio de ponderación de diferentes elementos contextuales que arroje como conclusión la escasa lesividad del comportamiento de DIÓGENES SÁNCHEZ PRECIADO de cara al bien jurídico tutelado por el delito de violencia intrafamiliar, contemplado en el artículo 229 del C.P.”. 
+(ii) La violencia intrafamiliar. 
+(iii) “El bien jurídico tutelado es la armonía doméstica y la unidad familiar, sancionando penalmente el maltrato físico  o psicológico infligido sobre algún integrante de la familia (CSJ SP16544-2014, AP1097-2021 y SP3261-2020). Lo que se protege no es la familia en abstracto, sino la coexistencia pacífica de un proyecto colectivo que supone el respeto por la autonomía ética de sus integrantes …”. 
+(iv) “Igualmente, se ha decantado que la violencia intrafamiliar no busca proteger, primariamente, la integridad personal de los miembros de la familia, sino el respeto a la dignidad, a la autodeterminación, a la igualdad de aquellos, todo ello encaminado a la protección de la convivencia armónica …”. 
+(v) “Por tanto, corresponde al juez en cada caso constatar si la violencia física o el maltrato psicológico tienen suficiente entidad para lesionar de manera efectiva el bien jurídico de la unidad familiar (antijuridicidad material) …”. 
+(vi) “Cabe la observación relativa a la absoluta incorrección del juzgado de primera instancia al permitir la incorporación y valorar declaraciones rendidas por fuera del juicio oral y público, que no tienen rasgos de prueba de referencia admisible. Ese proceder no solo desconoce en forma abierta el debido proceso probatorio, adicionalmente, quiebra las características y principios rectores del sistema de juzgamiento desarrollado en la Ley 906 de 2004.”. 
+(vii) “Frente a esos escenarios se impone la aplicación de la cláusula de exclusión probatoria -arts. 23 y 360 del C.P.-, por ilegalidad, de ahí que, acertó la segunda instancia al dejarlas al margen del proceso y no apreciar su contenido.”.
+
+---
+
+# PROVIDENCIA DDP 8348
+
+**Número de Providencia (DDP 8348):** SP2060-2025
+**Radicación (DDP 8348):** 60123
+
+**Lista de Temas (DDP 8348):**
+(i) “Recordemos que al demandante invocó la aplicación errónea de los artículos 31, 60, 61 y 401 de la Ley 599 de 2000, en lo que concierne a la normativa que regula lo atinente al concurso de conductas punibles, la individualización de la pena, los parámetros para la determinación de los mínimos y máximos aplicables, en particular, en lo que corresponden al delito de peculado por apropiación y las circunstancias específicas de atenuación punitiva.”. 
+(ii) “Por tanto, la Corte, de conformidad con las reglas señaladas en el artículo 31 de la Ley 599 de 2000, en respuesta al segundo cargo de la demanda de casación procederá a realizar la individualización de la pena, tomando en consideración la comisión de las cuatro conductas punibles de peculado por apropiación. Para el efecto, en la aplicación de la pena por los delitos de peculado por apropiación: i) se establece la pena por cada una de las conductas punibles en concurso, ii) luego se determina cuál es la pena más grave, iii) enseguida se fija incremento de la pena por el concurso de e delitos, iv) se observa que la pena sólo puede incrementarse hasta otro tanto, sin que supere las suma aritméticas de todas las conductas punibles, y, v) determinado el quantum punitivo por las conducta punibles en concurso se aplica lo dispuesto en el inciso 1º del artículo 401 ibidem., respecto del reintegro de lo apropiado.”. 
+(iii) “El recurrente considera que el ad quem habría incurrido en la violación directa de la ley sustancial por interpretación errónea por falta de aplicación de los artículos 38G y 64 y aplicación indebida del artículo 68 A de la Ley 599 de 2000, inconsistencias derivadas de no atender las postulaciones para la concesión de la prisión domiciliaria a favor de la procesada ADRIANA MILENA RODRÍGUEZ RAMOS.”. 
+(iv) “Por tanto, cuando la solicitud de prisión domiciliaria se invoque con fundamento en el artículo 38 G ibidem., no es dable negar con fundamento en las exclusiones consignadas en el artículo 68 A ibidem., sino que deberá respetar las condiciones y prohibiciones que para el mismo beneficio impone la propia norma.”. 
+(v) “Por tanto, conforme al núcleo del cargo en demanda de casación, le asiste razón a la recurrente en cuanto a que ADRIANA MILENA RODRIGUEZ, condenada por los delitos de peculado por apropiación, se hace merecedora a que se le reconozca el sustituto de la prisión domiciliaria reglado en el artículo 38 G de la Ley 599 de 2000. Sobre este punto se observa: …”.
+
+---
+
+# PROVIDENCIA DDP 8349
+
+**Número de Providencia (DDP 8349):** SENTENCIA TP-SAR-No. 001 DE 2025
+**Radicación (DDP 8349):** No especificado
+
+**Lista de Temas (DDP 8349):**
+Condena en la JEP al coronel ® PUBLIO HERNÁN MEJÍA GUTIÉRREZ.
+
+---
+
+# PROVIDENCIA DDP 8350
+
+**Número de Providencia (DDP 8350):** No especificado
+**Radicación (DDP 8350):** CUI 11001-31-87-006-2026-00022-00
+**Decisión (DDP 8350):** SMS DEL 13.1.2026
+
+**Lista de Temas (DDP 8350):**
+Hábeas Corpus en favor de NICOLÁS MADURO MOROS.
+
+---
+
+# PROVIDENCIA DDP 8351
+
+**Número de Providencia (DDP 8351):** No especificado
+**Radicación (DDP 8351):** CUI 73001
+**Decisión (DDP 8351):** 60.99.355.2021.53414.01. REVOCA LA ABSOLUCIÓN Y CONDENA.
+
+**Lista de Temas (DDP 8351):**
+(i) “La Corte ha explicado que el principio de prioridad comporta que los cargos contra la sentencia del Tribunal deban ser presentados en un orden lógico, de manera tal que aquel de mayor cobertura y trascendencia se presente como principal, pues así se facilita el trabajo del juez de casación; como que, de prosperar, se torna inoficioso el estudio de las censuras restantes.”. 
+(ii) La nulidad. 
+(iii) “La Corte Suprema de Justicia en el avance de su jurisprudencia, ha sostenido que en el hipotético caso de que los jueces de control de garantías o de conocimiento, no controlen formalmente el acto de imputación o de acusación, según el caso, que contenga descripciones fácticas confusas, atípicas o carentes de claridad, la actuación quedará viciada de nulidad, siempre que genere violación de derechos fundamentales.”. 
+(iv) “En consecuencia, al hacer el control que corresponde respecto del contenido de los hechos jurídicamente relevantes vs la adecuación típica que propuso la fiscalía desde los orígenes de la investigación, resulta improcedente la petición de nulidad que invocó el apoderado judicial de la víctima, por cuanto si bien la acusación se trata de un acto de parte, por ese solo hecho no puede dejar de pasar por el tamiz judicial para determinar que los hechos jurídicamente relevantes tengan una relación directa, concreta y consecuente con la norma que se pregona como vulnerada en aras del respecto y garantía del principio de legalidad.”. 
+(v) “Aplicó en debida forma el principio de congruencia el Juez 16° Penal Municipal de Ibagué al absolver a Joulin Mayerlly Jiménez Moreno de la conducta punible de violación de datos personales al no estar acreditado el verbo rector de “obtener” sin haber examinado otros verbos alternativos, como sería el caso de “divulgar” y por tal razón se debe revocar para condenar.”. 
+(vi) “Según el Alto Tribunal de Justicia en lo Penal, el Juez puede condenar bajo una calificación jurídica distinta, claro está, sin que se afecte el núcleo fáctico de la imputación y los derechos y garantías del acusado, así en providencia, precisó lo siguiente: …”. 
+(vii) La historia clínica es reservada. 
+(viii) “… la historia clínica es un documento sometido a reserva que admite ser conocido por terceros de forma excepcional, cuando: 
+(i) lo autoriza expresamente el titular, 
+(ii) existe orden de autoridad judicial competente en ejercicio de sus funciones, 
+(iii) los familiares del titular del dato acrediten ciertos requisitos, o 
+(iv) las personas que acceden a ella por razón del rol que cumplen en el sistema de seguridad social en salud. Por consiguiente, la circulación de datos contenidos en la historia clínica para fines distintos a los descritos viola la reserva de la información y el derecho a la intimidad del paciente.”. 
+(ix) Dosificación punitiva para este caso.
+
+---
+
+# PROVIDENCIA DDP 8352
+
+**Número de Providencia (DDP 8352):** No especificado
+**Radicación (DDP 8352):** CUI 76895600018520220011801 (
+**Decisión (DDP 8352):** AC-140-24).
+
+**Lista de Temas (DDP 8352):**
+(i) “Sobre el estado de ira o intenso dolor”. 
+(ii) “En efecto, la Corte Suprema de Justicia ha reconocido que debe existir una provocación que se dirija a irritar o estimular al agente con palabras y obras, pero no se trata de cualquier conducta, pues esta debe tener características especiales: aquella debe ser, objetivamente, grave, de mucha entidad e importancia, excesiva; y, por otra parte, debe ser un acto injusto, es decir, sin una razón. Los elementos para predicar la atenuante son: …”. 
+(iii) “La Alta Corporación ha señalado que es necesario que de manera previa “se haya generado un acto reprochable, ultrajante y socialmente inaceptable por parte de la víctima, capaz de impactar en el agente que lleva a cabo la conducta”. La conducta ajena debe ser: 
+(i) grave: un comportamiento con la capacidad de desestabilizar emocionalmente al sujeto activo del delito; y 
+(ii) injusta: el agente no está en la obligación de soportar la ofensa y la persona que produce el estado de ira o intenso dolor no tiene “autorización, privilegio o permiso para causar la emoción”.”. 
+(iv) “Asimismo, se debe precisar que el instituto no se orienta a avalar sensaciones personalísimas ni a favorecer temperamentos impulsivos, y excluye formas de justicia por mano propia, venganza y riñas, pues no son admisibles para el derecho.”. 
+(v) La violencia intrafamiliar.
+
+---
+
+# PROVIDENCIA DDP 8353
+
+**Número de Providencia (DDP 8353):** No especificado
+**Radicación (DDP 8353):** CUI 76622600018520230002801 (
+**Decisión (DDP 8353):** AC-136-24). REVOCA LA CONDENA, ABSUELVE Y ORDENA LIBERTAD INMEDIATA.
+
+**Lista de Temas (DDP 8353):**
+(i) “El allanamiento y registro sin orden escrita de la Fiscalía”. 
+(ii) “La expectativa razonable de intimidad es “una zona de protección garantizada en la que el individuo puede actuar basado en la confianza legítima de que no habrá injerencias del Estado o de terceros”, en la medida de que el derecho a la intimidad no es absoluto. El espacio físico en el que las personas adelantan sus actividades se relaciona con el grado de protección a la expectativa razonable de intimidad, como se sintetiza en la siguiente tabla: ...”. 
+(iii) “El artículo 32 de la Constitución, permite a las autoridades adelantar el allanamiento y registro “cuando la persona es sorprendida en flagrancia, es perseguida y se refugia en su propio domicilio, caso en el cual, los agentes de la autoridad están autorizados para ingresar y proceder con la captura, pero si se trata de domicilio ajeno, deberá mediar autorización del morador”. El artículo 229 del código precisa que: …”. 
+(iv) “Asimismo, el artículo 230 del CPP comprende otros tres supuestos excepcionales en los que servidores con funciones de policía judicial pueden adelantar un allanamiento y registro sin una orden escrita de la Fiscalía, que operan cuando: …”. 
+(v) “Sobre el delito de fabricación, tráfico, porte o tenencia de armas de fuego, accesorios, partes o municiones”.
+
+---
+
+# PROVIDENCIA DDP 8354
+
+**Número de Providencia (DDP 8354):** No especificado
+**Radicación (DDP 8354):** CUI 76520600018020220061201 (
+**Decisión (DDP 8354):** AC-279-24).
+
+**Lista de Temas (DDP 8354):**
+(i) “El delito de cohecho por dar u ofrecer”. 
+(ii) “El recurrente reprochó que se condenada al acusado por la mera tipicidad de la conducta pues, en su opinión, no existe una afectación al bien jurídico tutelado de la administración pública. Sobre esto se debe recordar que, para que una conducta típica se pueda catalogar como antijurídica, se requiere que esta: 
+(i) lesiones o ponga en peligro efectivo un bien jurídico tutelado; y que 
+(ii) no esté justificada.”. 
+(iii) “Como se explicó en acápites previos, el cohecho por dar u ofrecer es un delito de peligro. Esto quiere decir que, para su consumación, solo es necesario demostrar la existencia de una amenaza al bien jurídico de la administración pública, sin que tenga que concretarse un resultado específico. En otras palabras, para que se configure la antijuridicidad en este delito solo es necesario demostrar que la persona ha realizado la oferta al servidor público; sin que se deba acreditar que esa autoridad la aceptó.”. 
+(iv) “Se debe agregar que la legalidad del procedimiento de captura fue decidida en su momento por el Juzgado Sexto Penal Municipal con Funciones de Control de Garantías de Palmira, en pronunciamiento que no fue recurrido por la defensa. Pero, más allá de esto, se trata de un tema que no tiene la virtud de eximir la responsabilidad de MIG”.
+
+---
+
+# PROVIDENCIA DDP 8355
+
+**Número de Providencia (DDP 8355):** No especificado
+**Radicación (DDP 8355):** CUI 76834-6000-187-2020-01750- (
+**Decisión (DDP 8355):** AC-415-25). SMS DEL 14.1.2026
+
+**Lista de Temas (DDP 8355):**
+(i) “Teniendo en cuenta la manifestación de inconformidad de la defensa y los fundamentos en que se sostiene el fallo de primer nivel, le corresponde a la Sala establecer si la acción desplegada por ARLES DE JESÚS CARDONA GIRALDO consistente en portar en el bolsillo short 4 cartuchos calibre 38 aptos para el fin bélico que fueron creados, tuvo la potencialidad de poner en riesgo el bien jurídico de la seguridad pública.”. 
+(ii) “Estructura típica del ilícito de fabricación, tráfico, porte o tenencia de armas de fuego, accesorios, partes o municiones, estipulado en el artículo 365 del Código Penal”. 
+(iii) “Antijuricidad material en los delitos de peligro abstracto”. 
+(iv) “Posteriormente la Sala ha dicho respecto de los delitos de peligro abstracto o presunto, que no basta con realizar simple y llanamente el proceso de adecuación típica de la conducta para luego dar por presupuesta su antijuridicidad, pues siempre se impone verificar si en el caso concreto tal presunción legal es desvirtuada por alguna prueba en contrario, dado que de ser ello así, el comportamiento no es antijurídico y sin tal categoría dogmática, la conducta no constituye delito.”. 
+(v) “El artículo 365 del Código Penal describe un tipo penal de peligro abstracto, de modo que el legislador presume que la sola tenencia o porte de armas, partes o municiones sin permiso de autoridad competente constituye un riesgo para la comunidad. Esta presunción normativa responde a razones de política criminal preventiva, orientadas a evitar que elementos bélicos circulen por fuera del control estatal, pues ello incrementa la probabilidad de su uso ilícito y compromete el orden y la seguridad colectiva.”. 
+(vi) “Por esta razón, aun cuando el procesado no portaba un arma de fuego en el momento de su captura que le permitiera detonar los cartuchos, la posesión de municiones reales y aptas para ser disparadas —como se acreditó con el dictamen balístico— supone una amenaza latente a la seguridad pública. Pues, las municiones no son objetos inocuos, en tanto que constituyen instrumentos de agresión letal que, en cualquier circunstancia o momento pueden ser adquiridos, vendidos o empleados por terceros armados, o integrarse a un arma compatible para causar daño.”. 
+(vii) “En efecto, la punibilidad del porte de municiones no depende de la tenencia simultánea del arma, pues la munición, en sí misma, constituye elemento constitutivo del precepto estudiado, y genera un riesgo suficiente para la seguridad pública, dado su potencial lesivo y su destino funcional al disparo.”.
+
+---
+
+# PROVIDENCIA DDP 8356
+
+**Número de Providencia (DDP 8356):** AP8527-2025
+**Radicación (DDP 8356):** 70223
+
+**Lista de Temas (DDP 8356):**
+(i) “La Sala ha puntualizado que la claridad, precisión y  univocidad de los hechos jurídicamente relevantes propuestos por la Fiscalía —entidad que tiene el deber de verificar que los mismos encuentren respaldo suficiente en elementos de juicio, conforme con los estándares de conocimiento establecidos por el legislador para cada fase de la actuación—, son elementos estructurales del debido proceso, pues de ello depende tanto la posibilidad de ejercer la defensa como la realización de un proceso legítimo en el que se consideren los derechos del procesado, los de la víctima y el interés de la sociedad en la adecuada solución de los casos penales.”. 
+(ii) “Si los hechos jurídicamente relevantes no cubren mínimos de claridad, precisión y suficiencia, la solución necesariamente se dirige a recomponer el trámite viciado, en tanto el incumplimiento de dicha carga por parte del ente acusador compromete de forma directa el debido proceso y el derecho de defensa, como ya se dijo.”. 
+(iii) “De otra parte, la Corte también ha señalado que compete al juez ejercer control sobre la atribución jurídica cuando, de la simple contrastación entre los hechos narrados por el ente acusador y la denominación del delito, advierta un exabrupto en la adecuación típica propuesta, o se presenten calificaciones con ostensible deflación o inflación. Es decir, en aquellos casos en los que las imputaciones o acusaciones sean manifiestamente ilegales, corresponde al funcionario judicial no convalidar el respectivo acto de parte.”. 
+(iv) “Ese control que ejerce el juez no se dirige a valorar la suficiencia probatoria para imputar o acusar, ni recae sobre el estándar para hacerlo bajo una determinada connotación jurídica, sino que se reduce a la confrontación entre los hechos narrados y la adecuación típica propuesta por la Fiscalía. En otras palabras, ese cotejo no supone el análisis de las evidencias hasta ese momento recopiladas.”. 
+(v) “En efecto, la valoración de los medios de conocimiento solo puede hacerla el funcionario judicial de manera preliminar para pronunciarse sobre la medida de aseguramiento —juez de control de garantías— y de forma definitiva en la sentencia al decidir sobre la responsabilidad penal —juez de conocimiento— …”. 
+(vi) “La Corte ha precisado en pronunciamientos recientes que la invalidación del trámite procesal, ya sea por una indebida determinación de los hechos jurídicamente relevantes o por la afectación del principio de congruencia, tiene como extremos la imputación y la acusación, en el entendido que esta última etapa procesal opera de manera compleja.”. 
+(vii) “Lo indicado implica que cualquier desarmonía que se evidencie en el escrito de acusación, de cara a lo que consigna la imputación en el tópico de los hechos jurídicamente relevantes, puede modificarse, aclararse o precisarse en el acto mismo de la acusación, precisamente, porque así lo contempla el artículo 339 de la Ley 906 de 2004.”. 
+(viii) “En consecuencia, lo adecuado no es que se pida la nulidad porque los hechos jurídicamente relevantes insertos en el escrito de acusación no son claros o suficientes —igual sucede si los mismos no se compadecen con los propios de la imputación—, sino que ha de esperarse a la apertura de la diligencia de acusación para allí, en la oportunidad pertinente, plantear la necesidad de que se adecuen, precisen, aclaren o corrijan.”.
+
+---
+
+# PROVIDENCIA DDP 8357
+
+**Número de Providencia (DDP 8357):** SP2389-2025
+**Radicación (DDP 8357):** 62887
+
+**Lista de Temas (DDP 8357):**
+(i) “Sobre la casación oficiosa y su aplicación en la Ley 906 de 2004, la Corte tiene dicho que: …”. 
+(ii) “Con ocasión a las referidas situaciones trascendentales (captura en flagrancia y aceptación de cargos), el juez singular le reconoció a la implicada un descuento del “12.5% de la pena a imponer”, conforme al artículo 57 de la Ley 1453 de 2011 , que adicionó el parágrafo del artículo 301 de la Ley 906 de 2004.”. 
+(iii) “No obstante, por virtud del principio de favorabilidad, a la encartada, en este momento, no le resulta aplicable la última normatividad en cita, comoquiera que fue derogada por el artículo 13 de la Ley 2477 de 2025.”. 
+(iv) “En ese sentido, le resulta aplicable el artículo 351 del Código de Procedimiento Penal, el cual refiere que “La aceptación de los cargos determinados en la audiencia de formulación de la imputación, comporta una rebaja hasta de la mitad de la pena imponible, acuerdo que se consignará en el escrito de acusación.””.
+
+---
+
+# PROVIDENCIA DDP 8358
+
+**Número de Providencia (DDP 8358):** SP2076-2025
+**Radicación (DDP 8358):** 64146
+
+**Lista de Temas (DDP 8358):**
+(i) “Sistema probatorio establecido en la Ley 600 de 2000”. 
+(ii) “El principio de contradicción, fundamental del proceso penal y contemplado en el artículo 13 de la Ley 600 de 2000, se proyecta a lo largo de todo el procedimiento. Esto obliga a que se garantice a todas las partes y sujetos intervinientes la igualdad de oportunidades para defender sus derechos. En lo relativo a la práctica de la prueba, se debe garantizar la posibilidad de proponerla y producirla cuando sea procedente. Del mismo modo, la posibilidad de controlar exhaustivamente la aportada por las demás partes, de argumentar sobre su valor probatorio y de formular todas las observaciones pertinentes durante el desarrollo del debate judicial.”. 
+(iii) La inspección judicial en la Ley 600 de 2000. 
+(iv) “En segundo lugar, en cuanto a la participación del imputado o testigos en el lugar de los hechos, el estatuto procesal que rige la materia, establece que: …”. 
+(v) “Precisamente, en jurisprudencia que en vigencia de la Ley 600 de 2000 rigió temas relativos a la defensa técnica, de manera reiterada la Corte explicó que la ausencia de defensor o la desatención de la gestión en un momento determinado del trámite procesal, sólo son susceptibles de invalidar la actuación cuando en las circunstancias particulares del caso concreto se tornan trascendentes: …”. 
+(vi)  “En cuanto a lo primero, la Sala aclara que la prueba pericial, contemplada en el artículo 249 de la Ley 600 de 2000, es un medio de conocimiento técnico, científico o artístico. Su práctica tiene el objetivo de orientar al juez sobre estos aspectos en la investigación y juzgamiento . Sobre esta prueba, a la luz de la ley que rigió el caso, la Corte ha manifestado que: …”. 
+(vii) “La Corte reitera que en el sistema procesal que regula el presente asunto rige el principio de permanencia de la prueba. Por esto, la contradicción probatoria se pudo realizar a lo largo de la etapa de indagación e investigación, hasta antes de que terminara la corte marcial. En consecuencia, la discusión no radica en si la defensa estuvo o no presente al momento del recibimiento de las entrevistas para ejercer el derecho de contradicción. Para la Corte, el asunto a revisar es la validez probatoria que la ley otorga a aquellas pesquisas o averiguaciones que la policía judicial adelanta de manera preliminar, sin que medie orden de autoridad judicial.”. 
+(viii) Las entrevistas en la Ley 600 de 2000. 
+(ix) “La recurrente pide a la Corte que se reste credibilidad a esta versión, pues considera que su dicho, en el sentido de que pudo ver quién le disparó, atenta contra las reglas de la experiencia. Si al momento del impacto estaba de espaldas a los policías, como aseguró en su propia declaración y se acreditó con el dictamen de medicina legal que estableció que la bala ingresó por su espalda, no pudo ver quién disparó. Además, pone en duda que BARRERO ÁLVAREZ haya disparado siguiendo las órdenes de José Aled Rubio, quien era de un rango inferior, lo que implica que no es viable que el procesado le obedeciera.”. 
+(x) “El artículo 233 de la Ley 600 de 2000 establece el indicio como medio de prueba válido en el proceso penal. Sobre el indicio, la Sala tiene decantado que se trata de …”. 
+(xi) “Para apreciar los indicios el juzgador debe acudir a la sana crítica, con el fin de establecer el nivel de probabilidad y así determinar si son necesarios o contingentes, graves o leves. Es una tarea que exige que se sopesen todas las posibilidades que confirman y/o invalidan la deducción que se desprende a partir del hecho indicador. El rechazo de cualquiera de las hipótesis posibles, solo porque se tiene una idea preconcebida, atenta contra la objetiva valoración de la prueba que le corresponde al juzgador.”. 
+(xii) “En primer lugar, la Corte ha sostenido que el acto de huir no es una conducta que por sí misma pueda ser confirmatoria de un hecho delictivo. Esta también puede significar la reacción a otras circunstancias, por ejemplo, el miedo de verse involucrado en una situación que, aunque ajena, sea delictiva. Por tanto, no es una máxima de la experiencia que cuando se huya de un lugar siempre o casi siempre se quiere evadir el señalamiento de la comisión de un delito.”. 
+(xiii) “La Corte no puede dejar de lado que las graves lesiones sufridas por la víctima  se cometieron en un contexto de abuso policial que configura una grave violación a los derechos humanos. Sobre este aspecto, es preciso traer a colación los límites legales y constitucionales para el uso de la fuerza por parte de los organismos de policía. La Corte Constitucional ha señalado que: …”. 
+(ivx) “Por su parte, en la sentencia SU-190 de 2021 esa misma Corporación identificó los parámetros que sirven para establecer cuándo el uso de la fuerza por parte de la policía puede constituir una grave violación de los derechos humanos. Sostuvo que: …”.
+
+---
+
+# PROVIDENCIA DDP 8359
+
+**Número de Providencia (DDP 8359):** SEP153-2025
+**Radicación (DDP 8359):** 01141
+**Decisión (DDP 8359):** CON DOS SALVAMENTOS PARCIALES Y DOS ACLARACIONES DE VOTO. PROCESO EN CONTRA DE CÉSAR ANTONIO LUGO MORALES, EX GOBERNADOR DEL DEPARTAMENTO DEL AMAZONAS.
+
+**Lista de Temas (DDP 8359):**
+(i) “Teniendo en cuenta que la presente sentencia se profiere como resultado de un allanamiento a cargos y que abarca el análisis de treinta y nueve delitos, esta Sala se limitará a invocar jurisprudencia sobre los punibles juzgados únicamente en la primera oportunidad en que sean mencionados, evitando reiteraciones innecesarias. Del mismo modo, las normas que se relacionan con la tipicidad de cada reato serán citadas una sola vez, atendiendo a criterios de economía procesal y claridad expositiva.”. 
+(ii) El concurso de conductas punibles en este proceso. 
+(iii) La “ejecución inmediata de la sentencia” en este caso.
+
+---
+
+# PROVIDENCIA DDP 8359
+
+**Número de Providencia (DDP 8359):** STP1524-2026
+**Radicación (DDP 8359):** 149781
+**Decisión (DDP 8359):** SMS DEL 15.1.2026
+
+**Lista de Temas (DDP 8359):**
+1 
+(i) “Fundamentos normativos de la función de control de garantías en el sistema penal acusatorio”. 
+(ii) “Deberes de los administradores de justicia en el proceso penal”. 
+(iii) “En este sentido, la Corte Suprema de Justicia ha insistido en que la negativa a celebrar audiencias preliminares, cuando estas atañen a decisiones judiciales relacionadas con la protección o ponderación de derechos fundamentales, resulta constitucionalmente relevante. Dicha omisión, cuando se sustenta en argumentos irrazonables, como exigir la presencia de partes e intervinientes que no son necesarios, configura una clara vía de hecho.”. 
+(iv) La presencia de la Fiscalía y apoderados de víctimas, no necesaria, en algunas audiencias. 
+(v) Aquello de la carpeta original del proceso. 
+(vi)  “Audiencias de imposición o levantamiento de medidas cautelares”. 
+(vii) “Reglamentación de los Juzgados Penales de Control de Garantías”.
+
+---
+
+# PROVIDENCIA DDP 8360
+
+**Número de Providencia (DDP 8360):** AP8924-2025
+**Radicación (DDP 8360):** 70663
+
+**Lista de Temas (DDP 8360):**
+(i) “La Sala decidirá sobre el impedimento manifestado por el magistrado ROMEL DAVID ARÉVALO GONZÁLEZ, integrante de la Sala de Conocimiento de Justicia y Paz del Tribunal Superior del Distrito judicial de Barranquilla, con fundamento en la causal 6ª del artículo 56 de la Ley 906 de 2004.”. 
+(ii) “Frente a esta causal, la Sala tiene establecido que la comprensión de este concepto no debe asumirse en sentido literal, sino que es preciso que esa intervención, para que adquiera un efecto trascendente acorde con los fines de la norma, tenga la aptitud suficiente para comprometer la ecuanimidad y la rectitud del funcionario. Su actividad dentro del proceso debe haber sido esencial y no simplemente formal, de fondo, sustancial, trascendente, que lo vincule con la actuación puesta a su consideración de tal manera que le impida actuar con la imparcialidad y la ponderación que de él esperan no solamente los sujetos procesales sino la comunidad en general.”. 
+(iii) “Acorde con lo establecido por esta Colegiatura, las circunstancias constitutivas de impedimento y recusación tienen como propósito materializar el principio de imparcialidad , mandato que propende porque se garantice a la sociedad que el funcionario judicial llamado a resolver el conflicto jurídico plasmado en el proceso penal sea ajeno a cualquier interés distinto al de la recta administración de justicia.”. 
+(iv) “Como parte de lo anterior, tales institutos procesales salvaguardan el derecho de todos los ciudadanos a ser juzgados por un juez objetivo, conforme a lo previsto en los artículos 10° de la Declaración Universal de los Derechos del Hombre de 1948, 14-1 del Pacto Internacional de Derechos Civiles y Políticos de 1966, 8-1 de la Convención Americana de Derechos Humanos de 1968 y 5° de la Ley 906 de 2004.”. 
+(v) “… la autoridad jurisdiccional que invoca una causal de impedimento, con el fin de separarse de un asunto, debe señalar con precisión en cuál de ellas apoya su manifestación -especificar la norma que expresamente contiene el supuesto de hecho-, indicar con claridad las razones que lo llevan a solicitar su alejamiento del proceso, lo que comporta una carga específica sobre la indicación de su alcance y contenido.”. 
+(vi) “ … la Sala ha elaborado una sólida jurisprudencia, según la cual, no toda intervención en el proceso penal afecta la imparcialidad del juez, sino solo aquella en la que, por razón de su intervención, quien asume la delicada función de juzgar, tiene un criterio anticipado y comprometido sobre la responsabilidad o inocencia del acusado.”. 
+(vii) “En ese sentido, para determinar si se configura esta última situación, es necesario analizar en cada caso concreto, cuál fue el conocimiento que tuvo el funcionario en el transcurso del trámite y examinar si, a través de las labores que adelantó, comprometió su criterio o emitió un concepto que pone en duda su imparcialidad.”. 
+(viii) “En efecto, sobre las circunstancias que fundamentan el impedimento expresado por el magistrado convocante del trámite, es oportuno recordar lo siguiente: …”. 
+(ix) “Por tanto, en este evento, aun cuando el magistrado ARÉVALO GONZÁLEZ, en su anterior rol de Juez Penal del Circuito de Bogotá profirió sentencia contra algunos que ahora son postulados, su participación carece de la entidad suficiente para comprometer su criterio en el trámite que se adelanta en la justicia transicional, dado que su intervención en esas circunstancias no constituyó un prejuzgamiento que le impida actuar con imparcialidad y ponderación.”.
+
+---
+
+# PROVIDENCIA DDP 8361
+
+**Número de Providencia (DDP 8361):** AP8915-2025
+**Radicación (DDP 8361):** 68939
+
+**Lista de Temas (DDP 8361):**
+(i) “Aunque el censor planteó la censura por vía de la causal 2ª del artículo 181 de la Ley 906 de 2004, derivada en el desconocimiento del debido proceso por afectación sustancial, supuestamente al vulnerarle dentro del proceso penal su derecho fundamental a la presunción de inocencia, por no tener en cuenta las pruebas aportadas en el juicio; no obstante, no identificó el error, ni lo desarrolló, sólo calificó como equivocada la valoración de las instancias.”. 
+(ii) “Además, faltó al principio de autonomía , debido a que al anunciar el cargo único propuesto, en la misma argumentación, alegó la vulneración de la garantía de legalidad “por violación indirecta de la ley, por falta de aplicación de los artículos 29 de la Constitución Política, 7° del CPP y el 32.10 del Código Penal; ello con el propósito de imponer su criterio de valoración probatoria sobre el de las instancias, con miras a obtener la absolución de la implicada, o, edificar la prosperidad de la prisión domiciliaria como madre cabeza de familia.”. 
+(iii) “Tratándose de la causal de nulidad, la jurisprudencia de la Sala tiene dicho que los motivos de ineficacia de los actos procesales no son de libre proposición, por el contrario, se hallan sometidos al cumplimiento de precisos postulados que los dotan de sentido y los hacen operantes.”. 
+(iv) “Para hacer viable la admisión de un cargo por la causal segunda del artículo 181 de la Ley 906 de 2004, resulta imperativo para el censor identificar el tipo de irregularidad sustancial que alega –si de garantía o de estructura–, acreditar su configuración, indicar la norma o normas violadas, especificar su cobertura invalidatoria y, tal vez lo más importante, demostrar la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(v) “Así, evidente es que la propuesta del recurrente es ambigua porque denuncia como causal de nulidad la emisión de la sentencia sin mencionar cual fue la irregularidad procesal y desarrollar los principios que permiten la invalidación de la actuación. Y, por si fuera poco, toda la argumentación se dirige a cuestionar es la supuesta omisión probatoria de los elementos que aportó en las instancias y allegó nuevamente anexos a la demanda, por lo que esa postulación del cargo resulta inadmisible.”. 
+(vi) “Ahora, la jurisprudencia de la Sala ha decantado que la fundamentación para acreditar la omisión del principio de favorabilidad requiere denotar: i) la existencia de normas sucesivas o simultáneas en el tiempo, ii) que dichas normas lleven a consecuencias jurídicas distintas respecto de un mismo supuesto de hecho y iii) que una de las dos normas sea más beneficiosa que la otra.”. 
+(vii) “Ahora bien, si lo pretendido era aludir al valor demostrativo de las pruebas o a lo que el Tribunal dedujo de ellas, era necesario que el recurrente identificara el error en la estimación de las mismas, el cual debió alegarse, por la vía de la violación indirecta de la ley consagrada en la causal tercera del artículo 181 de la Ley 906 de 2004.”. 
+(viii) “El censor al acudir a esa causal que consiste en «el manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia». Esta hipótesis cobija los errores de hecho, que acontecen en la contemplación objetiva de la prueba (existencia, identidad o raciocinio), y los errores de derecho, que tienen lugar durante su estimación jurídica (legalidad o convicción). En ambos casos, debe tratarse de equívocos judiciales ostensibles y trascendentes.”. 
+(ix) “Al acudir a la primera especie, dado que en materia penal los diferentes medios de prueba no están sometidos a un sistema tarifado, debe tenerse en cuenta que, en principio, son de excepcional ocurrencia los llamados falsos juicios de convicción, salvo que una norma expresamente asigne un determinado valor probatorio a un elemento de conocimiento en particular.”. 
+(x) “A la misma categoría de vicios pertenecen los llamados falsos juicios de legalidad, al contrario de los anteriores, de más fácil constatación y mayor ocurrencia, pues la respectiva disertación debe orientarse a evidenciar que los juzgadores apreciaron elementos de conocimiento que carecen de requisitos legales en su aducción, práctica o incorporación, o que desestimaron los que sí los reúnen so pretexto de que no satisfacen esos presupuestos.”. 
+(xi) “A su turno, cuando se alega que la decisión está afectada por errores de hecho (como al parecer pretendió alegarlo el defensor), el desarrollo argumental debe enfocarse con claridad y de manera objetiva en enseñar cómo los falladores pudieron incurrir en: …”.
+
+---
+
+# PROVIDENCIA DDP 8362
+
+**Número de Providencia (DDP 8362):** AP8892-2025
+**Radicación (DDP 8362):** 65252
+**Decisión (DDP 8362):** SMS DEL 16.1.2026
+
+**Lista de Temas (DDP 8362):**
+(i) Supuesta “… nulidad por desconocimiento del derecho a la defensa -numeral 2º del artículo 181 de la Ley 906 de 2004”. 
+(ii) “El derecho a la defensa implica que una persona tiene la prerrogativa de ser asistida por un abogado de confianza o de oficio durante la investigación y el juzgamiento. Además, constituye una garantía irrenunciable, permanente, material y su protección no es ni debe ser formal, sino efectiva …”. 
+(iii) “Cuando se invoca la nulidad por violación de ese derecho, debe especificarse la actuación que lo transgrede, sin que sea suficiente realizar descalificaciones al ejercicio de la actividad de quien desarrolló la defensa técnica, como equivocado, descuidado o inepto. Tampoco, tener como sustento del reproche el desacuerdo en la estrategia ejercida, más aún, desconociendo la actividad procesal y el conjunto probatorio existente en el expediente. Por ello, la Corte ha sostenido pacíficamente que, la simple discrepancia de criterios en torno a la maniobra defensiva no configura una nulidad …”. 
+(iv) “Ahora, la Sala ha sostenido que, cuando se invoca la nulidad, bajo la causal en estudio, al demandante le corresponde: i) identificar la clase de irregularidad sustancial que determina la invalidación; ii) señalar si se trata de un vicio de estructura o garantía; iii) plantear sus fundamentos fácticos; iv) indicar los preceptos que considera conculcados; v) fijar el momento procesal en que se produjo la anomalía, así como la cobertura de la invalidez deprecada; vi) acreditar, en términos de trascendencia, la necesidad de acudir a la nulidad como remedio único y extremo para restablecer el derecho afectado con la anormalidad  procesal o la garantía conculcada …”. 
+(v) “La Sala debe precisar que, la sola enunciación del quebranto de garantías fundamentales  como aquí lo entiende el casacionista, no es suficiente para invocar la nulidad de la actuación. Se requiere de argumentos que demuestren y acrediten la afectación del derecho a la defensa. Carga que aquí no se satisfizo. En ese orden, las alegaciones del recurrente no tienen la entidad exigida para aplicar el remedio procesal extremo.”.
+
+---
+
+# PROVIDENCIA DDP 8363
+
+**Número de Providencia (DDP 8363):** AP8776-2025
+**Radicación (DDP 8363):** 62693
+
+**Lista de Temas (DDP 8363):**
+(i) “Cuando en casación se invoca un error de hecho por falso raciocinio, es preciso demostrar que la judicatura, al momento de asignarle mérito persuasivo a determinado elemento de juicio, transgredió los principios que gobiernan la sana crítica como método de valoración probatoria, esto es, los postulados de la lógica, las leyes de la ciencia y/o las reglas de experiencia.”. 
+(ii) “En tal supuesto, la correcta sustentación del error impone al demandante: 
+(i) identificar el medio probatorio indebidamente valorado; 
+(ii) precisar: lo que la prueba dice, el mérito persuasivo otorgado por el juzgador y, el postulado lógico, la ley científica o la máxima de experiencia desconocida en el fallo; y, 
+(iii) acreditar la trascendencia del error, expresando con claridad cuál debe ser la adecuada inferencia de la prueba, con la exigencia de justificar, a través del examen conjunto de los medios suasorios, que la enmienda del yerro daría lugar a una declaración de derecho esencialmente diversa y favorable a los intereses del procesado.”. 
+(iii) “Por último, el censor dice acudir a una regla de la experiencia, según la cual «cuando una mujer tiñe su cabello de negro, el proceso para teñirlo de mono es totalmente demorado y debe esperar hasta que su propio color natural abarque todo su cabello».”. 
+(iv) “Pretende el demandante que de esa afirmación se exprese por la Sala que corresponde a una regla de la experiencia. Así, incurre en el error de tratar de estructurar máximas de la experiencia frente a fenómenos esporádicos, irregulares, de los que no se predica uniformidad, o de aquellos que no son observables en la cotidianidad, o sólo constituyen situaciones hipotéticas o inciertas.”. 
+(v) “En suma, el escrito que hace las veces de demanda de casación solo aglutina insustanciales críticas dirigidas contra la sentencia de segundo nivel, que no pasan de ser una amalgama de inconformidades que, a semejanza de alegato de instancia, en nada acreditan alguna de las modalidades de error dispuestas por el legislador en el artículo 181 de la Ley 906 de 2004 y solo traducen el interés del censor en extender el debate probatorio y jurídico finiquitado por los falladores unipersonal y plural.”.
+
+---
+
+# PROVIDENCIA DDP 8364
+
+**Número de Providencia (DDP 8364):** AP8808-2025
+**Radicación (DDP 8364):** 71162
+
+**Lista de Temas (DDP 8364):**
+(i) “Recurso de queja en el trámite del recurso extraordinario de casación.”. 
+(ii) “Inicialmente, se sostuvo que el recurso de queja solo procedía en los casos en que la demanda era presentada oportunamente, pero su concesión era negada por el Tribunal. Con posterioridad, tal criterio fue modulado para ampliar el margen de procedencia del recurso de queja cuando la negativa obedezca a razones diversas.”. 
+(iii) “Así, se precisó que la queja procederá en todos los casos en que se niegue a la parte el acceso al recurso de casación, ya sea i) porque se establezca que el recurso o la demanda se interpusieron extemporáneamente, o ii) porque se le niegue al interesado el acceso al propio recurso.”. 
+(iv) “Ahora, su prosperidad depende del cumplimiento de los requisitos previstos en el Código de Procedimiento Penal, esto es, que la parte interesada: …”. 
+(v) “La Sala ha sostenido respecto a la notificación de las providencias en los procesos regulados por la Ley 906 de 2004 que, por regla general, se surten a las partes en estrados, acorde con el principio de oralidad . Por su parte, el inciso siguiente de la regla en cita, dispone que, si los convocados no comparecen a la audiencia, a pesar de haber sido citados oportunamente, la notificación se entenderá realizada en ella, «salvo que la ausencia se justifique por fuerza mayor o caso fortuito. En este evento la notificación se entenderá realizada al momento de aceptarse la justificación».”.
+
+---
+
+# PROVIDENCIA DDP 8364
+
+**Número de Providencia (DDP 8364):** AP8154-2025
+**Radicación (DDP 8364):** 70245
+**Decisión (DDP 8364):** SMS DEL 19.1.2026
+
+**Lista de Temas (DDP 8364):**
+1 
+(i) “El ejercicio orientado a acendrar el ámbito de la controversia probatoria del juicio, parte de diferentes supuestos, toda vez que, al tiempo que la inadmisión responde a falta de pertinencia, conducencia o utilidad del medio de prueba –o no se cumpliere con la carga argumentativa atinente a su procedencia y/o su práctica sea imposible o irracional-; el rechazo procede únicamente por falta de descubrimiento y la exclusión subyace al hecho de que las evidencias que pretenden aducirse en juicio sean ilegales o ilícitas, por haber sido obtenidas con violación del debido proceso probatorio o de las garantías fundamentales.”. 
+(ii) “Consecuente con la fuente de donde emana una cualquiera de estas cualidades de la prueba, el rechazo a que conduce la falta de su descubrimiento, o lo que es igual, la pretermisión de aquellos supuestos atinentes a su develación o exteriorización previa al acto del juicio oral, constituye una sanción a la parte que incumple las obligaciones concernientes con dicha carga. Consecuencia que, por estar prevista en la Ley, se integra al debido proceso probatorio a la vez que lo caracteriza, lo determina y condiciona, bajo el entendido que ninguna prueba puede practicarse en desarrollo del acto público de juzgamiento, sin que previamente haya sido descubierta a los diversos sujetos procesales que intervienen en el mismo.”. 
+(iii) “la Sala ha realizado una profusa aproximación a las distintas variables en que puede expresarse el acto de descubrimiento de los elementos materiales probatorios y evidencias físicas en desarrollo del proceso acusatorio. En CSJ SP rad. 26128 de 2011, consideró las siguientes hipótesis para realizar el descubrimiento: …”. 
+(iv) “Por tanto, el descubrimiento probatorio por parte de la fiscalía se debe producir con el escrito de acusación y la audiencia de su formulación, en cuyo desarrollo le debe informar al acusado cuáles son los elementos materiales probatorios y evidencia física que pretende acreditar en el juicio. Tal acto de descubrimiento, tiene su complemento definitivo en la audiencia preparatoria, en donde se fijan aquellas pruebas hasta ese momento descubiertas –so pena de ser rechazadas- y se valora su legalidad, licitud, admisibilidad, conducencia y pertinencia. La defensa tiene oportunidad de solicitar todas aquellas pruebas en pro de sus intereses y el deber, con la misma perentoriedad, de descubrir los elementos materiales de convicción y demás medios probatorios que pretenda hacer valer en el juicio (arts. 344 y 356 C. de P.P.).”. 
+(v) “Por otro lado, recuerda la Sala que, en efecto, en anteriores oportunidades en relación con la aplicación de la sanción del artículo 415 del C.P.P., se interpretó sistemáticamente junto con el art. 346 ídem. Consideró al respecto que, la regla jurídica que emana de estos, fundamenta el rechazo perentorio de la prueba pericial en aquellos eventos en los que, pese al compromiso adquirido en audiencia preparatoria, no se puso en conocimiento de las demás partes el informe de opinión al menos cinco días previos a la audiencia del juicio en donde se practicaría la peritación. Exceptuándose de esa consecuencia, los eventos de la hipótesis según la cual, la ausencia del descubrimiento se produjo como consecuencia de causas no imputables a la parte afectada con el rechazo probatorio …”. 
+(vi) El descubrimiento de la base de la prueba pericial.
+
+---
+
+# PROVIDENCIA DDP 8365
+
+**Número de Providencia (DDP 8365):** AP8811-2025
+**Radicación (DDP 8365):** 62219
+
+**Lista de Temas (DDP 8365):**
+(i) “Encausar los cargos bajo la violación indirecta de la ley sustancial le impone al recurrente la obligación de demostrar que las pruebas aportadas al proceso fueron erróneamente aducidas o valoradas por el funcionario judicial. Debe enseñar que la sentencia censurada tiene serios errores de hecho o de derecho que condujeron al funcionario judicial a violar una norma de derecho sustancial, por la falta de aplicación o por su aplicación indebida.”. 
+(ii) “Los errores de hecho implican el desconocimiento de una situación fáctica o la declaración de una que no está acreditada probatoriamente, producto de la incursión en falsos juicios de existencia, de identidad o por falso raciocinio.”. 
+(iii) “En lo que atañe al primer tipo de yerro (falso juicio de existencia), la Sala ha dicho que este pude ocurrir ya se sea por omisión o suposición de la prueba. Es decir, porque el juzgador deja de apreciar el contenido de un medio de prueba legal y oportunamente allegado a la actuación (falso juicio de existencia por omisión), o hace precisiones fácticas extrañas a las pruebas obrantes, o que atribuye a un elemento de conocimiento que en verdad no reposa en el expediente (falso juicio de existencia por suposición).”. 
+(iv) “Respecto al error por falso raciocinio, la Sala ha dicho que este ocurre cuando el juez observa la prueba en su integridad, pero al valorarla desconoce los postulados de la sana crítica -una concreta ley científica, un principio lógico o una máxima de la experiencia. Adicionalmente, una postulación por vía de ese error le exige al censor lo siguiente: …”. 
+(v) “… debe reiterarse que el recurso de casación no constituye una tercera instancia procesal que les permita a los recurrentes insistir en sus posturas y/o extender el debate probatorio previamente agotado en una y otra etapa ordinaria. En particular, porque las sentencias judiciales gozan de una doble presunción de acierto y legalidad. Por eso, es deber de los casacionistas postular errores trascendentes de acuerdo con las causales dispuestas por el legislador. Solo el cumplimiento de esos requisitos es lo que habilita la intervención extraordinaria de la Corte dentro del asunto.”. 
+(vi) “En el segundo cargo, direccionado bajo la causal 2.° de casación, el demandante alegó la violación a la presunción de inocencia y el in dubio pro reo. A su modo de ver, las imprecisiones contenidas en el testimonio de la víctima impedían la emisión de una condena contra su representado. En ese sentido, dijo que todas las dudas sobre la responsabilidad de LONDOÑO HERRERA, “tenían que haberse resuelto a favor del acusado para así haberse emitido una sentencia absolutoria”.”. 
+(vii) “Debe reiterarse que la causal 2. ° del artículo 181 de la Ley 906 de 2004 se configura cuando en la actuación se ha incurrido en desconocimiento del debido proceso por afectación sustancial de su estructura o por vulneración trascendente de las garantías de las partes o intervinientes. Si se demuestra la irregularidad que afecta las garantías o la estructura del debido proceso, la consecuencia es la nulidad de lo actuado desde cuando se produjo el vicio.”. 
+(viii) “Esto significa que opera cuando se vulneran los postulados de validez que legitiman el ejercicio de la facultad sancionatoria del Estado, de ser inevitable frente a los principios de taxatividad, protección, trascendencia, convalidación, instrumentalidad y residualidad, que le dan viabilidad al instituto.”. 
+(ix) “Por eso, para hacer viable la admisión de un cargo por la causal segunda, es imperativo para el casacionista que identifique el tipo de irregularidad sustancial que alega – si de garantía o de estructura –. También es insoslayable que se acredite su configuración, que se indique la norma o normas violadas, que se especifique su cobertura invalidatoria. Es esencial que se justifique la trascendencia del yerro, vale decir, por qué tiene la aptitud de afectar la validez del fallo cuestionado.”. 
+(x) “Por último, como lo ha explicado la Sala, no es posible admitir «cualquier demanda» que señale determinada incorrección. Al recurrente le corresponde, en todo caso, acreditar la afectación grave de la estructura del proceso o de las garantías de las partes que amerite la declaratoria de nulidad …”.
+
+---
+
+# PROVIDENCIA DDP 8366
+
+**Número de Providencia (DDP 8366):** AP8813-2025
+**Radicación (DDP 8366):** 62330
+
+**Lista de Temas (DDP 8366):**
+(i) “El demandante direccionó el único cargo de la demanda bajo la causal 3.° del artículo 181 de la Ley 906 de 2004. Según argumentó, el Tribunal desconoció los principios de la sana crítica en la valoración de las pruebas. En efecto, dejó de reconocer que el procesado actuó en estado de ira como consecuencia de las constantes peleas que sostenía con la víctima, así como de las ofensas que esta mujer le proporcionaba.”. 
+(ii) “Lo primero que la Sala advierte es que el censor se abstuvo de señalar la finalidad perseguida con la impugnación extraordinaria, en los términos del artículo 180 de la Ley 906 de 2004. Esta omisión tiene especial relevancia, ya que impide determinar si busca asegurar la efectividad del derecho material, proteger garantías fundamentales, reparar agravios concretos o lograr la unificación jurisprudencial.”. 
+(iii)  “Adicionalmente, encausar los cargos bajo la violación indirecta de la ley sustancial le impone al recurrente la obligación de demostrar que las pruebas aportadas al proceso fueron erróneamente aducidas o valoradas por el funcionario judicial. Debe enseñar que la sentencia censurada tiene serios errores de hecho o de derecho que condujeron al funcionario judicial a violar una norma de derecho sustancial, por la falta de aplicación o por su aplicación indebida.”. 
+(iv) “Los errores de hecho implican el desconocimiento de una situación fáctica o la declaración de una que no está acreditada probatoriamente, producto de la incursión en falsos juicios de existencia, de identidad o por falso raciocinio.”. 
+(v) “En lo que atañe al primer tipo de yerro (falso juicio de existencia), la Sala ha dicho que este pude ocurrir ya se sea por omisión o suposición de la prueba. Es decir, porque el juzgador deja de apreciar el contenido de un medio de prueba legal y oportunamente allegado a la actuación (falso juicio de existencia por omisión), o hace precisiones fácticas extrañas a las pruebas obrantes, o que atribuye a un elemento de conocimiento que en verdad no reposa en el expediente (falso juicio de existencia por suposición).”. 
+(vi) “Respecto al error por falso raciocinio, la Sala tiene sentado que este ocurre cuando el juez observa la prueba en su integridad, pero al valorarla desconoce los postulados de la sana crítica -una concreta ley científica, un principio lógico o una máxima de la experiencia . Adicionalmente, una postulación por vía de ese error le exige al censor lo siguiente: …”. 
+(vii) “Como lo ha señalado la Sala en otras oportunidades, el derecho de defensa debe mantenerse dentro del respeto a la dignidad humana. En particular, porque ninguna de las facultades derivadas de esa prerrogativa constitucional autoriza a desacreditar o vulnerar las garantías de las víctimas, en tratándose de niñas y mujeres, quienes gozan de una protección constitucional y convencional reforzada …”. 
+(viii) “Además, los escenarios de revictimización están prohibidos por el ordenamiento jurídico. Así lo dispone el artículo 5.º de la Ley 2365 de 2024, que proscribe expresamente prácticas que reproduzcan violencias en contra de las víctimas durante el proceso penal. Esta disposición también encuentra respaldo en la Convención Interamericana para Prevenir, Sancionar y Erradicar la Violencia contra la Mujer «Convención de Belem do Pará» , la cual obliga a los Estados parte a garantizar mecanismos eficaces de acceso a la justicia, libres de estereotipos, agresiones simbólicas o represalias institucionales.”.
+
+---
+
+# PROVIDENCIA DDP 8367
+
+**Número de Providencia (DDP 8367):** AP8896-2025
+**Radicación (DDP 8367):** 71073
+
+**Lista de Temas (DDP 8367):**
+(i) “… ha decantado que la autoridad judicial competente para conocer del recurso de apelación interpuesto contra la providencia emitida por un Juez de Ejecución de Penas y Medidas de Seguridad, tratándose de aforados constitucionales, es la Corte Suprema de Justicia, de acuerdo con lo previsto en el parágrafo 1° del artículo 38 de la Ley 906 de 2004 , el cual es aplicable por favorabilidad a las actuaciones adelantadas en la Ley 600 de 2000.”. 
+(ii) “El recurso de queja, previsto en el artículo 195 de la Ley 600 de 2000 y 179B de la Ley 906 de 2004, procede cuando el funcionario de primera instancia deniega el de apelación. Su propósito es el de proteger la garantía de la doble instancia, por lo que no está orientado a estudiar el acierto de la decisión recurrida, sino a determinar si es correcta la denegación del recurso de apelación (CSJ AP2065-2021). Así, su viabilidad depende del cumplimiento de varios presupuestos: «
+(i) que la decisión sea susceptible de impugnación, 
+(ii) que el recurso se proponga antes del vencimiento de los términos legalmente destinados para ello, 
+(iii) que al recurrente le asista interés y 
+(iv) que la inconformidad esté sustentada» …”. 
+(iii) “Al respecto, lo primero que debe indicarse es que, de conformidad con los numerales 2 y 3 del artículo 169 de la Ley 600 de 2000 o 48 del Código de Procedimiento Penal actual, autos interlocutorios son los que resuelven algún incidente o aspecto sustancial y de sustanciación los que se limitan a disponer cualquier otro trámite de los que la ley establece para dar curso a la actuación o evitar el entorpecimiento de esta.”. 
+(iv) “Asimismo, se ha establecido que los Jueces de Ejecución de Penas y Medidas de Seguridad pueden ceñirse a lo resuelto en cuestiones previamente examinadas, pues no es viable debatir reiteradamente asuntos jurídicamente consolidados, en particular, cuando no se introduce variante alguna, pues ello implicaría no solamente una limitación injustificada de la seguridad jurídica sino un desgaste inoficioso de la administración de justicia …”. 
+(v) “Respecto al derecho al acceso a la administración de justicia es de recordar que este se erige como una prerrogativa fundamental, la cual se define como la posibilidad que tienen las personas de acudir a las autoridades judiciales para buscar la preservación del orden jurídico y la protección o restablecimiento de sus derechos. Sin embargo, cuando se trata de formulación de peticiones ante las autoridades judiciales que repiten cuestionamientos anteriores los cuales han sido respondidos en forma oportuna y debida, el juez puede remitirse a las providencias pasadas, mediante las cuales resolvió lo solicitado, sin que esto constituya una denegación de justicia.”. 
+(vi) “Con base en lo anterior, la Sala considera que el auto emitido el 25 de junio de 2025 por el Juzgado 14° de Ejecución de Penas y Medidas de Seguridad de Bogotá no debió tramitarse como de sustanciación. Esto porque con la emisión de la respuesta por parte de la Unidad de Víctimas se dieron hechos novedosos que conllevaban a que se realizara un análisis detallado de la petición de JAVIER RAMIRO DEVIA ARIAS, y se resolviera por medio de un auto interlocutorio. Aún más, porque en la decisión emitida el 9 de septiembre de 2024 respecto a la que se dispuso estarse a lo resuelto, se requirió a la entidad y se indicó que «una vez se [obtuviera] tal información se [procedería] a resolver lo que en derecho corresponda».”.
+
+---
+
+# PROVIDENCIA DDP 8368
+
+**Número de Providencia (DDP 8368):** AP9092-2025
+**Radicación (DDP 8368):** 66474
+
+**Lista de Temas (DDP 8368):**
+(i) “El artículo 372 de la Ley 906 de 2004 establece que las pruebas en materia penal tienen por fin llevar al conocimiento del juez, más allá de duda razonable, los hechos y circunstancias materia del juicio y los de la responsabilidad penal del procesado, como autor o partícipe. Por su parte, el artículo 357-2 ejusdem, autoriza al juez decretar la práctica de las pruebas solicitadas, cuando «se refieran a los hechos de la acusación que requieran prueba, de acuerdo con las reglas de pertinencia y admisibilidad».”. 
+(ii) “Complementariamente, el artículo 375 de la misma codificación, al definir la pertinencia de la prueba, precisa que los elementos materiales probatorios, la evidencia física y los medios de prueba deben «referirse, directa o indirectamente, a los hechos o circunstancias relativos a la comisión de la conducta delictiva y sus consecuencias, así como a la identidad o a la responsabilidad penal del acusado». De igual manera, la norma establece que tienen esta connotación las que sirven para hacer «más probable o menos probable uno de los hechos o circunstancias mencionados», o las que se refieran «a la credibilidad de un testigo o de un perito».”. 
+(iii) “Por regla general, toda prueba pertinente es admisible, a menos que, como lo precisa el artículo 376 de la Ley 906 de 2004, 
+(i) exista peligro de causar grave perjuicio indebido, 
+(ii) probabilidad de que genere confusión en lugar de mayor claridad al asunto o exhiba escaso valor probatorio, o 
+(iii) sea injustamente dilatoria del procedimiento.”. 
+(iv) “En aplicación de estas directrices normativas, la Sala ha insistido en que las partes tienen la carga de sustentar en la audiencia preparatoria, de manera clara y sucinta, el hecho jurídicamente relevante o tema de prueba que pretenden acreditar y el medio de prueba que proponen utilizar para tal fin (Cfr. SP3168-2017, rad. 44599; AP2168-2019, rad. 55212; AP4640-2022, rad. 61078, entre otras). Dicha argumentación resulta indispensable, en tanto permite al juez decidir sobre la viabilidad de los elementos de convicción solicitados.”. 
+(v) “Una prueba tendrá vocación de ser decretada cuando se torna necesaria para demostrar o descartar el tema de prueba, es decir, cuando sirve para probar o rebatir los hechos con relevancia jurídico penal fijados en la acusación. De no ser así, porque incumple las exigencias de pertinencia, utilidad o necesidad, se impone su inadmisión, en los términos del artículo 359 del Código de Procedimiento Penal de 2004.”. 
+(vi) “La Corte también ha insistido en la dinámica que debe imperar en la audiencia preparatoria en torno a las postulaciones probatorias y la justificación de su pertinencia, conducencia y utilidad. Esto, a efectos de evitar «discursos repetitivos e innecesarios», que conspiren contra la celeridad del proceso, sobre todo cuando se está frente a un número significativo de solicitudes probatorias.”. 
+(vii) “En esta línea jurisprudencial se ha dicho que lo razonable e importante cuando se solicita el decreto de una determinada prueba, es que la petición esté acompañada de la justificación sobre su pertinencia, por cuanto la conducencia debe ser alegada por «quien considere que el medio probatorio elegido está prohibido por el ordenamiento jurídico, o que existe una norma que obliga a probar ese hecho en particular con un determinado medio de prueba». Y la misma carga debe cumplir quien se opone a ella por razones de utilidad …”. 
+(viii) “Esto no significa que el debate sobre la conducencia, admisibilidad y utilidad se elimine del debate procesal, puesto que el mismo sigue siendo un ejercicio dialéctico inherente de la audiencia preparatoria. Lo que se ha dicho es que la fundamentación de la pertinencia resulta requisito indispensable para que el juez pueda decretar la prueba, mientras que «las explicaciones sobre conducencia y utilidad deberán expresarse cuando se presente un debate genuino sobre estas temáticas»”. 
+(ix) “… es importante recordar que es postura decantada de la Sala de Casación Penal que las decisiones tomadas en otros despachos frente a hechos relacionados con el proceso penal no constituyen tema de prueba en este escenario, porque el juez debe resolver con independencia y autonomía sobre la materialidad de la conducta juzgada, la responsabilidad del procesado en su comisión y la procedencia de la sanción …”.
+
+---
+
+# PROVIDENCIA DDP 8369
+
+**Número de Providencia (DDP 8369):** SP2422-2025
+**Radicación (DDP 8369):** 61120
+**Decisión (DDP 8369):** SMS DEL 20.1.2026
+
+**Lista de Temas (DDP 8369):**
+(i) “Sobre la delimitación de los hechos jurídicamente relevantes”. 
+(ii) “Ahora bien, en el presente caso la casacionista critica la falta de claridad de los hechos jurídicamente relevantes, pues en su opinión fueron indeterminados. Asegura que la Fiscalía no estableció de manera precisa las circunstancias de tiempo, modo y lugar en que sucedieron los hechos objeto de juzgamiento. Tal anomalía impidió al procesado ejercer plenamente su derecho a la defensa, a pesar de la cual se condenó al acusado.”. 
+(iii)  “Ciertamente la forma en que fueron presentados los hechos jurídicamente relevantes en la imputación y la acusación, no constituye un ejemplo ideal de lo que debe ser este acto procesal. Es claro que la Fiscalía mezcló indebidamente el relato fáctico con lo que dicen los medios de prueba. Sin embargo, como destacó el Tribunal en el fallo impugnado, esta formulación cumplió, en lo material, la finalidad de informar de manera clara al procesado las circunstancias de tiempo, modo y lugar en las que se produjeron los abusos.”. 
+(iv) “Que la Fiscalía no haya podido concretar las fechas específicas en las que ocurrieron los diferentes episodios de abuso sexual, no vulnera el principio de estricta legalidad y congruencia. En el caso, se informó al procesado el marco fáctico por el cual se le imputó y llamó a juicio, lo que, como se evidencia en el proceso, le permitió defenderse. Sobre este aspecto, la Corte ha sostenido que: …”. 
+(v) “Entonces, no hay afectación al debido proceso ni al derecho de defensa cuando se imputan y acusan conductas de violencia o abuso sexual contra menores de edad reiteradas en el tiempo, sin especificación de la cantidad de eventos. Es decir, sin que se formulen con precisión del día o del lugar exacto en el que ocurrieron cada uno de ellas. Lo que es relevante para aquellas garantías es que las notas objetivas de tiempo, modo, lugar y la objetiva de quién las realizó, estén referidas a contextos determinables. Expresado de otro modo, en este caso la información suministrada por la víctima es fiable. Está enmarcada en un ámbito temporal, aunque amplio, perfectamente delimitado, con la característica especial de que los actos ocurrían los domingos, día en el cual el acusado visitaba la vivienda de la menor.”. 
+(vi) “La Sala ha reconocido que en los delitos sexuales cuyas víctimas son menores de edad, por lo general el agresor actúa subrepticiamente, es decir, que ejerce los actos delictivos de manera tal que nadie los pueda percibir. De ahí que la jurisprudencia de la Corte los ha denominado como «delitos a puerta cerrada». Al respecto: …”. 
+(vii) “Por lo tanto, aunque es usual que los delitos sexuales ocurran en lugares privados y fuera del alcance de cualquier observador, esta premisa no es irrebatible. Este tipo de hechos también puede presentarse en lugares públicos o en donde hay presencia de otras personas , pues lo que busca el agresor es que el acto no sea susceptible a la percepción de otros.”. 
+(viii) “La Sala comparte la postura del Tribunal y considera que la conclusión del perito de la defensa es desacertada. El raciocinio del experto desconoce la regla de la experiencia sostenida por esta Sala. Esta consiste en que en los casos de niños y niñas sometidos a abuso o acceso carnal, «estos no reaccionan violentamente repeliendo la agresión cuando la misma es cometida por alguien cercano a su círculo social o familiar, justamente por su incapacidad de comprender que este tipo de acercamiento es indebido, mucho más cuando previamente ya han sido sometidos por su agresor a otro tipo de episodios sexuales que han servido de antesala al acceso cual explica por qué ‘permiten’ a su ofensor realizar la reprochable conducta» . Por lo tanto, para la Sala, el hecho de que la menor no hubiera denunciado los hechos, ni se hubiera manifestado pidiendo auxilio, en nada afecta la credibilidad de su dicho.”. 
+(ix)  “Resulta pertinente precisar que la obligación de aplicar la perspectiva diferencial de género no se limita a delitos que protejan los bienes jurídicos de la vida, la integridad personal, la libertad, la integridad y formación sexuales o la familia. También abarca eventos en que las mujeres participan como agresoras en dinámicas de violencia basada en género , en casos relacionados con personas de identidades sexuales diversas  y la afectación a otros bienes jurídicos, por ejemplo, el patrimonio económico.”. 
+(x) “La casacionista alega que el ad quem hizo una indebida aplicación del numeral 2º del artículo 211 del Código Penal como consecuencia de una interpretación errónea. El yerro alegado radica en que para las instancias la agravación de la conducta se justificó a partir de la confianza que existía entre el procesado y el núcleo familiar de la menor L.E.M.R. y no entre el procesado y la víctima. Con ello, extendieron la aplicación del agravante a una circunstancia no prevista por la norma.”. 
+(xi) “Esta Sala ha reiterado que la imputación de la circunstancia de agravación punitiva contemplada en el numeral 2º de artículo 211 del Código Penal, exige que se determine si el victimario ostenta un carácter, posición o cargo que lleve a la víctima a depositar su confianza en él . Así, en CSJ SP, 25 may. 2011, rad. 34133, sostuvo: …”. 
+(xii) “Para la aplicación del agravante contemplado en el numeral 2 del artículo 211 por el vínculo de confianza, se ha dicho que el sentimiento de confianza …”.
+
+---
+
+# PROVIDENCIA DDP 8370
+
+**Número de Providencia (DDP 8370):** AP9091-2025
+**Radicación (DDP 8370):** 70420
+
+**Lista de Temas (DDP 8370):**
+(i) “Sería del caso definir la competencia para conocer la etapa de juicio del proceso penal adelantado en contra de JEFERSON ANDRÉS SEPÚLVEDA BERMÚDEZ, YOBER ALEXANDER MOLINA TEJADA y JAKSON ABBAD DÁVILA LONDOÑO por la posible comisión del delito de secuestro simple. Sin embargo, se evidencia una irregularidad en el procedimiento que impide a la Sala pronunciarse de fondo.”. 
+(ii) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para determinar cuál de los distintos jueces o magistrados que reclaman o rehúsan el conocimiento de un asunto es el llamado a asumirlo (CSJ AP2863-2019, CSJ AP2807-2020 y CSJ AP3071-2020). No obstante, este trámite es diferente al que regula el artículo 50 del Código de Procedimiento Penal, en tanto este último señala que «los delitos conexos se investigarán y juzgarán conjuntamente» y persigue, como lo ha señalado la Sala, que varios delitos se puedan procesar en una sola actuación (CSJ SP2021-2022).”. 
+(iii) “En esa medida, esta Corporación ha señalado que «la conexidad existente entre distintas conductas punibles puede ser de índole sustancial o procesal, al tiempo que la primera puede, también, clasificarse como ideológica, consecuencial u ocasional» (CSJ AP3875-2025 y CSJ AP3936-2023). De ahí que en la Sentencia CSJ SP, 21 mar. 2012, rad. 33101, la Sala hubiese explicado lo siguiente: …”. 
+(iv) “Por ello, esta Corte ha reconocido de manera consistente que, para que sea posible suscitar una controversia en relación con la competencia funcional y territorial de un juzgado, «debe resolverse inicialmente el tema de conexidad, decisión que, debe anotarse, es susceptible de recursos, al margen de que los argumentos frente al tema puedan coincidir» (CSJ AP4875-2025 y CSJ AP3936-2023). Además, por esta razón en el Auto CSJ AP704-2023  esta Corporación señaló lo siguiente al examinar una controversia similar: …”.
+
+---
+
+# PROVIDENCIA DDP 8371
+
+**Número de Providencia (DDP 8371):** AP8821-2025
+**Radicación (DDP 8371):** 64262
+
+**Lista de Temas (DDP 8371):**
+(i) “Sobre la acción de revisión y los requisitos para promoverla.”. 
+(ii) “La causal postulada consiste en el surgimiento de hechos o pruebas nuevas conocidos con posterioridad a la ejecutoria de la sentencia, que demuestran la inocencia del condenado. La Corte ha precisado que el hecho nuevo, «es aquel acaecimiento fáctico vinculado al delito que fue objeto de la investigación procesal, pero que no se conoció en ninguna de las etapas de la actuación judicial de manera que no pudo ser controvertido».”. 
+(iii) “Prueba nueva, en cambio, es aquel mecanismo probatorio (documental, pericial, testimonial) que por cualquier causa no se incorporó al proceso. Sin embargo, ese aporte con criterio novedoso tiene tal valor que podría modificar sustancialmente el juicio positivo de responsabilidad penal.”. 
+(iv) “Cuando se habla de algo «nuevo» referido a un hecho o prueba, no significa que ocurrió con posterioridad a la conducta punible que se juzgó. Lo «nuevo» se refiere al conocimiento que se obtiene después del juicio oral, el cual se considera durante la acción de revisión. Sin embargo, esa situación soporte de ese conocimiento nuevo, tiene que haber sucedido en el mismo momento, lugar y circunstancias en las que ocurrió el delito.”. 
+(v) “Si en la acción de revisión se alega la causal tercera, no es posible realizar un nuevo examen, crítica o controversia a la actuación procesal o a los mismos supuestos fácticos, jurídicos y probatorios que sustentaron la decisión impugnada. A tal ejercicio se impone la inmutabilidad de la cosa juzgada.”. 
+(vi) “El presupuesto de admisibilidad de la demanda de revisión fundada en esta causal, es la necesidad de que las pruebas allegadas puedan demostrar que los hechos aceptados en el juicio son incorrectos y, por lo tanto, afectar el sentido del fallo objeto de acción.”. 
+(vii) “La retractación ulterior a la sentencia - cualquiera sea su origen- no es una prueba nueva pues ella misma sugiere la existencia de una declaración procesal previa, luego en el hipotético caso de admitirla como tal daría lugar a la reapertura del proceso no por un error judicial sino por el arbitrio de las partes, quedando las decisiones judiciales sujetas a la voluntad de ellas y en contraposición a los efectos de la cosa juzgada, con grave riesgo para la seguridad jurídica (…) …”. 
+(viii) “Este Colegiado ha reiterado que la retractación posterior a la sentencia carece de aptitud para intentar una acción de revisión con fundamento en la causal tercera, entre otras razones, porque como se dijo: …”.
+
+---
+
+# PROVIDENCIA DDP 8372
+
+**Número de Providencia (DDP 8372):** AP8825-2025
+**Radicación (DDP 8372):** 71239
+
+**Lista de Temas (DDP 8372):**
+(i) La definición de competencia. 
+(ii) “Pues bien, en el presente evento la acusación procede por los delitos de estafa agravada y falsedad material en documento privado. Así, en aras de adoptar la decisión correspondiente, se empezará por señalar que, en tratándose de comportamientos conexos, como aquí ocurre, el legislador, a través del artículo 52 del estatuto procedimental de 2004, estableció que  el juzgamiento de estos le corresponde al juez de mayor jerarquía, pero si los funcionarios enfrentados son del mismo nivel el factor determinante será el territorial, de forma excluyente y preferente, en el siguiente orden: i) donde se haya cometido el delito más grave, ii) donde se haya realizado el mayor número de delitos, iii) donde se haya producido la primera captura o donde se haya formulado la primera imputación.”. 
+(iii) “Entonces, respecto a la competencia funcional -la cual aquí no es censurada-, se decanta que, en razón de los delitos objeto de acusación, corresponde el conocimiento a los jueces penales del circuito , de conformidad con lo normado en el numeral 2 del artículo 36  de la ley procesal referida.”. 
+(iv) “Ahora, frente a la primera regla de competencia territorial se tiene aquí que el delito más grave es el de estafa agravada, ya que este se castiga con una sanción de 64 a 144 meses de prisión, en tanto que el de falsedad material en documento privado contempla una pena que oscila entre 16 y 108 meses de prisión.”. 
+(v) “En torno a la conducta establecida como la más severa, la Sala tiene dicho que el momento consumativo de esta se consolida con la obtención del provecho ilícito para sí o para un tercero, generador del correlativo perjuicio para la víctima, a través de artificios o engaños que la inducen en error, para finalmente producir una disminución de su patrimonio sin que medie fundamento legal que lo sustente.”.
+
+---
+
+# PROVIDENCIA DDP 8373
+
+**Número de Providencia (DDP 8373):** AP8911-2025
+**Radicación (DDP 8373):** 64767
+**Decisión (DDP 8373):** SMS DEL 21.1.2026
+
+**Lista de Temas (DDP 8373):**
+(i) “El apoderado de ADOLFO HERNANDO MILLÁN MARÍN, al amparo del numeral 2º del artículo 181 de la Ley 906 de 2004, solicita la nulidad de la actuación por haber operado el fenómeno de la prescripción. Sin embargo, la Sala advierte la insuficiencia formal y sustancial del reproche.”. 
+(ii) “Tratándose de la causal de nulidad, la jurisprudencia de la Sala tiene dicho que los motivos de ineficacia de los actos procesales no son de libre proposición, por el contrario, se hallan sometidos al cumplimiento de precisos postulados que los dotan de sentido y los hacen operantes.”. 
+(iii) “Esta Sala tiene señalado que la pretensión orientada al reconocimiento del fenómeno prescriptivo debe: 
+(i) formularse al amparo de la causal alegada por el actor (literal 2º del artículo 181 ibídem), es decir, «por el desconocimiento de la estructura del debido proceso por afectación sustancial de su estructura o de la garantía debida a cualquiera de las partes»; y, 
+(ii) sustentarse por vía de la causal primera, esto es, por violación directa de la ley sustancial (CSJ, AP728-2022, AP2695-2023 y AP3267-2023).”. 
+(iv) “En el presente asunto, pese a que el recurrente seleccionó la vía adecuada para formular su reproche, no cumplió con la carga argumentativa que su postulación le exigía, con lo que lesionó el principio de debida fundamentación , al tiempo que sus afirmaciones infringen el postulado de corrección material.”. 
+(v) “Lo anterior, por cuanto, en primer lugar, conforme a la causal primera de violación directa de la ley sustancial, al recurrente le correspondía fundamentar que el fenómeno de la prescripción de la acción penal ocurrió por: 
+(i) falta de aplicación ; 
+(ii) aplicación indebida ; o, 
+(iii) interpretación errónea de una norma llamada a regular el caso.”. 
+(vi) “El demandante si bien, acudió de manera expresa a la causal prevista en el numeral 3º del artículo 181 de la Ley 906 de 2004, únicamente arguyó que las instancias «desconocieron las reglas de producción y apreciación de la prueba en sana critica, sobre la cual se han fundamentado ambas sentencias» y, por esa vía da a entender que la condena se emitió sin que existieran pruebas suficientes.”. 
+(vii) “Previa resolución del cargo, debe aclararse al recurrente que la violación indirecta de la ley sustancial se presenta por la incorrecta apreciación probatoria derivada de dos tipos de errores: «de derecho» y «de hecho». Los primeros se configuran cuando el juez, al apreciar la prueba, desconoce las reglas que regulan su producción y eficacia. Los segundos implican un vicio fáctico, es decir, que el fallador se equivocó al contemplar materialmente el medio de prueba …”. 
+(viii) “Dicho error -falso raciocinio- se presenta cuando el juez al momento exacto de considerar la prueba para tomar la decisión correspondiente vulnera las reglas de la sana crítica. Esto es, quebranta: 
+(i) los principios de la lógica (identidad, no contradicción, tercero excluido y razón suficiente), 
+(ii) las leyes de la ciencia (fenómenos comprobados y universales), y 
+(iii) las máximas de la experiencia (postulados genéricos que se consolidan por medio de la observación y la identificación de un proceso generalizado y repetitivo en un contexto temporo-espacial determinado).”. 
+(ix) “La demostración de tal yerro le impone al demandante el deber inexorable de indicar de manera objetiva qué informa el medio de prueba; cuál fue la deducción efectuada por el juzgador; clarificar concretamente cuál fue la regla de la experiencia, principio lógico o postulado científico que el fallador soslayó en el proceso de valoración probatoria, con indicación precisa de las razones por las cuales su aplicación resultaba necesaria para la corrección de la decisión cuestionada en el asunto.”.
+
+---
+
+# PROVIDENCIA DDP 8374
+
+**Número de Providencia (DDP 8374):** AP8898-2025
+**Radicación (DDP 8374):** 71266
+
+**Lista de Temas (DDP 8374):**
+(i) El “Incidente de definición de competencia”. 
+(ii)  “En el procedimiento especial abreviado, como es el caso, éste se promueve durante el desarrollo de la audiencia concentrada. Así lo señala el numeral 3° del artículo 542 del C.P.P.”. 
+(iii) “En el asunto examinado, el conocimiento del delito de violencia intrafamiliar -tanto simple, como agravada- está asignado a los jueces penales municipales, en atención a lo dispuesto en el numeral 4º del artículo 37 del C.P.P.”. 
+(iv) “La impugnación gira en torno al factor territorial, el cual es determinante para establecer el juez penal municipal que debe conocer la fase de juzgamiento. Precisamente, el artículo 43 de la Ley 906 de 2004 establece la competencia territorial en el juez del lugar donde ocurrió el delito. Si no es posible determinarlo, o si se realizó en varios sitios, en uno incierto o en el extranjero, se fija el lugar donde se haya radicado la acusación.”.
+
+---
+
+# PROVIDENCIA DDP 8375
+
+**Número de Providencia (DDP 8375):** AP9069-2025
+**Radicación (DDP 8375):** 71316
+
+**Lista de Temas (DDP 8375):**
+(i) “La finalidad del régimen de los impedimentos y las recusaciones no es otra que la satisfacción de la garantía fundamental de un juez natural, independiente e imparcial, que garantice a los ciudadanos una recta y cumplida administración de justicia. Esto es, que la imparcialidad y la ponderación del funcionario judicial llamado a resolver el conflicto jurídico no se encuentren perturbadas por alguna circunstancia ajena al proceso.”. 
+(ii) “Para dar aplicación material a las garantías mencionadas, el ordenamiento procesal ha instituido causales de orden objetivo y subjetivo, bajo cuyo gobierno el juez debe apartarse del conocimiento del caso, procurando de esta manera a las partes, terceros y demás intervinientes, transparencia en la decisión del asunto.”. 
+(iii) “Las causas que dan lugar a separar el conocimiento de un caso determinado a un juez o magistrado no pueden deducirse por analogía, ni ser objeto de interpretaciones subjetivas. Ello, en cuanto se trata de reglas con carácter de orden público, fundadas en el convencimiento del legislador de que son éstas y no otras las circunstancias fácticas que impiden que un funcionario judicial conozca de un asunto, porque de continuar vinculado a la decisión compromete la independencia de la administración de justicia y quebranta el derecho fundamental de los asociados a obtener un fallo proferido por un tribunal imparcial.”. 
+(iv) “La aludida causal en su contenido precisa: «Que antes de formular la imputación el funcionario judicial haya estado vinculado legalmente a una investigación penal, o disciplinaria en la que le hayan formulado cargos, por denuncia o queja instaurada por alguno de los intervinientes. Si la denuncia o la queja fuere presentada con posterioridad a la formulación de la imputación, procederá el impedimento cuando se vincule jurídicamente al funcionario judicial.»”. 
+(v) “Una lectura detenida al precepto anterior impone establecer el cumplimiento de uno de los siguientes requisitos: i) que antes de formulada la imputación el funcionario haya sido vinculado a una investigación penal o disciplinaria, a través de formulación de cargos y que ello obedezca a una queja o denuncia instaurada por uno de los intervinientes en el proceso o ii) si la queja se presenta después de formulada la imputación, cuando se vincule jurídicamente al funcionario.”. 
+(vi) “En este sentido, para efectos de la configuración de la causal 11 del artículo 56 de la Ley 906 de 2024, es necesario que el funcionario judicial haya sido vinculado jurídicamente al proceso disciplinario, a través de pliego de cargos formulado en su contra.”.
+
+---
+
+# PROVIDENCIA DDP 8376
+
+**Número de Providencia (DDP 8376):** AP9087-2025
+**Radicación (DDP 8376):** 63272
+**Decisión (DDP 8376):** SMS DEL 22.1.2026
+
+**Lista de Temas (DDP 8376):**
+(i) “En el caso bajo examen, lo primero que debe clarificarse es que, si bien, la demanda formalmente contiene dos cargos, el fundamento de cada uno de ellos es el mismo: que las instancias aplicaron indebidamente el artículo 208 del Código Penal, que condujo a la inaplicación del artículo 32-10 ídem, en la medida en que no fue reconocido el error de tipo en el actuar de CASTRO TRIANA, que conduciría a la absolución, sea que se trate de un error vencible o invencible.”. 
+(ii) “Así las cosas, resulta evidente que el libelista desbordó el interés jurídico, determinado por la falta de identidad en los aspectos recurridos a través de la apelación y ahora en casación. El motivo de censura aquí esgrimido no integró el recurso de alzada propuesto contra el fallo de primera instancia, con lo cual, se negó al juez colegiado la oportunidad de pronunciarse acerca del error que se le atribuye en sede de casación.”. 
+(iii) “A lo anterior se suma que, como el cargo se plantea bajo la égida de la causal primera de casación, tal cual quedó explicado en precedencia, el casacionista no puede elevar reparos de orden probatorio, precisamente, porque la senda elegida supone considerar acertadas las conclusiones fácticas plasmadas por los falladores.”. 
+(iv) “Pero, de haber planteado el cargo de manera correcta, desde el punto de vista formal, bien por la senda del error de hecho por falso raciocinio, ora por la vía del falso juicio de identidad, la Sala advierte insustancial la argumentación del casacionista, por cuanto, de un lado, el contacto que tuvo el procesado con la menor no se produjo a través de redes sociales, de suerte que, emerge irrelevante lo que las fotografías enseñaran o la percepción particular que al defensor le produjeron. Máxime, cuando no existe ningún estudio o criterio objetivo que informe cuáles rasgos o características de lo consignado en dichas fotografías, advierten de una mayor edad a la cronológica.”.
+
+---
+
+# PROVIDENCIA DDP 8377
+
+**Número de Providencia (DDP 8377):** AP9146-2025
+**Radicación (DDP 8377):** 69995
+
+**Lista de Temas (DDP 8377):**
+(i) “Al respecto, conviene reiterar que la causal 3ª del artículo 181 del C.P.P., sobre el manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia, se estructura a partir de los errores en que puede incurrir el fallador en la tarea de valoración probatoria, bien porque desacertó respecto de las normas que regulan el proceso de aducción de los elementos probatorios (error de derecho), o se equivocó al apreciar estos últimos (error de hecho).”. 
+(ii) “Lo cual exige, también, que se precise la prueba sobre la cual se depreca, la modalidad de defecto se repite, si es de hecho -falso juicio de existencia o identidad o falso raciocinio- o de derecho -falso juicio de legalidad o de convicción- y cuál es su trascendencia en el fallo adoptado.”. 
+(iii) “En punto al falso juicio de legalidad, el libelista radicó su reparo en el valor probatorio que las instancias, en su sentir, otorgaron a la entrevista forense rendida por la menor ante el psicólogo del C.T.I., pese a su carácter de prueba de referencia, sustentación a partir de la cual, es claro que desatendió la naturaleza del yerro invocado.”. 
+(iv) “Así, es del caso reiterar que el falso juicio de legalidad está relacionado con el debido proceso probatorio, de manera que, el demandante debe señalar el medio de prueba sobre el que predica el error, las normas legales o constitucionales cuyo desconocimiento conlleva la ilegalidad y la importancia del vicio, ya que su exclusión conduciría a una decisión distinta a la recurrida.”. 
+(v) “Nuevamente el censor desconoce la naturaleza del reproche en casación aludido, pues al tratarse de un vicio de carácter objetivo, que se presenta cuando el juez supone una prueba que no fue recaudada en el juicio oral u omite apreciar la que sí fue practicada en este, le corresponde al casacionista acreditar que la prueba aducida y practicada en el juicio oral fue omitida en su totalidad o que, sin haber sido recaudada, el fallador la supuso.”. 
+(vi) “Como cargo subsidiario el defensor alegó la violación de los derechos de contradicción y defensa durante el juicio, en atención a que la menor S.R.A. no fue citada como testigo directo por la Fiscalía y su entrevista fue admitida como prueba de referencia en la audiencia preparatoria e incorporada al juicio, sin que pudiese ejercer un debate público y paritario de la prueba.”. 
+(vii) “Al respecto, vale recordar que la causal segunda del artículo 181 del C.P.P. impone al postulante demostrar la existencia de yerros de garantía o de estructura insalvables que hacen que la actuación y la decisión de segunda instancia pierdan toda validez formal y material, motivo por el cual, el libelista debe expresar la irregularidad sustancial que afecta la actuación, determinar la forma en que ella rompe la estructura del proceso o lesiona las garantías de los intervinientes, así como la fase en la que se produjo.”. 
+(viii) “Igualmente, la fundamentación del ataque se debe confeccionar a la luz de los principios que rigen la declaración de las nulidades, esto es, por medio de un ejercicio reflexivo, de tal manera que el yerro alegado se ajuste a una de las causales expresamente previstas en la ley para la invalidación –principio de taxatividad-, que no sea invocada por el sujeto procesal que con su conducta dio lugar a ella, salvo el caso de ausencia de defensa técnica -principio de protección-.”. 
+(ix) “Asimismo, que no haya sido convalidada con el consentimiento expreso o tácito del sujeto perjudicado, a condición de ser observadas las garantías fundamentales –principio de convalidación-; se acredite que dicha anomalía afecta las garantías constitucionales de los sujetos procesales o desconoce las bases fundamentales de la investigación o el juzgamiento a tal punto que se imponga su restablecimiento –principio de trascendencia-; que pese al vicio no se haya cumplido la finalidad para el cual estaba destinado –instrumentalidad- y que, no exista otra manera de subsanar el yerro procesal detectado -residualidad.”.
+
+---
+
+# PROVIDENCIA DDP 8378
+
+**Número de Providencia (DDP 8378):** AP9105-2025
+**Radicación (DDP 8378):** 71317
+**Decisión (DDP 8378):** SMS DEL 23.1.2026
+
+**Lista de Temas (DDP 8378):**
+(i) “De acuerdo con lo previsto en el numeral 3 del artículo 32 de la Ley 906 de 2004 y en lo consagrado en el canon 54 ejusdem, corresponde a la Corte definir cuál autoridad judicial debe resolver el recurso de apelación interpuesto por el sentenciado EDISON STIP DUARTE contra el auto del 2 de septiembre de 2025, proferido por el Juzgado Séptimo de Ejecución de Penas y Medidas de Seguridad de Bucaramanga, mediante el cual se declaró improcedente su solicitud de aplicación de la Ley 2466 de 2025.”. 
+(ii) “Teniendo en cuenta lo anterior, sea lo primero indicar que de conformidad con lo establecido en el artículo 29 de la Constitución Política, «nadie podrá ser juzgado sino conforme a leyes preexistentes al acto que se le imputa, ante juez o tribunal competente y con observancia de la plenitud de las formas propias de cada juicio» (destaca la Sala).”. 
+(iii) “Por tanto, el primer interrogante que debe resolver una autoridad judicial, antes de pronunciarse sobre el asunto que le sea presentado, es si legalmente se encuentra facultada para conocer determinado trámite. De lo contrario, no solo transgrediría el derecho fundamental al debido proceso, sino que, además, desconocería los postulados que se derivan del principio de legalidad, eje central en materia penal.”. 
+(iv) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para, en caso de duda, precisar, de manera perentoria y definitiva, cuál de los distintos jueces o magistrados es el llamado a conocer de la fase procesal del juzgamiento, o para ocuparse de un asunto determinado.”. 
+(v) “Este trámite, de acuerdo con lo señalado en los artículos 54 y 341 de la Ley 906 de 2004, podrá incoarse por iniciativa del propio funcionario judicial cuando considera que carece de competencia para adelantar el asunto o, cuando se trata de una impugnación de competencia, por cualquiera de las partes si avizoran reparos en este sentido.”. 
+(vi) “Las reglas allí descritas son aplicables no solo para definir el juez que debe conocer de un asunto en curso, sino también para determinar el funcionario llamado a conocer de la vigilancia y ejecución de la condena  con las siguientes variables: …”.
+
+---
+
+# PROVIDENCIA DDP 8379
+
+**Número de Providencia (DDP 8379):** SP2391-2025
+**Radicación (DDP 8379):** 64053
+**Decisión (DDP 8379):** SE CONFIRMA LA ABSOLUCIÓN DE FRANCISCO JOSÉ INFANTE VERGARA, EX GOBERNADOR DEL MAGDALENA.
+
+**Lista de Temas (DDP 8379):**
+El enriquecimiento ilícito de servidor público.
+
+---
+
+# PROVIDENCIA DDP 8380
+
+**Número de Providencia (DDP 8380):** AP9355-2025
+**Radicación (DDP 8380):** 64949
+
+**Lista de Temas (DDP 8380):**
+(i) “En este caso, con relación a los motivos de inconformidad expuestos por el recurrente, la Sala determinará si el funcionario judicial de primera instancia acertó al acceder a la petición de la Fiscalía o, si, por el contrario, como lo afirmó el apelante, resultó incorrecta su decisión al, supuestamente, sólo tener en cuenta la argumentación de la solicitante, sin valorar que en la jurisdicción ordinaria no existe sentencia en firme en contra del postulado, además que, no se valoró la naturaleza de las Leyes 975 de 2025, 1592 de 2012, y el Decreto 3011 de 2013.”. 
+(ii) “De la revocatoria de la sustitución de la medida de aseguramiento.”. 
+(iii) “Luego, para la revocatoria de la sustitución de la medida de aseguramiento de que trata el artículo 18A de la Ley 975 de 2005, es carga del fiscal demostrar ante el Magistrado con funciones de control de garantías que el postulado ha incumplido cualquiera de las condiciones impuestas en la decisión de sustitución de la medida de aseguramiento.”. 
+(iv) “Para lo cual, deberá, cuando se alegue el incumplimiento de las condiciones fijadas por la autoridad judicial competente, aportar prueba sumaria o las constancias o certificaciones de autoridad competente, que dé cuenta de ello.”
+
+---
+
+# PROVIDENCIA DDP 8381
+
+**Número de Providencia (DDP 8381):** AP8343-2025
+**Radicación (DDP 8381):** 67606
+**Decisión (DDP 8381):** y 70043.
+
+**Lista de Temas (DDP 8381):**
+(i) “Antes de entrar a resolver los problemas jurídicos propuestos, sin embargo, es preciso hacer un pronunciamiento de cara al efecto en que fue concedido el recurso de apelación del auto probatorio, es decir, suspensivo, pero sólo de cara a aquello que fue objeto de apelación.”. 
+(ii) “Al respecto, resulta necesario precisar que la Sala de Casación Penal de la Corte Suprema de Justicia, en providencia CSJ AP3597-2024 de 26 de junio de 2024, rad. 66145, definió que la interpretación correcta del artículo 177 del Código de Procedimiento Penal es la siguiente: …”. 
+(iii) “Además, dicha actuación tampoco implica riesgo para las garantías de las partes, especialmente el derecho de defensa, dado que las pruebas decretadas serán practicadas conforme a lo estipulado en el artículo 362 del Código de Procedimiento Penal; es decir, con posterioridad a las aprobadas en favor de la Fiscalía encargada. Este escenario descarta la configuración de un perjuicio para el procesado, toda vez que la defensa cuenta con la posibilidad de practicar las pruebas decretadas en su favor, e incluso aquellas que le fueron negadas, en caso de que el superior funcional decida revocar la providencia.”. 
+(iv) Principios que orientan la declaratoria de nulidades. 
+(v) Cuando la imputación se hace por el fiscal de apoyo, no se genera nulidad. 
+(vi) “Respecto a este, es preciso tener en cuenta que la pertinencia de una testigo común no puede asumirse así, sin más, en las mismas razones que tuvo la contraparte para solicitar su práctica. Es preciso, por el contrario, argumentar por qué el contrainterrogatorio no sería suficiente para abarcar los temas que la defensa pretende tocar en sede directa; cosa que no parece haberse hecho en este caso, ni siquiera en la apelación, que está siendo utilizada en este punto para corregir las falencias en las que se había incurrido en la petición inicial.”.
+
+---
+
+# PROVIDENCIA DDP 8381
+
+**Número de Providencia (DDP 8381):** SP005-2026
+**Radicación (DDP 8381):** 70936
+**Decisión (DDP 8381):** SMS DEL 26.1.2026
+
+**Lista de Temas (DDP 8381):**
+1 
+(i) “De la prescripción de la acción penal y el aumento de penas previsto en la Ley 890 de 2004”. 
+(ii) “Ahora, en lo que corresponde al aumento de penas previsto en el artículo 14 de la Ley 890 de 2004, la Sala en sentencia CSJ SP379–2018, 21 feb. 2018, rad. 50472 expresó que «el aumento de penas fijado por el artículo 14 de la Ley 890 de 2004 aplica tanto para casos rituados por la Ley 906 como por la Ley 600 para hechos cometidos con posterioridad al 1º de enero de 2005, salvo las excepciones que la misma [L]ey 890 contempla en su artículo 15».”. 
+(iii) “En sentencia CSJ SP339–202[4], 21 feb. 2024, rad. 64824, al recordar los anteriores precedentes, la Corte recalcó que «es diáfano el criterio de la Sala al disponer que en los casos regidos por el procedimiento de la Ley 600 de 2000, por hechos ocurridos con posterioridad al 1° de enero de 2005, es aplicable, por estricto principio de legalidad, el aumento de penas fijado por el artículo 14 de la Ley 890 de 2004».”. 
+(iv) Prescripción de un concierto para delinquir tramitado bajo la ritualidad de la Ley 600 de 2000. 
+(v) “A su vez, la Corte llama la atención de la judicatura para que en la resolución de los asuntos asignados por competencia se verifique el mencionado axioma de legalidad con miras a evitar el juzgamiento fragmentario de las conductas que puedan caracterizarse como delito, resolución que en cualquier caso ha de respetar el término dispuesto por el legislador para ejercer la potestad punitiva.”.
+
+---
+
+# PROVIDENCIA DDP 8382
+
+**Número de Providencia (DDP 8382):** No especificado
+**Radicación (DDP 8382):** CUI 76275-6000-174-2025-00226-(
+**Decisión (DDP 8382):** AC-709-25).
+
+**Lista de Temas (DDP 8382):**
+(i) “Procedencia de la prisión domiciliaria prevista en el artículo 38 B del Código Penal.”. 
+(ii) “No obstante, inicialmente para la Sala esta interpretación carece de fundamento jurídico, pues desconoce que el sistema de sustitutos penales opera bajo reglas restrictivas y que la concesión de la prisión domiciliaria exige no solo el cumplimiento de lo reglado en el artículo 38B, sino también la verificación del marco de prohibiciones impuesto por el legislador en el artículo 68A del mismo estatuto.”. 
+(iii) “El artículo 68A inciso 2° establece de manera expresa, clara y categórica que no podrá concederse prisión domiciliaria a quienes sean condenados por, entre otros, el delito de tráfico, fabricación o porte de estupefacientes. Esta prohibición no está sujeta a valoración subjetiva, ni a ponderación de fines de la pena, ni al examen de arraigo de los condenados, porque se trata de un criterio legal objetivo fijado por el legislador como límite absoluto a la sustitución de la pena intramural.”. 
+(iv) “En este sentido, cuando el delito se encuentra expresamente enlistado en la prohibición, como ocurre en este caso, al juez le está vedado realizar un análisis discrecional o ponderado frente a los requisitos subjetivos del artículo 38B. Tal examen solo procede en los eventos excepcionales contemplados en el inciso 3° y en los parágrafos del artículo 68A, que regulan supuestos específicos de flexibilización (por ejemplo, cuando se trata de mujeres gestantes o madres de hijos menores en circunstancias de especial protección reforzada).”. 
+(v) “Es así como, la Sala concluye que la prohibición legal del artículo 68A es plenamente aplicable y se erige como una barrera normativa infranqueable para la concesión del sustituto de prisión domiciliaria alegado por la defensa. Esto implica que, aun cuando la pena mínima de la conducta punible esté dentro del límite objetivo del artículo 38B, la existencia de la prohibición hace improcedente cualquier valoración adicional de arraigo, comportamiento, fines de la pena o situaciones familiares.”. 
+(vi) “De la prisión domiciliaria por padre cabeza de familia”.
+
+---
+
+# PROVIDENCIA DDP 8383
+
+**Número de Providencia (DDP 8383):** No especificado
+**Radicación (DDP 8383):** CUI 76-248-6000-173-2025-00063-01 (
+**Decisión (DDP 8383):** AC-694-25).
+
+**Lista de Temas (DDP 8383):**
+(i) “Sobre la competencia para resolver la recusación.”. 
+(ii) “En tales condiciones, se observa que «…en caso de no aceptarse…» la recusación planteada por alguna de las partes «se enviará a quien le corresponde resolver para que decida de plano», quien de acuerdo con las pautas fijadas en el artículo 57 de la misma codificación, que regula el trámite para el impedimento que se integra al presente, es «… quien le sigue en turno, o, si en el sitio no hubiere más de uno de la categoría del impedido o todos estuvieren impedidos, a otro del lugar más cercano…».”. 
+(iii) “[…] en los casos en los cuales el funcionario no acepte la recusación planteada por una de las partes del proceso, el asunto deberá ser sometido a consideración del homólogo que le siga en turno o, de no haber alguno en la misma circunscripción a la cual está adscrito, habrá de corresponder a aquel del lugar más cercano en términos geográficos […]”.
+
+---
+
+# PROVIDENCIA DDP 8384
+
+**Número de Providencia (DDP 8384):** No especificado
+**Radicación (DDP 8384):** CUI 76-520-6000-180-2025-01147-01 (
+**Decisión (DDP 8384):** AC-757-25).
+
+**Lista de Temas (DDP 8384):**
+(i) “Sobre la nulidad y sus cargas argumentativas”. 
+(ii) “Sobre el control judicial de la imputación o la acusación.”. 
+(iii) “Efectivamente, la Corte Suprema de Justicia, en la decisión CSJ AP3382, 28 may. 2025, rad. 60721, precisó que los jueces están llamados a efectuar un control “sobre la claridad y concreción de los hechos” y, excepcionalmente, sobre la calificación jurídica atribuida: …”. 
+(iv) “Igualmente, ese Alto Tribunal, en decisión CSJ SP1148, 30 abr. 2025, rad. 60117 reiteró que, en la imputación y la acusación, el control sobre los hechos es amplio, mientras que, en relación con el juicio de tipicidad, es limitado y excepcional, en casos: …”. 
+(v) “Sin embargo, eso no significa que, como ocurrió en este caso, pueda sugerirle a la Fiscalía una calificación jurídica específica, sino requerir a ese sujeto procesal para que revise el asunto.”. 
+(vi) “En conclusión, en la imputación y la acusación, el control judicial es más amplio respecto de los hechos (en cuanto a su claridad, comprensión y completitud) y más restrictivo sobre la calificación jurídica o el juicio de tipicidad, pues es procedente solo en casos evidentes. Además, todavía no se realiza una valoración de la suficiencia probatoria, por lo que no podría, en esa instancia, determinar si se cumple con el estándar probatorio para imputar o acusar, a diferencia de lo que ocurre en otros escenarios, como la sentencia anticipada, la sentencia ordinaria, la preclusión y la medida de aseguramiento, por ejemplo.”. 
+(vii) “Cuando se trata de una sentencia anticipada, la Corte Suprema de Justicia, en decisión CSJ SP322, 19 feb. 2025, rad. 58474, precisó que el juez debe examinar que exista una hipótesis fáctica clara, “que no se le haya dado una calificación manifiestamente ilegal”, que esa hipótesis tenga respaldo en las pruebas trasladadas y que se observen los límites legales y constitucionales de este tipo de mecanismos.”. 
+(viii) “Sobre el principio de progresividad en la actuación penal.”.
+
+---
+
+# PROVIDENCIA DDP 8385
+
+**Número de Providencia (DDP 8385):** No especificado
+**Radicación (DDP 8385):** CUI 76895-60-00-192-2020-00302-01 (
+**Decisión (DDP 8385):** AC-616-25).
+
+**Lista de Temas (DDP 8385):**
+(i) “Sobre la libertad condicional y el periodo de prueba en el caso concreto.”. 
+(ii) “La cosa juzgada, según la Corte Suprema de Justicia4, tiene como consecuencia una prohibición para que el operador jurídico resuelva de fondo conflictos ya decididos; para ello, se requiere identidad del sujeto, objeto y causa.”. 
+(iii) “Entonces, JUAN DAVID MONTES solicitó que se estudie, tácitamente, un idéntico problema jurídico ya resuelto por el Juzgado 4 de Ejecución de Penas de Pereira: la concesión de la libertad condicional por un periodo de prueba determinado, en la misma causa penal, razón por la que no es posible, en esta instancia, modular esa circunstancia, en especial porque no se superaron los términos previstos en el último inciso del artículo 64 del Código Penal.”. 
+(iv) “Se insiste, si consideraba desacertado el planteamiento realizado por el juzgado, estaba facultado para interponer los recursos ordinarios, lo que no ocurrió. Así, indiscutiblemente, todavía no ha culminado el periodo de prueba, por lo que la decisión del Juzgado 3 de Ejecución de Penas de Buga deberá ser confirmada.”.
+
+---
+
+# PROVIDENCIA DDP 8386
+
+**Número de Providencia (DDP 8386):** No especificado
+**Radicación (DDP 8386):** CUI 76-130-6000-169-2019-01185-01 (
+**Decisión (DDP 8386):** AC-756-25). SMS DEL 27.1.2026
+
+**Lista de Temas (DDP 8386):**
+(i) “Sobre el monto de la rebaja de la pena como límite del acto de negociación.”. 
+(ii) “Entonces, el artículo 352 de la Ley 906 de 2004 prevé que, en los preacuerdos celebrados entre las partes, desde la presentación de la acusación y hasta cuando sea interrogado el acusado sobre la aceptación de su responsabilidad en audiencia de juicio oral, la pena imponible se reducirá hasta en una tercera parte, sin que se diferencie la tipología de preacuerdo (si es de aquellos en los que se pacta una sanción específica o se acude a otras figuras procesales de manera ficta para realizar la rebaja).”. 
+(iii) “Esta asimilación, sobre la oportunidad en que los sujetos procesales están legitimados para realizar el preacuerdo, la Corte Constitucional, en la sentencia SU-479/19, mencionó que, con fundamento en el artículo 350 y 352 de la norma procesal penal, eran tres los momentos procesales en que puede surtirse este tipo de negociación: …”. 
+(iv) “Esto quiere decir que, para la Sala, entre mayor sea la rebaja y, aún más importante, cuando el descuento supera los límites previstos en la ley (art. 352 inc. 2, que no discrimina el tipo de acuerdo a realizar), debe existir un adecuado ejercicio de motivación que le permita al juez establecer la proporcionalidad de la pena acordada con los principios que rigen este tipo de actuaciones.”. 
+(v) “En este sentido, lo que no puede ocurrir es que la Fiscalía, sin algún motivo aparente11, decida otorgar más rebaja de la que obtendría quien se presenta por primera vez ante un juez (hasta un 50%), al inicio del proceso penal. Entonces, se confirmará la decisión del juzgado de primera instancia, sin perjuicio de que las partes puedan elevar otra propuesta, en términos distintos o con el cumplimiento de algún criterio que politicocriminalmente justifique una concesión distinta.”.
+
+---
+
+# PROVIDENCIA DDP 8387
+
+**Número de Providencia (DDP 8387):** SP2180-2025
+**Radicación (DDP 8387):** 65861
+**Decisión (DDP 8387):** CONFIRMA LA ABSOLUCIÓN.
+
+**Lista de Temas (DDP 8387):**
+(i) El prevaricato por acción. 
+(ii) “En cuanto la tipicidad subjetiva de aquel punible, la Sala también tiene dicho que, en estos casos, es preciso demostrar que el autor “sabe que actúa ‘en contra del derecho y que, tras ese conocimiento, voluntariamente decide vulnerarlo’”. En otras palabras, es preciso que en la actuación se demuestre que el agente obró con conocimiento y voluntad de desconocer la normatividad legal aplicable al asunto sometido a su consideración.”. 
+(iii) “Ahora bien, la Corte tiene establecido que el dolo puede deducirse de diversas maneras: 
+(i) la verificación de que en la decisión se plasmaron criterios subjetivos, argumentos caprichosos, arbitrarios o abiertamente absurdos o 
+(ii) cuando se dan explicaciones basadas en hechos que procesalmente resultan inexistentes, ocultados o tergiversados.”. 
+(iv) La “manifiesta ilegalidad” en este caso. 
+(v) “En este orden de ideas, la tesis de la Fiscalía de que los Jueces de Garantías deben aceptar acríticamente el contenido de los informes de Policía Judicial vacía de contenido la función de esos jueces. El imperativo bajo el que debe leerse la norma (Art.221) es que los motivos fundados para decretar un allanamiento –restricción grave a un derecho fundamental— pueden ser “respaldados al menos en un informe de Policía Judicial”, siempre y cuando ese informe sostenga un análisis razonable y prudente del Juez de Garantías en el ámbito y precisión de aquello para lo cual es útil ese informe.”. 
+(vi) “Si el informe resulta impreciso, vago, o señala direcciones inexactas, demasiado generales o absolutamente no coincidentes con el lugar donde fue verificado o donde se va a verificar el allanamiento, el Juez de Garantías está obligado a rechazarlo. Es que una diligencia de ingreso al domicilio de un ciudadano es una intromisión grave del Estado en la intimidad de ese asociado y es por eso que debe estar sostenida en “motivos razonablemente fundados”. La precisión y alcance de esa frase debe ser tomada en serio por los señores Fiscales pues los Jueces de Garantías están en la obligación de controlar esas circunstancias con la seriedad que la Constitución y la Ley nacional protege los derechos fundamentales.”.
+
+---
+
+# PROVIDENCIA DDP 8388
+
+**Número de Providencia (DDP 8388):** AP9173-2025
+**Radicación (DDP 8388):** 69581
+**Decisión (DDP 8388):** SE DECRETA NULIDAD POR FALTA DE DEFENSA TÉCNICA.
+
+**Lista de Temas (DDP 8388):**
+(i) “En esa dirección, la Sala analizará el trámite impartido por la Sala Penal del Tribunal Superior del Distrito Judicial de Valledupar a la pretensión de preclusión a efectos de ilustrar acerca de la ausencia de defensa técnica y su incidencia sustancial en la validez de la actuación.”. 
+(ii) “Derecho a la defensa técnica”. 
+(iii) “Del examen de la actuación surge ostensible que WILLIAM FRANCISCO GARCÍA LUQUÉZ no contó con defensa técnica, esto es, no estuvo representado por un abogado defensor y, tampoco expresó su intención de asumir directamente su defensa técnica, dada su profesión de abogado.”. 
+(iv) “Si bien en la actuación aparece registrado que el indiciado tiene la profesión de abogado, no era correcto asumir, de manera automática, que ejercería su propia defensa técnica. No medió postulación en ese sentido por parte del indiciado y los presupuestos mínimos que habilitan una gestión de esa índole no fueron verificados.”. 
+(v) “Esa parte, como antes se advirtió, conserva un margen de acción que le permite participar en el debate de la preclusión. Precisamente, en esa dinámica se materializa el derecho «a la última palabra», que se traduce en la garantía que tiene todo enjuiciado -ya sea directamente o a través de su defensor- de ser el último en intervenir en el ejercicio dialéctico que se desarrolla en cada una de las audiencias que componen el proceso (CSJ SP2531-2021, 23 jun. 2021, rad. 55934).”. 
+(vi) “Como lo ha reiterado esta Sala el derecho a la asistencia, representación y asesoría de un abogado integra el núcleo esencial de la garantía de la defensa y, en general, del debido proceso penal. Se activa una vez la persona tiene conocimiento de que es un presunto implicado o de que se adelanta indagación en su contra sin que, necesariamente, haya sido vinculado formalmente a una investigación penal. Este defensor puede ser escogido libremente por el procesado y cuando ello no es posible, debe ser asignado de oficio por el Estado …”.
+
+---
+
+# PROVIDENCIA DDP 8389
+
+**Número de Providencia (DDP 8389):** SP2388-2025
+**Radicación (DDP 8389):** 59377
+
+**Lista de Temas (DDP 8389):**
+(i) El delito de estafa. 
+(ii) La afectación del “patrimonio económico de Profesionales de Bolsa S.A”. 
+(iii) “En las anotadas condiciones, se advierte que al dosificar la pena por ese delito el Tribunal vulneró el principio de congruencia en razón a que desconoció el marco jurídico fijado en la acusación y, de esta manera, terminó aplicando indebidamente el parágrafo del artículo 31 del Código Penal y, por tanto, realizando un injustificado incremento punitivo.”. 
+(iv) “De la suspensión condicional de la ejecución de la pena” para este caso.
+
+---
+
+# PROVIDENCIA DDP 8390
+
+**Número de Providencia (DDP 8390):** AP9642-2025
+**Radicación (DDP 8390):** 65319
+**Decisión (DDP 8390):** SMS DEL 28.1.2026
+
+**Lista de Temas (DDP 8390):**
+(i) “El artículo 182 de la Ley 906 de 2004 señala que están legitimados para recurrir en casación los intervinientes, por medio de apoderado judicial, o directamente si fueren profesionales del derecho. En este caso, fueron los mismos defensores que representaron a EURÍPIDES DUQUE y WILLIAM DARÍO ECHEVERRY VALENCIA en el proceso penal, y ellos mismos interpusieron y sustentaron el recurso extraordinario”. 
+(ii) “El interés jurídico supone el ejercicio efectivo de los principios de contradicción y doble instancia. Por lo tanto, es necesario que el demandante haya apelado el fallo de primera instancia y que sus reparos cumplan el presupuesto de unidad o identidad temática –coherencia o correspondencia entre los motivos de la apelación y los expuestos en casación.”. 
+(iii) “Podría el demandante acudir en casación pese a no haber cuestionado el fallo de primer grado, siempre que acredite algunas de estas hipótesis: i) Que, de manera arbitraria, no pudo ejercer los recursos de instancia; ii) Que el fallo proferido en segunda instancia modificó de manera negativa, desventajosa o más gravosa su situación, o iii) Que la pretensión invocada en esta sede sea la declaratoria de nulidad.”. 
+(iv) “… la Corte rechazará la demanda de casación cuando el casacionista carezca de legitimidad, no tenga interés jurídico para recurrir, no precise los fines que persigue, incumpla los principios que rigen la fundamentación de la demanda, presente un escrito que no esté ajustado a la técnica exigida para cada una de las causales o cuando advierta razonablemente la irrelevancia del fallo para alcanzar los propósitos del recurso.”. 
+(v) La nulidad que se alega en casación. 
+(vi) “En casación, las discrepancias interpretativas sobre la calificación jurídica deben formularse bajo la causal de violación directa, no bajo la causal de nulidad; por ello, el reproche está mal encauzado y lo hace inadmisible. La defensa tampoco satisface el principio de convalidación, pues guardó silencio en la audiencia de acusación y permitió avanzar en el juicio sin formular objeción alguna. En suma, el reproche carece de los elementos mínimos de construcción técnica.”. 
+(vii) “Invoca la causal primera del artículo 181 de la Ley 906 de 2004- aunque el abogado de DUQUE, lo encausa en el artículo 207 núm. 3º de la Ley 600 de 2000, según la cual, el recurso de casación procede por la falta de aplicación, interpretación errónea o aplicación indebida de una norma del bloque de constitucionalidad, constitucional o legal llamada a regular el caso, supuestos que enmarcan la causal de violación directa de la ley sustancial.”. 
+(viii) “Ahora, esta infracción de la ley ocurre en alguna de estas tres modalidades: i) falta de aplicación, cuando el juez omite aplicar la disposición que rige el caso concreto o yerra acerca de su existencia; ii) indebida aplicación, si realiza una adecuación incorrecta entre el supuesto de hecho de la norma y los hechos probados; y iii) errónea interpretación, si le atribuye a la norma un sentido que no tiene o le da efectos contrarios a su contenido …”. 
+(ix) “Si los impugnantes proponen el cargo por la ruta de la violación directa, solo deben denunciar errores in iudicando de contenido jurídico, por desaciertos de selección o interpretación de la norma sustancial. De ahí que deban hacer completa abstracción de lo fáctico y lo probatorio y, por tanto, admitir los hechos y la apreciación de los medios de conocimiento fijados por los jueces.”. 
+(x) “La demandante lo sustenta en el numeral tercero del artículo 181 del Cpp, el cual señala que el recurso de casación procede por el desconocimiento de las reglas de producción y apreciación probatoria, bien sea mediante la comisión de errores de hecho o de derecho. De los primeros se derivan los falsos juicios de i) existencia, ii) identidad y iii) raciocinio. De los segundos, los falsos juicios de i) convicción y ii) legalidad.”. 
+(xi) “En tales eventos, la demandante tiene la carga de identificar el tipo de error y la modalidad en los que soporta sus cuestionamientos. Esto implica que, cuando el cargo se sustenta en un error de hecho, debe relacionar las pruebas afectadas y el tipo de error que denuncia, esto es, precisar si el fallo incurrió en una suposición u omisión -falso juicio de existencia-; en una adición, tergiversación o cercenamiento -falso juicio de identidad- o si en la valoración se vulneraron las reglas de la sana crítica, especificando en este último caso, si se trata de las reglas de la lógica, máximas de la experiencia o leyes de la ciencia -falso raciocinio-.”. 
+(xii) “Adicionalmente, si el error de derecho es por falso juicio de legalidad, el cual tiene que ver con las normas que regulan la manera de producir e incorporar los medios de conocimiento, el casacionista debe: i) identificar el medio de prueba y las normas procesales que lo regulan que, por resultar desatendidas, determinan su ilegalidad; y ii) revelar la trascendencia del error judicial, es decir, demostrar que, de no haberse incurrido en él, inexorablemente la decisión hubiera sido totalmente opuesta a la que se reprocha, o de no haber tenido en cuenta el medio incorporado de manera ilegal, el Tribunal habría llegado a una decisión diferente …”.
+
+---
+
+# PROVIDENCIA DDP 8391
+
+**Número de Providencia (DDP 8391):** SP2271-2025
+**Radicación (DDP 8391):** 66339
+**Decisión (DDP 8391):** SE CONFIRMA LA ABSOLUCIÓN DE LOS ENTONCES GOBERNADORES (E) DEL DEPARTAMENTO DEL VICHADA.
+
+**Lista de Temas (DDP 8391):**
+(i) “El traslado para los no recurrentes tiene por finalidad jurídico procesal lógica, la de controvertir los argumentos expuestos por el recurrente, más no habilitan la competencia funcional del superior, sus propuestas deberán simplemente ser contestadas conforme el artículo 170.3.4 CPP/2000. Debe la Sala de Casación llamar la atención a los sujetos procesales para que cumplan fielmente con sus deberes conforme la parte que representan. En ese sentido, si las partes o intervinientes no comparten la decisión (sentencia o auto interlocutorio), tienen la facultad de impugnar esa providencia, sin que después, puedan pensar que el traslado para los no recurrentes los habilita para proponer temas que habiliten la competencia funcional del superior.”. 
+(ii) “El delito de Contrato sin cumplimiento de requisitos legales”. 
+(iii) “También es importante recordar que el fraccionamiento no está prohibido por ninguna disposición legal de la Ley 80/1993 o de la Ley 1150/2007, y no constituye un elemento del tipo objetivo del Contrato sin cumplimiento de requisitos legales establecido en el artículo 410 del CP., por lo tanto, en determinados y excepcionales eventos, es dable fraccionar el contrato bajo especiales y concretas circunstancias de cada caso en particular que permitan concluir que el fraccionamiento se justifica ante la imperiosa necesidad de preservar el interés general y que no obedece al capricho del servidor público con el fin de eludir licitación pública.”. 
+(iv) “Finalmente, en cuanto al marco teórico y antes de abordar cada caso particular, debe recordarse que la jurisprudencia de esta Corporación ha sostenido que el principio de confianza es “un concepto de carácter normativo que determina la legitimidad de la expectativa que puede tener un ciudadano en función de la actuación de los demás, en tanto que puede contar con una actuación idónea de quienes actúan en el mismo contexto de riesgo dentro del tráfico jurídico, por lo que debe responder por sus propias actuaciones y no por las de terceros”.”. 
+(v) “Sea lo primero advertir la flagrante equivocación del Fiscal recurrente al considerar que los contratos de suministro son en estricto sentido contratos de compraventa, pues uno y otro tienen características intrínsecas que los hacen muy diferentes, más si se trata de contratos estatales. La naturaleza del contrato de compraventa es la transferencia del derecho de dominio de un bien mueble o inmueble; la del contrato de suministro es la prestación periódica de bienes o de servicios.”. 
+(vi) “Aun así, el certificado de disponibilidad presupuestal es un requisito, no de la fase previa al perfeccionamiento del contrato, sino que es indispensable para cuando se suscriba el mismo por escrito. Así lo exige el artículo 41 de la Ley 80/1993, para efectos de respetar el principio de legalidad, se transcribe la norma original, anterior a la modificación del artículo 23 de la Ley 1150/2007: …”.
+
+---
+
+# PROVIDENCIA DDP 8392
+
+**Número de Providencia (DDP 8392):** AP9592-2025
+**Radicación (DDP 8392):** 65523
+
+**Lista de Temas (DDP 8392):**
+(i) La buena fe. 
+(ii) “[A] diferencia de la buena fe simple que exige sólo una conciencia recta y honesta, la buena fe cualificada o creadora de derecho exige dos elementos a saber: uno subjetivo y otro objetivo. El primero hace referencia a la conciencia de obrar con lealtad, y el segundo exige tener la seguridad de que el tradente es realmente el propietario, lo cual exige averiguaciones adicionales que comprueben tal situación. Es así que, la buena fe simple exige sólo conciencia, mientras que la buena fe cualificada exige conciencia y certeza.”. 
+(iii) “En el mismo sentido, la jurisprudencia de esta Corporación ha distinguido la buena fe simple, entendida como «la conciencia de obrar con lealtad, rectitud y honestidad», que emana del artículo 83 de la Constitución Política y se desarrolla en el artículo 768 del Código Civil; respecto de la buena fe calificada, exenta de culpa o creadora de derechos, que requiere dos elementos: uno subjetivo, consistente en la conciencia de obrar con lealtad y rectitud, y otro objetivo, que implica la realización de averiguaciones para llegar a la certeza de que se adquiere el derecho del legítimo propietario y que se está obrando conforme a la ley, «al punto de ser imposible descubrir el error» …”. 
+(iv) “Para satisfacer esta exigencia, la Sala ha sostenido que deben concurrir los siguientes elementos: …”. 
+(v) “Sin embargo, la Sala considera que el criterio sostenido por el tribunal es incorrecto, debido a que el artículo 17C de la Ley 975 de 2005, adicionado por el artículo 17 de la Ley 1592 de 2012, establece que pueden concurrir al incidente de levantamiento de medidas cautelares los terceros «que se consideren de buena fe exenta de culpa». La jurisprudencia ha establecido que este tipo de buena fe, también llamada calificada o creadora de derechos, implica dos elementos, a saber: el subjetivo, que se acredita en el presente caso, puesto que no se discute la conciencia de Wilfer Prada Quitian de que actuaba con rectitud; pero también otro objetivo, que consiste en la realización de actos positivos tendientes a lograr la certeza sobre el origen lícito del bien. De esta forma, en ausencia del elemento objetivo, no se estructura la buena fe calificada, sino solo la buena fe simple o posesoria de que trata el artículo 768 del Código Civil, en cuanto reconoce el estado psicológico de creencia en la licitud del acto jurídico, pero no se verifica la licitud en grado de certeza.”.
+
+---
+
+# PROVIDENCIA DDP 8393
+
+**Número de Providencia (DDP 8393):** AP9526-2025
+**Radicación (DDP 8393):** 69395
+**Decisión (DDP 8393):** SMS DEL 29.1.2026
+
+**Lista de Temas (DDP 8393):**
+(i) “Legitimidad para recurrir”. 
+(ii) “Interés para recurrir”. 
+(iii) “Fines del recurso de casación”. 
+(iv) “Principios del recurso de casación”. 
+(v) “Causales de casación previstas por la Ley 906 de 2004”. 
+(vi) “Atendiendo a los requisitos expuestos, la Corte inadmitirá la demanda de casación cuando el casacionista carezca de legitimidad, no tenga interés jurídico para recurrir, no precise los fines que persigue, incumpla los principios que rigen la fundamentación de la demanda, presente un escrito que no esté ajustado a la técnica exigida para cada una de las causales o cuando advierta razonablemente la irrelevancia del fallo para alcanzar los propósitos del recurso.”. 
+(vii) “El error de derecho por falso juicio de legalidad se configura cuando el juzgador asume que las partes cumplieron con las reglas para el recaudo e incorporación de una prueba al proceso y, sin ser ello cierto, la valora -prueba ilegal-; también cuando tiene en cuenta una obtenida con desconocimiento o violación de las garantías y derechos de las partes, por ejemplo, el privilegio contra la incriminación o la prerrogativa a la intimidad -prueba ilícita-. Asimismo, incurre en este yerro el funcionario que cree, equívocamente, que excluye del análisis probatorio pruebas ilegales o ilícitas, cuando, de verdad, ellas son legítimas.”. 
+(viii) “En este orden, corresponde al demandante: i) señalar la prueba que considera ilegal o ilícita, ii) explicar los fundamentos fácticos y legales que fundamentan tal percepción y así lo acrediten, iii) precisar cuál fue el valor e importancia otorgados en los fallos de instancia a tales medios de conocimiento y, iv) probar que, marginando la prueba considerada ilegitima, el fallo impugnado debe revocarse o, al menos, modificarse -trascendencia-.”. 
+(ix) “El demandante plantea que las instancias incurrieron en un falso juicio de identidad, debido a que «tergiversaron y cercenaron» la declaración de Ricardo Javier Rodríguez Lajarde: él afirmó que el acusado asistió a las reuniones en las que acordaron asesinar a la víctima, mas no que aquel, efectivamente, ejecutó sus funciones el día de los hechos.”. 
+(x) “La censura referida le impone al recurrente identificar: i) la prueba cercenada, adicionada o tergiversada; ii) indicar lo que ella dice o contiene; iii) en contraste, exponer lo que el juzgado o tribunal entendió o apreció que contenía; iv) ofrecer un nuevo ejercicio de valoración conjunta de la prueba sin el yerro y; v) mediante este ejercicio, destacar la incidencia y trascendencia de tal error en la providencia atacada, de tal manera que, de no existir, su sentido sería sustancialmente diferente.”. 
+(xi) “Finalmente, la defensa ataca la sentencia del Tribunal por incurrir en tres errores de hecho relativos a la construcción de la prueba indiciaria: i) falso juicio de identidad, pues el policía judicial Julio César Hernández Mercado, no dijo a quién le pertenecían los celulares incautados ni que las fotos guardadas en ellos sean selfies del acusado; falsos raciocinios por indebida aplicación de reglas de la experiencia ya que ii) el encargado de entregar un dinero no siempre conoce por qué se realiza la transferencia ; iii) el hecho de que el procesado sea mototaxista no le confiere habilidades para cometer un crimen.”. 
+(xii) “En este sentido, la defensa debe exponer razonablemente si el error en la prueba indiciaria se concretó en torno: i) a la acreditación de los hechos indicadores, ii) a la regla de la experiencia que le otorga fuerza probatoria al indicio, iii) al hecho indicado o conclusión y iv) a la concordancia y convergencia de varios indicios . Así, por ejemplo, si se está en el primero de los supuestos debe indicar si los yerros son de hecho o de derecho, o, si se trata de un error de inferencia lógica por desatender las reglas de la sana crítica, debe aceptar que los hechos indicadores están probados.”.
+
+---
+
+# PROVIDENCIA DDP 8394
+
+**Número de Providencia (DDP 8394):** SP2287-2025
+**Radicación (DDP 8394):** 69928
+
+**Lista de Temas (DDP 8394):**
+(i) Prescripción para algunos eventos en este proceso: “En la fracción comprendida entre el 4 de septiembre de 2007 hasta el 31 de diciembre de 2011, para los delitos contra la libertad, integridad y formación sexuales cometidos contra menores de edad, la acción penal prescribía «en veinte (20) años contados a partir del momento en que la víctima [alcanzara] la mayoría de edad», conforme lo dispuesto en el inciso tercero del artículo 83 del Código Penal, adicionado por el artículo 1 de la Ley 1154 de 2007.”. 
+(ii) “Sobre la motivación de providencias judiciales”. 
+(iii) “En cuanto a los defectos en la motivación de las decisiones, la Sala ha identificado cuatro significativas situaciones: 
+(i) ausencia absoluta de motivación por no haberse consignado los fundamentos fácticos y jurídicos en que se apoya; 
+(ii) motivación incompleta o deficiente, configurada cuando el funcionario omitió pronunciarse sobre algunos de los aspectos descritos o dejó de examinar los alegatos de los sujetos procesales en aspectos trascendentales para resolver el problema jurídico concreto, impidiendo saber cuál es el soporte de la decisión; 
+(iii) motivación ambigua, ambivalente o dilógica que tiene ocurrencia cuando el juez recae en contradicciones, involucra conceptos excluyentes entre sí, al punto de hacer imposible desentrañar el contenido de la parte considerativa y, 
+(iv) motivación sofística, aparente o falsa, surge cuando el fundamento probatorio de la decisión no consulta la realidad”. 
+(iii) “Del punible de actos sexuales con menor de 14 años”. 
+(iv) “Fiabilidad del testimonio”. 
+(v) Corroboración periférica. 
+(vi) “«(…) la jurisprudencia de la Sala ha reconocido que, en los casos de abusos reiterados cometidos en contra de menores —como es el presente— difícil resulta exigirles a las víctimas que recuerden con precisión la fecha y la hora exacta de cada episodio, pues tales detalles suelen perderse y confundirse en la memoria, particularmente cuando el afectado ha sido víctima de múltiples ataques a su integridad y formación sexual, y es sabido que una clara respuesta del cerebro humano frente a un evento traumático es bloquear recuerdos como consecuencia del shock.”. 
+(vii) “En esa medida, si es posible imputar o acusar por abusos repetitivos y sostenidos en el tiempo, sin especificar la cantidad precisa de eventos, o el día o el lugar exacto de ocurrencia de cada uno, es perfectamente [dable] condenar por un núcleo fáctico así formulado. Se reitera, sin embargo, que esta posibilidad sólo está permitida en los casos en los que se discute un contexto generalizado de violencia sexual, física o psicológica cometida en contra de niños, niñas o adolescentes.”. 
+(viii) “En todo caso, debe reiterarse que «no existe un modelo de conducta a seguir impuesto a la mujer para definir el momento de la denuncia de los hechos de que es víctima, fundado en sus condiciones personales, su nivel educativo o el apoyo de su familia». Como la Sala lo ha indicado en otras oportunidades, es irrelevante que la víctima no denuncie inmediatamente los actos de agresión sexual y que lo haga tiempo después. En particular, porque ese aspecto hace parte también de su libertad de determinación …”. 
+(ix) “Es importante destacar la valentía y la fuerza de la ofendida, quien, no obstante el desamparo familiar y la falta de atención ante sus graves padecimientos, decidió denunciar a su agresor sexual, a pesar de que las circunstancias parecían serle adversas. Ello, activó la intervención de la justicia y la condena al procesado, como una respuesta de reivindicación de los derechos de la víctima a la verdad, a la justicia y la reparación.”.
+
+---
+
+# PROVIDENCIA DDP 8395
+
+**Número de Providencia (DDP 8395):** AP9346-2025
+**Radicación (DDP 8395):** 69192
+
+**Lista de Temas (DDP 8395):**
+(i) Se decide “sobre la insistencia formulada por el delegado del Ministerio Público con el propósito de que se declare extinguida la acción penal por reparación integral.”. 
+(ii) El recurso de insistencia. 
+(iii) “En este evento, el casacionista hizo uso del mecanismo con dos propósitos: uno, para que se examine la viabilidad de extinguir la acción penal, que no la pena, por efecto de la reparación integral prevista en la Ley 2477 de 2025 y otro, para que se reconsideren las razones que condujeron a inadmitir el segundo cargo, propuesto con base en la causal tercera, como error de hecho por falso raciocinio.”. 
+(iv) El Ministerio Público “… no halló mérito para solicitar a la Sala reconsideración de los argumentos que motivaron el rechazo de la demanda, sin que, además, expusiera alguno en orden a que la Corte superara los defectos del libelo.”. 
+(v) “Luego, cualquier asunto diferente a esos, como precisamente la extinción por reparación integral, mal puede la Sala decidirlo por vía del mecanismo, de ahí que, su formulación resulte infundada, más aun cuando la información en torno a la reparación integral no fue suministrada oportunamente, esto es antes de que la Sala se hubiere pronunciado sobre el recurso de casación.”. 
+(vi) “No obsta lo anterior para que, ante el juez de ejecución de penas a quien corresponda conocer del asunto en esa fase, se formule petición en el sentido de aplicar la Ley 2477 de 2025 en ese específico tema, tal como lo señaló la Corte en auto del 5 de noviembre del año en curso (AP7997-2025, Rad. 62300) y reiteró una de sus salas de decisión de tutelas (STP19569-2025, Rad. 150.168), habida consideración que el numeral 7º del artículo 38 de la Ley 906 de 2004 dispone que dichos funcionarios conocen de la aplicación del principio de favorabilidad cuando debido a una ley posterior hubiere lugar a reducción, modificación, sustitución, suspensión o extinción de la sanción penal.”.
+
+---
+
+# PROVIDENCIA DDP 8396
+
+**Número de Providencia (DDP 8396):** AP9457-2025
+**Radicación (DDP 8396):** 71412
+**Decisión (DDP 8396):** SMS DEL 30.1.2026
+
+**Lista de Temas (DDP 8396):**
+(i) Competencia para la audiencia de prórroga de medida de aseguramiento. 
+(ii)  “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico, para establecer de manera perentoria y definitiva cuál de los distintos jueces que reclaman o rehúsan el conocimiento de un asunto, es el llamado a asumirlo (artículo 54 ibidem).”. 
+(iii) “Por regla general, este incidente se provoca en la audiencia de formulación de acusación, por iniciativa del juez o a solicitud de las partes. Sin embargo, esta Corporación ha admitido que el juez con función de control de garantías puede declararse incompetente, para celebrar la audiencia de formulación de imputación, así como las demás audiencias preliminares. Criterio también aplicable cuando la competencia la impugna alguna de las partes en esa etapa procesal.”. 
+(iv) “De la competencia de los jueces penales con función de control de garantías.”. 
+(v) “Lo anterior quiere decir, que si bien es cierto la ley no impone que el control de garantías tenga que ser siempre realizado por un juez del lugar en el que ocurrió la conducta punible, de todas formas la intervención de cualquier funcionario judicial de esa naturaleza, en cada caso concreto, debe obedecer a la necesidad de proteger las garantías fundamentales de las personas que pudieran verse comprometidas, merced a la ocurrencia de conductas delictuales sucedidas en su territorio, o que habiendo ocurrido fuera de él, han de ser investigadas dentro del ámbito de su jurisdicción, lo que implica en una u otra forma, que exista una conexión del hecho delictual con su sede funcional.”. 
+(vi) “Ahora, de acuerdo con el recuento procesal realizado, existe certeza en punto a que en este caso ya fue radicado el escrito de acusación y correspondió por reparto al Juzgado Segundo Penal del Circuito Especializado de Cundinamarca, con sede en Bogotá, despacho ante el cual se instaló la audiencia de formulación de acusación.”. 
+(vii) “De manera que un juez que ejerza la función de control de garantías en la capital de la República debe celebrar la audiencia peticionada, pues allí está ubicado el estrado judicial que, hasta este momento, es el encargado de adelantar la etapa de juzgamiento.”. 
+(viii) “Conclusión que no logra ser modificada a partir de lo informado por la fiscal delegada, en el sentido de que la Sala Penal del Tribunal Superior del Distrito Judicial de Cundinamarca no ha definido la competencia en este asunto, luego del ajuste de legalidad que efectuara al momento de la instalación de la audiencia de formulación de acusación. Situación que, en su opinión, la habilitaba para radicar su solicitud ante un juzgado con función de control de garantías de La Mesa, donde está privado de la libertad uno de los procesados.”. 
+(ix) “… situaciones excepcionales que permiten variar la competencia por el factor territorial en los eventos de audiencias ante juez con función de control de garantías: …”. 
+(x) “Tales circunstancias son enunciativas , pues, lo que en todo caso debe evaluarse, es la presencia de una situación razonable que procure la mayor protección de los derechos de las partes e intervinientes afectados con las decisiones. Ello, siempre y cuando se demuestre que la elección del juez con función de control de garantías no obedece al capricho de quien solicita la resolución de un determinado asunto.”.
+
+---
+
+# PROVIDENCIA DDP 8397
+
+**Número de Providencia (DDP 8397):** AP9356-2025
+**Radicación (DDP 8397):** 70912
+
+**Lista de Temas (DDP 8397):**
+(i) Las nulidades y los principios que rigen su declaratoria. 
+(ii)  “La fuerza normativa de la doctrina dictada por la Corte Suprema proviene (1) de la autoridad otorgada constitucionalmente al órgano encargado de establecerla y de su función como órgano encargado de unificar la jurisprudencia ordinaria; (2) de la obligación de los jueces de materializar la igualdad frente a la ley y de igualdad de trato por parte de las autoridades; (3) del principio de la buena fe, entendida como confianza legítima en la conducta de las autoridades del Estado; (4) del carácter decantado de la interpretación del ordenamiento jurídico que dicha autoridad ha construido, confrontándola continuamente con la realidad social que pretende regular. …”. 
+(iii) “A pesar de la citada modificación legislativa, el Tribunal Constitucional  ya había tenido la oportunidad de diferenciar los conceptos de doctrina probable y precedente judicial, con el siguiente razonamiento: …”. 
+(iv) Apartarse de los mandatos de la Corte Suprema de Justicia. 
+(v) “Con fundamento en los asertos precedentes, la Sala insiste en la necesidad e importancia de predicar identidad fáctica entre un precedente y un caso por fallar, como conditio sine qua non de la aplicación del mismo criterio jurisprudencial.”. 
+(vi) “la falta de legitimación de “un abogado de apoyo” designado por el defensor principal, en el trámite de interposición y sustentación del recurso de casación …”. 
+(vii) Los fiscales o defensores de apoyo. 
+(viii) “Sí la defensa estimaba que la intervención del Fiscal de Apoyo, en ausencia del Delegado para el caso, afectaba las garantías de la procesada así debió manifestarlo en la misma diligencia de diciembre de 2024, en lugar de permitir la práctica probatoria para luego proponer una nulidad cuya configuración y conocimiento se verificaron en la sesión de diciembre de 2024.”. 
+(ix) “Lo anterior no quiere significar que la Corte avale el proceder de la Fiscalía General de la Nación en las sesiones de juicio de diciembre de 2024, pues el artículo 114 ejusdem y la jurisprudencia de la Corporación son claros en exigir la presencia del Delegado Titular en las intervenciones del funcionario de apoyo, mas en el presente asunto, vista la falta de trascendencia de la irregularidad y la convalidación tácitamente efectuada por la defensa, no resulta viable anular el trámite, básicamente por cuanto el Fiscal de Apoyo sí se encontraba legitimado para intervenir.”.
+
+---
+
+# PROVIDENCIA DDP 8398
+
+**Número de Providencia (DDP 8398):** AP9362-2025
+**Radicación (DDP 8398):** 71037
+**Decisión (DDP 8398):** SMS DEL 2.2.2026
+
+**Lista de Temas (DDP 8398):**
+(i) “La Corte recuerda que la violación indirecta de la ley sustancial, en su vertiente de falso juicio de identidad, se verifica cuando el juzgador, pese a considerar legal y oportunamente recaudado el medio de prueba, lo aprecia alterando su contenido material. Ese yerro se configura cuando el fallador agrega afirmaciones o negaciones que la prueba no contiene, cercena apartes sustanciales de su contenido o distorsiona su literalidad, atribuyéndole un sentido que objetivamente no expresa. En otros términos, el juez se aparta de la expresión objetiva del medio de conocimiento y la reemplaza por una percepción diversa.”. 
+(ii) “La forma de acreditar este error es elemental. Tal como lo ha explicado la Corte de manera reiterada, el casacionista debe efectuar un cotejo objetivo entre la prueba y el fallo. Ello supone reproducir, de un lado, el contenido literal del medio de prueba y, del otro, lo que el juzgador afirmó que esa prueba decía. Solo así se puede verificar si, entre uno y otro, existe una diferencia ostensible que permita concluir que la sentencia le atribuyó al medio de conocimiento «más de lo que su texto reza, menos de lo que su contenido encierra o algo totalmente distinto de aquello que en realidad expresa» …”. 
+(iii) “Este error es de naturaleza objetiva. No puede confundirse con la discrepancia frente a la valoración de la prueba, la credibilidad asignada por el juez o la ponderación de su mérito demostrativo. Los reproches sobre la lógica, la coherencia narrativa o la verosimilitud de los deponentes pertenecen al ámbito del falso raciocinio, no al de la identidad. El falso juicio de identidad atañe a lo que la prueba dice, no al valor que se le asigna.”. 
+(iv) “Un planteamiento adecuado del falso juicio de identidad impone la carga de señalar, en concreto, cuál fue la prueba distorsionada o cercenada. Asimismo, indicar lo que ella dice y poner en evidencia que el entendimiento que el juzgador obtuvo fue distinto. Se trata, entonces, de un ejercicio de confrontación que implica reproducir lo que textualmente dice la prueba y lo que se le hizo decir, para destacar luego la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(v) “El falso raciocinio se configura cuando el juez se aparta de las reglas de la sana crítica. Ocurre cuando quiebra un principio lógico, desconoce una ley científica o ignora una regla de la experiencia y, a partir de ello, elabora conclusiones que no se desprenden del material probatorio o que contradicen la realidad que este muestra. No se trata de una simple diferencia de criterio frente a la valoración, sino de una falla verificable en el razonamiento que sostiene la decisión. En otras palabras, se trata de una ruptura en la coherencia interna del juicio que impide sostener, de manera racional, la inferencia alcanzada.”. 
+(vi) “Un planteamiento técnico por falso raciocinio exige identificar de manera precisa la regla de la sana crítica supuestamente vulnerada, señalar el razonamiento concreto en el que el tribunal materializó el error y explicar por qué, desde ese estándar, la conclusión judicial se vuelve insostenible. La jurisprudencia de la Sala de Casación Penal ha insistido en que el reproche debe mostrar la ruptura inferencial y que no basta con solo afirmar que el juez debió efectuar una lectura distinta de la prueba o preferir un medio de conocimiento sobre otro.”. 
+(vii) “Al respecto, recientemente la Corte Suprema de Justicia en un asunto, aunque aislado fácticamente, rechazó la idea según la cual la verosimilitud del testimonio se ve comprometida si todo lo que tiene que decir el testigo no lo expresa en la primera oportunidad en que rinde su exposición. Concretamente, destacó que la adición o precisión de algunas circunstancias relacionadas con el delito «por sí solo no los torna inverosímiles o mentirosos [a los testimonios], tampoco puede equivaler a la falta de veracidad, pues ello encontraría una primera explicación en el paso del tiempo, ámbito propicio para rememorar u olvidar un hecho» […]”. 
+(viii) “La apreciación sobre la sinceridad de un testigo o el prejuicio sobre su falta de veracidad por sus contradicciones no constituyen, por sí solas, reglas de esta naturaleza. La credibilidad de un declarante que a lo largo del tiempo ofrece distintas versiones  no se resuelve con la fórmula típica de una máxima de la experiencia —siempre que ocurre A, normalmente ocurre B— o, para el caso, «siempre que un testigo se contradice es porque está mintiendo». En otras palabras, su valor probatorio no se deriva de la aplicación de una regla automática. Depende de la naturaleza de las discrepancias, de su relación con los aspectos centrales del caso, de su corroboración externa y de su articulación con el conjunto probatorio.”. 
+(ix) “Violación indirecta de la ley sustancial derivada de un error de hecho por falso juicio de identidad por adición”. 
+(x) “Cuando se intenta la postulación de la censura por la ruta de la violación directa de la ley sustancia (art. 181 num. 1º del Código de Procedimiento Penal), el recurrente debe hacer completa abstracción de lo fáctico y lo probatorio. En otras palabras, admitir los hechos y la apreciación de los medios de conocimiento fijados por el sentenciador (AP1830-2025).”. 
+(xi) “Bajo ese entendido, le corresponde desarrollar el reproche a partir de un ejercicio estrictamente jurídico, en el que establezca la vulneración del precepto normativo en el caso concreto. Esto, por cualquiera de sus tres modalidades: …”. 
+(xii) “La falta de aplicación opera cuando el juzgado deja de emplear el precepto que regula el asunto. La aplicación indebida ocurre por la equivocada elección por el fallador de una disposición que no se ajusta al caso, con la consecuente inaplicación de la norma que recoge de forma correcta el supuesto fáctico. La interpretación errónea, por último, parte de la acertada selección de la disposición aplicable al asunto debatido, pero contrae un entendimiento equivocado de la misma, que le hace producir efectos jurídicos que no se derivan de su contenido.”. 
+(xiii) “Por último, cabe recordar que, conforme al inciso 2º del artículo 61 del Código Penal, en ausencia de circunstancias de agravación punitiva —como ocurre en este caso—, el fallador tiene la facultad de moverse dentro del cuarto mínimo, es decir, entre los montos menor y mayor de la infracción, siempre y cuando medie una adecuada justificación, como ocurrió en este caso. También es importante destacar que ninguna disposición legal impone la obligación de fijar la pena en la cifra inferior, toda vez que, para la determinación de la sanción, el juzgador debe ponderar los aspectos previstos en el inciso 3º del mencionado artículo, como en efecto lo hizo.”.
+
+---
+
+# PROVIDENCIA DDP 8399
+
+**Número de Providencia (DDP 8399):** CP010-2026
+**Radicación (DDP 8399):** 69124
+
+**Lista de Temas (DDP 8399):**
+Concepto favorable a la solicitud de extradición formulada por el Gobierno de la República de Chile.
+
+---
+
+# PROVIDENCIA DDP 8400
+
+**Número de Providencia (DDP 8400):** SP011-2026
+**Radicación (DDP 8400):** 67209
+
+**Lista de Temas (DDP 8400):**
+(i) El peculado por apropiación. 
+(ii) “La jurisprudencia de esta Sala también ha reiterado que el delito de peculado por apropiación es de carácter instantáneo, por lo cual se consuma «cuando el bien público es objeto de un acto externo de disposición o de incorporación al patrimonio del servidor público o de un tercero, que evidencia el ánimo de apropiárselo»  Se ha señalado que: …”. 
+(iii) “En este sentido, en algunos casos el delito de peculado por apropiación se consuma con la emisión de una providencia judicial que reconoce y ordena el pago de prestaciones inexistentes, efectivamente canceladas a quien no tiene derecho a recibirlas. Este escenario ha sido especialmente estudiado por la Corte en relación con el pago de prestaciones laborales derivadas de las convenciones colectivas suscritas entre la Empresa de Puertos de Colombia – FONCOLPUERTOS – y sus sindicatos.”. 
+(iv) “De la determinación como forma de participación”. 
+(v) “La Sala ha sostenido de manera pacífica que esta forma de participación criminal no exige la intervención material del determinador en la comisión del delito. Lo que se castiga es que quien determina haga nacer o refuerce la idea existente en otro, de la realización de un delito determinado y concreto . Así, la Corte ha definido cinco elementos que estructuran la determinación: …”. 
+(vi) “En cuanto a la determinación en casos relacionados con FONCOLPUERTOS, la Corte ha decantado que: …”.
+
+---
+
+# PROVIDENCIA DDP 8401
+
+**Número de Providencia (DDP 8401):** SP006-2026
+**Radicación (DDP 8401):** 62731
+
+**Lista de Temas (DDP 8401):**
+(i) Las nulidades. 
+(ii) “Nulidad por afectación al derecho de defensa técnica.”. 
+(iii) “Desconocimiento del principio de congruencia fáctica”. 
+(iv) “Por lo anterior, de los hechos jurídicamente relevantes se exige no solo claridad, suficiencia y precisión, sino el respeto en cada una de las etapas del proceso , pues, se insiste, los mismos se instituyen como presupuestos del debido proceso y garantía del derecho a la defensa. Aunado a que no pueden confundirse con los hechos indicadores ni con medios de prueba.”. 
+(v) “Con todo, la consonancia que debe existir entre la imputación, acusación y sentencia no se contrapone a la posibilidad de introducir algunas modificaciones fácticas, en virtud del principio de progresividad que caracteriza al proceso penal, siempre y cuando se mantenga el núcleo del cargo y, por esa vía, el procesado no sea sometido a indefensión .”. 
+(vi) “La estructura del delito de acoso sexual”. 
+(vii) “De otra parte, la defensa cuestionó que, a pesar del hostigamiento verbal y físico que padeció C.A.M.S., esta siguiera trabajando en el establecimiento Café Gurú y que no le contara sobre las agresiones a otras compañeras o a la esposa del encartado. Situación que le resta credibilidad a su dicho.”. 
+(viii) “La Sala destaca que no existe una regla de la experiencia que, a partir de la observación cotidiana, sostenga que usualmente una víctima de acoso sexual, o de cualquier otra conducta que atente contra el bien jurídico de la libertad, integridad y formación sexual, deba siempre comportarse de determinada manera.”. 
+(ix) “Por su parte, reclamar de la víctima que actúe de determinada manera en escenarios donde quien detenta la posición superior abusa de ella para obtener un beneficio sexual no consentido, puede configurarse en una manifestación concreta de discriminación contra la mujer, si con ello se lleva a no condenar la agresión creyendo que la afectada estaba de acuerdo con la misma.”. 
+(x) “Sobre la aplicación del enfoque de género en materia penal, esta Sala en providencia CSJ SP2173-2025, 19 nov. 2025, rad. 68545, reiteró su importancia como herramienta para promover la inclusión e igualdad en el sistema judicial, a fin de identificar estructuras que históricamente han reproducido dinámicas de exclusión hacía las mujeres. En ese orden, en dicha providencia se anotó: …”. 
+(xi) “No obstante, el buen comportamiento del implicado con otras mujeres resulta irrelevante para el caso que se analiza. Ello, por cuanto las características personales de Gustavo Alfredo León Castillo no contribuyen, en este caso, a hacer más o menos probable su responsabilidad frente a los actos que le fueron reprochados. Dicho de otro modo, se juzga a la persona por los actos realizados, no por lo que es, piensa o siente, ni por lo que se cree de él, tal y como lo ha reconocido esta Corporación en su jurisprudencia.”. 
+(xii) “Sobre la plausibilidad de las hipótesis alternas, esta Sala ha reconocido en su jurisprudencia que el procesado comparece al juicio oral amparado por la presunción de inocencia, la que debe ser desvirtuada más allá de duda razonable. No obstante, existe duda razonable cuando la defensa presenta una hipótesis alternativa que, si bien es cierto, no debe ser demostrada en el mismo nivel de la acusación, sí debe encontrar un respaldo razonable en las pruebas, al punto de poder ser catalogada como “verdaderamente plausible”.”. 
+(xiii) Un presunto “Desconocimiento de la carga de la prueba, del principio del in dubio pro reo y de la presunción de inocencia.”. 
+(ivx) “Tampoco puede acudirse a la autonomía judicial como una patente de corso para desconocer la ley que opera en materia penal, como lo pretende el libelista. Debe recordarse que los jueces de la república tienen garantizada la independencia judicial, lo cual implica resolver los asuntos con autonomía de criterio, pero con estricta sujeción a la Constitución y las leyes que regulan cada caso.”. 
+(xv) Supuesta “Insuficiencia en la motivación de la pena impuesta.”.
+
+---
+
+# PROVIDENCIA DDP 8402
+
+**Número de Providencia (DDP 8402):** SP004-2026
+**Radicación (DDP 8402):** 67979
+
+**Lista de Temas (DDP 8402):**
+(i) “Por cuestión práctica la Sala no encuentra necesario referir aspectos dogmáticos y jurisprudenciales que dicen relación con la naturaleza de los delitos objeto de estudio.”. 
+(ii) “Igual ocurre con las figuras jurídicas del principio de confianza, la desconcentración y la delegación, dado que el fallo de primer grado dedicó un amplio espacio a los mencionados temas, sin que ello haya sido objeto de controversia puntual en la apelación.”. 
+(iii) “En ese sentido, es necesario destacar, respecto del elemento normativo del tipo penal que remite a los denominados “requisitos esenciales”, cómo, en efecto, el implicado, al momento de suscribir el contrato tantas veces referido, pasó por alto el cumplimiento de varios principios generales de la contratación Estatal, entre ellos, los de planeación, economía, responsabilidad, transparencia y deber de selección objetiva, contenidos en el preámbulo y artículo 209 de la Carta de la Carta y los artículos 1, 3, 23, 24, 25 y 26 de la Ley 80 de 1993. Ello, a partir de desconocer normas específicas que regulan el tipo de negociación adelantada.”. 
+(iv) “La etapa precontractual y suscripción del contrato.”. 
+(v) “En este sentido, se entiende regla general, la licitación pública, pero, como en este caso, cuando el objeto del contrato alude a la prestación de un servicio de salud, la modalidad del negocio jurídico opera directa, acorde con lo dispuesto en el artículo 20 del Decreto 2170 de 2002 , que reglamenta la Ley 80 de 1993 y modifica el decreto 855 de 1994.”. 
+(vi) “Recuérdese que el pliego de condiciones se constituye en el soporte fundamental, en el que “se diseña, estructura y concreta el denominado proceso contractual de la administración pública”. Adicionalmente es la “clara manifestación de los principios de planeación, transparencia, selección objetiva y de igualdad”. Siendo ello así, es obligación de la administración establecer reglas y procedimientos claros y justos que permitan la mejor escogencia del contratista, con arreglo a las necesidades públicas y el interés general, tal cual lo ha reconocido el Consejo de Estado”. 
+(vii) “La Corte  sobre la labor de vigilancia y control que deben realizar quienes administran recursos públicos, recientemente sostuvo lo siguiente: …”. 
+(viii) “De la falta de requisitos legales para liquidar el contrato.”. 
+(ix) “La Corte  ha señalado que la responsabilidad fiscal es autónoma e independiente respecto de cualquier otra clase de actuación, incluida la penal. De suerte que las conclusiones a las que llegue la autoridad de control fiscal en los asuntos que ella adelanta de manera alguna limitan el ejercicio de la potestad punitiva del Estado.”. 
+(x) “De esa manera, conforme a desarrollo jurisprudencial , están dados los requisitos para que se predique del mandatario haber actuado en calidad de coautor, dado que en la actividad delictiva atribuida i) se evidenció el acuerdo concomitante de voluntades en la que se produjo un detrimento económico al Estado; ii) en tal actividad no sólo concurrió el gobernante sino sus subalternos, es decir hubo concurrencia de varios actores o sujetos; iii) los cuales actuaron con evidente división de trabajo, identidad en el delito cometido y sujeción al plan establecido.”. 
+(xi) “Es claro, entonces que, al emitir condena como coautor impropio, en lugar de autor –como se hizo en la acusación-, preserva el grado de participación endilgado (autoría en sentido amplio), ni genera perjuicio punitivo para el judicializado, en tanto se reitera, la decisión de condena se cimenta en los mismos hechos jurídicamente relevantes objeto de reproche, sin que se advierta ningún escenario de indefensión o sorprendimiento para la defensa.”.
+
+---
+
+# PROVIDENCIA DDP 8403
+
+**Número de Providencia (DDP 8403):** AP8819-2025
+**Radicación (DDP 8403):** 62733
+**Decisión (DDP 8403):** SMS DEL 3.2.2026
+
+**Lista de Temas (DDP 8403):**
+(i) “Sobre la acción de revisión y los requisitos para promoverla”. 
+(ii) “La acción de revisión procede, en principio, contra sentencias condenatorias ejecutoriadas. De igual modo, respecto de absolutorias o de decisiones de preclusión de la investigación o cesación de procedimiento, cuando se invocan las causales 4 y 5 del artículo 220 de la Ley 600.”. 
+(iii) “De allí la necesidad de que se aportara, junto con la copia de los fallos de las instancias, la correspondiente certificación de su ejecutoria. Ese documento acredita que la pretensión es la de derruir la cosa juzgada.”. 
+(iv) “El numeral segundo del artículo 220 de la Ley 600 de 200 prevé que la acción de revisión procede, entre otros, cuando «se hubiere dictado sentencia condenatoria o que imponga medida de seguridad, en proceso que no podía iniciarse o proseguirse por prescripción de la acción».”. 
+(v) “Para la contabilización del término de prescripción en fase de juzgamiento, los extremos temporales los marcan la ejecutoria de la resolución de acusación para su iniciación y la ejecutoria de la sentencia para su finalización. Tal consideración es requisito esencial cuando se acude a esta causal, incluir dentro de la relación de las pruebas que se aportan la resolución de acusación con la respectiva constancia de ejecutoria, pues ese, el único documento que tiene aptitud jurídica para contabilizar el término prescriptivo de la acción.”. 
+(vi) “Sobre el tema, la Sala destaca que la estructuración de la causal de prescripción en la fase de juzgamiento considera dos extremos temporales. Primero, el que marca la ejecutoria de la resolución de acusación, como fecha inicial del conteo del término de prescripción, y la ejecutoria de la sentencia como límite para su finalización.”. 
+(vii) “Frente a las inconformidades planteadas sobre la calificación jurídica, fecha de comisión de los hechos, entre otros aspectos definidos por las autoridades judiciales, debe recordarse que la revisión no es un mecanismo disponible para discutir lo resuelto por jueces de instancia. Tampoco para subsanar las falencias de las partes e intervinientes en el curso del proceso con el cometido de reiterar las inconformidades con las decisiones adoptadas.”.
+
+---
+
+# PROVIDENCIA DDP 8404
+
+**Número de Providencia (DDP 8404):** No especificado
+**Radicación (DDP 8404):** 01446
+**Decisión (DDP 8404):** PROCESO EN CONTRA DE CARLOS RAMÓN GONZÁLEZ MERCHÁN, EXDIRECTOR DEL DAPRE.
+
+**Lista de Temas (DDP 8404):**
+(i) “Esta Corporación ha establecido de manera reiterada que el reconocimiento de la condición de víctima dentro del proceso penal regido por la Ley 906 de 2004 debe estar precedido de una demostración siquiera sumaria de la ocurrencia de un daño causado con el ilícito materia de juzgamiento, advirtiendo que, si bien en la Sentencia C-516 de 2007, se declaró inexequible la expresión «directa» que originalmente traía el artículo 132 del Código de Procedimiento Penal, la misma aludía al título de imputación del daño, no así, al detrimento sufrido por quien pretende este reconocimiento.”. 
+(ii) “Por su parte, la Sala de Casación Penal ha integrado el término genérico víctima para referirse a las personas que por haber padecido un daño real y concreto tienen derecho a intervenir en el proceso penal con el propósito de obtener verdad, justicia y reparación. Sobre la calidad de víctima, ha señalado: …”. 
+(iii) “De la misma manera, no puede pasarse por alto que el artículo 137 de la Ley 600 de 2000, aplicable por integración a los asuntos tramitados bajo la Ley 906 de 20042, establece que, en todo proceso por delito contra la administración pública, será obligatoria la constitución de parte civil a cargo de la persona jurídica de derecho público perjudicada.”. 
+(iv) “Respecto de la controversia suscitada por la eventual pretensión de la Contraloría General de la República de actuar como presunta víctima en la presente actuación, resulta pertinente precisar que la misión institucional de la Agencia Nacional de Defensa Jurídica del Estado es sustancialmente diferente de la correspondiente a la entidad de control fiscal.”. 
+(v) “Si bien, como regla general, el reconocimiento como víctima exige la verificación directa de un daño derivado de la conducta delictiva atribuida, tratándose de la Contraloría General dicha valoración debe realizarse a la luz de los principios constitucionales y legales que orientan su función.”.
+
+---
+
+# PROVIDENCIA DDP 8405
+
+**Número de Providencia (DDP 8405):** SP014-2026
+**Radicación (DDP 8405):** 69806
+
+**Lista de Temas (DDP 8405):**
+(i) “El impugnante, con fundamento en lo dispuesto en el artículo 457 de la Ley 906 de 2004, solicitó la nulidad de la actuación, a partir de la audiencia concentrada. Sustentó su petición en que su prohijado careció de defensa técnica, debido a que su antecesor actuó de forma «deficiente, desequilibrante» y «meramente formal», lo que conllevó a la vulneración del debido proceso y la emisión de sentencia condenatoria.”. 
+(ii)  “Al respecto, debe señalarse que las partes pueden estipular uno o varios hechos jurídicamente relevantes o indicadores y/o referentes fácticos de la autenticación de las evidencias físicas o documentos . Siendo del caso clarificar que solo pueden versar sobre aspectos factuales, como lo dispone el parágrafo del numeral 4º del artículo 356 de la Ley 906 de 2004 .”. 
+(iii) “La razón obedece a que la finalidad de las estipulaciones es depurar el tema de prueba y, bajo esa senda, dinamizar el proceso, sustrayendo del debate probatorio hechos o circunstancias carentes de «controversia». De allí, la importancia de que se realicen en términos claros y precisos.”. 
+(iv) “… es inadmisible una estipulación que implique, en sí misma, el fracaso de la pretensión punitiva del Estado o conlleve la condena del procesado. Para tales efectos, no es trascendente si ello obedece al propósito o a un error de las partes, porque, a manera de ejemplo, si lo que pretende la Fiscalía es eludir las cargas y los controles propios de la preclusión, la absolución perentoria o cualquier otra forma de terminación anticipada de la actuación, ello no puede ser avalado por el juez, como tampoco puede serlo el que, por equivocación, las estipulaciones conduzcan irremediablemente a un fallo condenatorio.”. 
+(v) “Es del caso clarificar que el hecho de que el defensor que representó al procesado hasta el juicio oral no sea el mismo que manifiesta ahora el inconformismo que centra la atención de la Sala, no constituye razón para plantear una posición distinta a la de quien inicialmente representó al implicado, so pretexto de la vulneración del derecho de defensa técnica.”. 
+(vi) La violencia intrafamiliar. 
+(vii) La apreciación de un testimonio. 
+(viii) “Recuérdese que, tratándose del delito de violencia intrafamiliar, necesario resulta acreditar que el agresor y la víctima hacen parte de un mismo núcleo familiar -derivado de un vínculo de consanguinidad, jurídico o convivencia- y la existencia de maltrato físico y/o psicológico.”. 
+(ix) “«En cuanto al alcance del concepto de familia, la Corte ha estimado que debe considerarse la realidad social y, por ende, ha ampliado su ámbito de protección a todo tipo de familias, originadas en el matrimonio, en las uniones maritales de hecho, así como a las familias monoparentales, o las constituidas por parejas del mismo sexo, teniendo en cuenta que el concepto de familia no puede ser entendido de manera aislada, sino en concordancia con el principio del pluralismo. De este modo, se ha entendido que la familia debe ser especialmente protegida independientemente de que el grupo familiar se conforme por vínculos jurídicos o naturales (CP, 42)».”. 
+(x) “De modo que, la protección de la coexistencia pacífica de un proyecto colectivo que supone el respeto por la autonomía ética de sus integrantes (CSJ SP, 7 jun. 2017, rad. 48047), se analiza de cara a la convivencia, el vínculo jurídico o natural y las situaciones reales de interacción entre los sujetos, sin condicionarlo al paso de determinado tiempo.”. 
+(xi) “Es decir que, en aplicación de la figura jurídica de prueba de referencia, resulta admisible la incorporación de declaraciones previas al juicio oral. Empero, condicionado a la concurrencia de alguna de las siguientes hipótesis: 
+(i) el declarante pierde la memoria, 
+(ii) es secuestrado o desaparecido forzosamente, 
+(iii) padece una enfermedad grave que le impide rendir testimonio, 
+(iv) fallece o 
+(v) se trata de un menor víctima de delitos sexuales .”. 
+(xii) “Bajo esa línea argumentativa, un informe médico legal no es el único medio idóneo para acreditar la existencia de maltrato físico, pues, bien puede acudirse a los otros medios de convicción contemplados en el artículo 382 de la Ley 906 de 2004.”. 
+(xiii) “Clarificado lo anterior, el maltrato psicológico se configura cuando una persona provoca a otra, de manera intencional, dolor emocional, angustia, miedo o sufrimiento. Es una clase de violencia invisible derivada del uso deliberado de palabras o acciones orientadas a debilitar, herir, manipular o asustar mental y emocionalmente, con el fin de afectar la estabilidad de la víctima y su dignidad, mediante la intimidación, culpabilización, desvalorización, insultos, menosprecio, falta de respeto, amenazas, humillación, chantaje, gritos y burlas.”.
+
+---
+
+# PROVIDENCIA DDP 8406
+
+**Número de Providencia (DDP 8406):** AP8757-2025
+**Radicación (DDP 8406):** 68531
+
+**Lista de Temas (DDP 8406):**
+(i) La casación en la justicia penal militar. 
+(ii) “De manera reiterada, ha señalado la Sala que cuando se acude en esta sede a elevar censuras contra el fallo de segundo grado con apoyo en la causal primera de casación, no resulta admisible que el demandante controvierta los hechos que se declararon demostrados en la sentencia o la apreciación que los juzgadores hicieron de las pruebas, puesto que esta forma de infracción de la ley sustancial presupone conformidad absoluta con dichos aspectos.”. 
+(iii) “El debate, en consecuencia, cuando tal modalidad de violación de la ley sustancial se plantea, debe ser de contenido estrictamente jurídico, no probatorio y, debe necesariamente abordarse a partir del supuesto de que los juzgadores acertaron en la demostración de las conclusiones fácticas, pero se equivocaron al determinar la valoración jurídico sustantiva del asunto, bien porque aplicaron una norma equivocada, porque dejaron de aplicar la correcta, o porque habiendo acertado en su selección, le dieron un significado distinto del que legalmente corresponde.”. 
+(iv) “En el caso bajo examen, la delegada fiscal plantea que el Tribunal, con evidente abandono del deber de variar la calificación jurídica de la conducta de desobediencia objeto de acusación por la de abandono de cargo agravado, no lo hizo por interpretar erradamente que, a pesar de encontrarse acreditados los elementos típicos del último punible citado, se agravaba la situación jurídica de GARCÍA PENCUE por cuanto de manera abstracta, es un delito más grave que el que fuere objeto de condena en primera instancia.”.
+
+---
+
+# PROVIDENCIA DDP 8407
+
+**Número de Providencia (DDP 8407):** AP112-2026
+**Radicación (DDP 8407):** 71394
+**Decisión (DDP 8407):** SMS DEL 4.2.2026
+
+**Lista de Temas (DDP 8407):**
+(i) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para establecer de manera perentoria y definitiva cuál de los distintos Jueces o Magistrados es el llamado a conocer la fase de conocimiento, u ocuparse de un trámite determinado.”. 
+(ii) “En materia de ejecución de penas y medidas de seguridad, esta Sala en la decisión AP8312-2016 unificó las reglas relevantes para determinar el juez competente de acuerdo con el factor personal que opera en este tipo de asuntos. En concreto, señaló: …”. 
+(iii) “De manera que la competencia para vigilar la pena impuesta de acuerdo con el factor personal que acompaña al condenado corresponde al Juez de Ejecución de Penas y Medidas de Seguridad del lugar en el que se encuentre ubicado el centro carcelario, en el evento de que el sentenciado se encuentre privado de la libertad, incluida la prisión domiciliaria, o del lugar en el que se dictó la sentencia de primera instancia, cuando esté en libertad.”. 
+(iv) “En relación con este tema, se tiene que en decisión AP1277-2023, 17 may. 2023, rad. 63713, en un asunto de contornos similares a los acá expuestos, la Sala recordó que lo determinante para resolver la competencia en eventos donde no se ha dado cumplimiento a la orden de reclusión en establecimiento carcelario es establecer si la persona se encuentra efectivamente privada de la libertad y, si es así, identificar la autoridad carcelaria que tiene a cargo la vigilancia de esta.”. 
+(v) “De modo que el debate acerca de las razones por las cuales no se ha efectuado el traslado del condenado al centro carcelario dispuesto en la sentencia de condena resulta indiferente para el análisis de la competencia. Lo verdaderamente importante es identificar si el penado se encuentra descontando la condena y la autoridad administrativa que vigila ese acto.”.
+
+---
+
+# PROVIDENCIA DDP 8408
+
+**Número de Providencia (DDP 8408):** AP203-2026
+**Radicación (DDP 8408):** 70029
+
+**Lista de Temas (DDP 8408):**
+(i) “El recurso de reposición tiene por objeto la revocatoria, modificación, aclaración o adición de una decisión judicial que se considera equivocada, confusa o incompleta. Por consiguiente, en manera alguna se constituye en mecanismo propicio para insistir en los supuestos aducidos en la solicitud inicial, estudiados y desestimados en el proveído recurrido, ni para incorporar nuevos argumentos, adicionar los enunciados, subsanar o corregir el pedido original.”. 
+(ii) “Muchísimo menos se constituye en la oportunidad de introducir inconformidades que de ninguna manera fueron el objeto de la decisión cuestionada, ni para formular pretensiones inoportunas y ajenas a la temática de la providencia recurrida.”. 
+(iii) “De ocurrir esto, es decir, cuando definitivamente el discurso del recurrente no contiene la más mínima argumentación en torno a la que sirvió de fundamento al proveído cuestionado, debe concluirse que se faltó al deber de sustentación y que, en consecuencia, el medio de defensa, debe declararse desierto.”. 
+(iv) “Es evidente, por tanto, que el recurso de reposición interpuesto no contiene la más mínima referencia a la problemática planteada en el auto cuestionado; en su lugar, el defensor propuso una nueva, totalmente diferente y sobre la que, desde luego, la Sala no expuso razón alguna, por no ser ella la que fundamentaba la extemporaneidad de la sustentación tanto de la impugnación especial, como de la casación y, por demás, inoportuna, si se advierte que en la sistemática de la Ley 906 de 2004 las nulidades tienen su ámbito de invocación durante la audiencia de acusación y por virtud de la impugnación especial y el recurso extraordinario de casación.”.
+
+---
+
+# PROVIDENCIA DDP 8409
+
+**Número de Providencia (DDP 8409):** AP159-2026
+**Radicación (DDP 8409):** 71340
+
+**Lista de Temas (DDP 8409):**
+(i) “Del trámite de la definición de competencia.”. 
+(ii) “En el presente asunto el Juzgado Tercero Penal del Circuito Especializado de Medellín se apartó de las reglas fijadas por esta Corte para la definición de competencia. En efecto, emitió un auto mediante el cual se declaró competente y habilitó la interposición de recursos no previstos para impugnar decisiones sobre esta naturaleza.”. 
+(iii) “Esa actuación desconoció el trámite dispuesto por la jurisprudencia, según la cual una vez trabada la discusión se envía de inmediato el asunto al funcionario competente para resolverla. Lo mismo ocurre si todos los intervinientes están de acuerdo en que el competente es un juez de otro distrito, que también repudia la competencia.”. 
+(iv)  “De acuerdo con el precedente aplicable, cuando surge una controversia sobre la competencia, la judicatura debe abstenerse de habilitar recursos ordinarios y remitir sin dilación el expediente al funcionario competente para resolverla. Esa regla garantiza uniformidad procesal, evita decisiones contradictorias y preserva que la competencia sea definida por la instancia legalmente autorizada.”. 
+(v) “En este contexto, la Sala resalta que el respeto por el trámite previsto no constituye un formalismo carente de sentido, sino una garantía orientada a impedir que un juez consolide su propia competencia mediante decisiones unilaterales. Esa práctica resulta incompatible con la estructura del modelo acusatorio, que exige controles institucionales y restringe la intervención autónoma del despacho en la determinación de su competencia. Por ello, la sujeción estricta al precedente se erige como un presupuesto esencial para asegurar imparcialidad y coherencia institucional.”. 
+(vi) “De la regla para definir la competencia.”. 
+(vii) “Para tal efecto deben observarse las reglas previstas para la determinación del juez competente. El conocimiento corresponde al funcionario de mayor jerarquía, conforme a la competencia fijada por el fuero legal o por la naturaleza del asunto. Cuando los despachos enfrentados pertenecen al mismo nivel, el factor determinante será el territorial, aplicado de manera excluyente y preferente en el siguiente orden: …”.
+
+---
+
+# PROVIDENCIA DDP 8410
+
+**Número de Providencia (DDP 8410):** AP8779-2025
+**Radicación (DDP 8410):** 63208
+**Decisión (DDP 8410):** SMS DEL 5.2.2026
+
+**Lista de Temas (DDP 8410):**
+(i) “La crítica de la prueba indiciaria y la forma en que un defecto en su apreciación debe ser planteado en casación, está sujeta a parámetros precisos a la hora de evidenciar falencias en su construcción …”. 
+(ii) “La jurisprudencia de esta Sala repetidamente ha dicho que es imprescindible especificar si el yerro denunciado se predica: 
+(i) de los medios probatorios demostrativos de los hechos indicadores; 
+(ii) de la inferencia lógica; o, 
+(iii) del proceso de valoración conjunta al sopesarse la articulación, convergencia y concordancia de los varios indicios entre sí y entre estos y las restantes pruebas, para llegar el juzgador a una conclusión desacertada.”. 
+(iii) “Si el dislate radica en la apreciación del hecho indicador, dado que este necesariamente ha de acreditarse con medios de prueba concretos, el recurrente debe precisar si el error es de hecho –falso juicio de existencia (por suposición u omisión), falso juicio de identidad (por tergiversación, adición o cercenamiento), o falso raciocinio–; o de derecho –falsos juicios de legalidad o de convicción–, a qué modalidad corresponde y su configuración en el caso concreto.”. 
+(iv) “Si la censura apunta al proceso de inferencia lógica, se impone aceptar la validez del medio probatorio con el que se acredita el hecho indicador y, por tratarse de un proceso intelectual valorativo, plantear el ataque por la vía del error de hecho por falso raciocinio con el fin de evidenciar que el juzgador en la labor de asignación del mérito suasorio se apartó de las leyes de la ciencia, los principios de la lógica o las máximas de experiencia.”. 
+(v) “Por último, si el yerro se presenta en la labor de análisis de la convergencia y congruencia entre los distintos indicios y de estos con los demás medios probatorios, o al asignar el fallador la fuerza demostrativa en su valoración conjunta, el reproche en casación ha de seguir la senda del error de hecho por falso raciocinio. Esta modalidad de ataque implica aceptar el hecho probado y la inferencia lógica que en cada caso realizó el juzgador e impone al demandante demostrar que en el proceso intelectual a través del cual se vincularon los diferentes indicios, se desbordaron las reglas de la sana crítica y que de no haberse incurrido en el error otra hubiera sido la decisión, lo cual lo obliga a desvirtuar los demás fundamentos probatorios de la sentencia.”. 
+(vi) “En relación con los principios de la lógica, la Corte en múltiples oportunidades ha sostenido que ellos se concretan en: 
+(i) identidad: una cosa sólo puede ser lo que es y no otra, y sólo puede ser idéntica a sí misma; 
+(ii) no contradicción: una cosa no puede entenderse en dos dimensiones al mismo tiempo, lo cual significa que, una cosa no puede ser y no ser simultáneamente, o que dos juicios, que entre sí se contradicen, no pueden ser verdaderos al mismo tiempo; 
+(iii) tercero excluido: entre dos proposiciones, en la cual una afirma y otra niega, una de ellas debe ser verdadera, vale decir, entre la afirmación y la negación no hay una tercera posibilidad y, la verdad surge de la afirmación o de la negación; y, 
+(iv) razón suficiente: cualquier afirmación que acredite la existencia o no de un hecho, debe estar fundamentada en una razón que la justifique suficientemente, para que sea así y no de otro modo.”. 
+(vii) “Y, si la censura radicaba en la inferencia lógica, ha de recordarse (Cfr. CSJ AP3309–2021, 4 ag. 2021, rad. 54590) que esta es el resultado de un proceso intelectual valorativo y la única vía para su reproche es igualmente el error de hecho por falso raciocinio, el cual puede surgir porque de los hechos indicadores no era posible deducir o derivar el hecho indicado o lo concluido, escenario al que se arriba a través del menoscabo de las máximas de la experiencia, las leyes de la lógica o de la ciencia.”.
+
+---
+
+# PROVIDENCIA DDP 8411
+
+**Número de Providencia (DDP 8411):** SP013-2026
+**Radicación (DDP 8411):** 70306
+
+**Lista de Temas (DDP 8411):**
+(i) “Dosificación de la pena en casos de sentencia anticipada frente a las conductas previstas en el artículo 26 de la Ley 1121 de 2006: evolución jurisprudencial.”. 
+(ii) “Ley 2477 de 2025: Teleología y consecuencias de su aplicación”. 
+(iii) “Parámetros de aplicación del artículo 12 de la Ley 2477 de 2025: efectos político-criminalmente útiles.”. 
+(iv) “Sobre la interpretación teleológica de la ley penal.”. 
+(v) “La proporcionalidad es, junto a la necesidad y la razonabilidad, un principio rector de la sanción, en los términos del artículo 3° del Código Penal. No obstante, se trata de un axioma de rango constitucional que, consecuentemente, no solo opera en la fase impositiva de la sanción, sino también en el marco de su producción legislativa.”. 
+(vi) “La jurisprudencia de la Corte Suprema de Justicia, en tanto fuente formal de derecho constitucionalmente instituida (art. 230, C.N), debe armonizarse con las nuevas realidades históricas y, en tal virtud, ha de constituir una herramienta hermenéutica dispuesta para proveer de sentido a la ley; esto, si se tiene en cuenta que, en tanto enunciado de estructura abstracta, la norma legal no siempre tiene la capacidad para producir el «efecto regulatorio» que el constituyente derivado pretende darle.”.
+
+---
+
+# PROVIDENCIA DDP 8412
+
+**Número de Providencia (DDP 8412):** AP206-2026
+**Radicación (DDP 8412):** 71339
+**Decisión (DDP 8412):** SMS DEL 6.2.2026
+
+**Lista de Temas (DDP 8412):**
+(i) El recurso de queja. 
+(ii) “Se debe recordar que la finalidad del recurso de queja es proteger la garantía de la doble instancia, de modo que, está orientado esencialmente a determinar si fue correcta, o no, la negativa a conceder la alzada, sin que corresponda examinar el acierto de la providencia objeto de impugnación, conforme a lo dispuesto en los cánones 179B y siguientes del Código de Procedimiento Penal.”. 
+(iii) “De un lado, a partir del auto CSJ AP4812, 27 jul. 2015, rad. 47469, reiterado en CSJ AP1943, 26 mar. 2025, rad. 68213, la Sala modificó la línea jurisprudencial según la cual el recurso de apelación era procedente para cuestionar tanto las providencias que negaban las solicitudes probatorias, como aquellas que accedían a su decreto. Al respecto, se propuso: …”. 
+(iv) “También, que desde la providencia CSJ AP384, 31 ene. 2018, rad. 51917, retomada en CSJ AP5395, 11 nov. 2022, rad. 62487, la Corte adoptó un criterio para proponer que los funcionarios judiciales deben ejercer un control en las solicitudes de pruebas y sus efectos, en aras de evitar que las partes acudan, inapropiadamente, al mecanismo de exclusión, con el único propósito de habilitar el recurso de alzada.”. 
+(v) “La exclusión probatoria es una sanción procesal consagrada en el artículo 29 de la Constitución Política, orientada a proteger los derechos fundamentales de las partes en la obtención y práctica de las pruebas. En armonía con ese mandato, el artículo 23 del C.P.P. dispone que, toda prueba obtenida con violación de garantías fundamentales será nula de pleno derecho, por lo que deberá excluirse de la actuación.”. 
+(vi) “Así, la Corte advierte que la Sala de Conjueces no comprendió que los argumentos de la defensa revelaban materialmente una solicitud de exclusión y que, en esas condiciones, no era plausible darle tratamiento de una inadmisión probatoria. Máxime cuando el a quo resolvió de fondo el pedido de exclusión, al indicar que, la nulidad decretada sobre los referidos autos y piezas procesales del expediente civil no impedía que fuesen admitidos como pruebas.”. 
+(vii) “Entonces, es cierto que contra la decisión de admitir una prueba no procede el recurso de apelación. Pero, aquí la inconformidad de la defensa se originó en la denegación de su solicitud de exclusión de documentos pedidos por el ente acusador -pese a que, desde un plano formal, se despachó como inadmisión-, por estimarlos ilegales. Eso revela una situación diversa a la entendida por el Tribunal a quo, con independencia de que, la petición resulte fundada, o no.”.
+
+---
+
+# PROVIDENCIA DDP 8413
+
+**Número de Providencia (DDP 8413):** AP8765-2025
+**Radicación (DDP 8413):** 67741
+
+**Lista de Temas (DDP 8413):**
+(i) “Respecto del interés jurídico para recurrir en casación, la Corte tiene dicho que en los casos de terminación anticipada del proceso, bien por vía del allanamiento a cargos o por el sendero de la negociación, el acusado solamente está legitimado para controvertir, a través de los recursos legales, la vulneración de sus garantías fundamentales, el quantum de la pena, aspectos relacionados con la suspensión de ejecución condicional u otros beneficios y lo relacionado con su determinación, aunque, en el segundo caso, tampoco puede mostrar inconformidad frente a los términos de la sanción, si estos fueron objeto de preacuerdo, siempre, desde luego, que el juez los haya respetado (Cfr. CSJ AP, 14 sept. 2009, rad. 32032, AP- 2022, rad. 60586 de 1 de junio de 2022).”. 
+(ii) “Aduce el libelista que el Tribunal negó al implicado la prisión domiciliaria, sin tener en cuenta que fue condenado en su calidad de cómplice y no de autor, con lo cual, igualmente, contravino las sentencias de esta Corte SP3103, del 9 de mayo de 2016, dentro del radicado 45181, y la SP7100, del 1 de junio de 2016.”. 
+(iii) “En segundo lugar, su desacuerdo con los fallos de instancia, corresponde en concreto, a la negativa de la concesión de la prisión domiciliaria y al entendimiento que debía darse a la variación de la calidad de participación del procesado, de autor a cómplice, con miras a la rebaja de pena, en tanto, en su sentir, esa degradación igualmente debía tenerse en cuenta para verificar el presupuesto objetivo fijado para la concesión de la prisión domiciliaria.”. 
+(iv) “Las afirmaciones así planteadas por el recurrente, carecen de idoneidad sustancial, en tanto, desconocen los términos del preacuerdo en el que se edificó la condena, así como, la jurisprudencia vigente de esta Corte sobre el tema.”. 
+(v) “Por lo visto, no es aplicable el precedente fijado en las sentencias SP3103-2016, 9 mar. 2016, rad. 45181, y la SP7100-2016, 1 jun. 2016, rad. 46101, porque, cuando el juzgado aprobó la legalidad del acuerdo –23 de mayo de 2024–, respecto del aquí procesado, esta Corporación ya había variado su postura en la sentencia CSJ SP2073-2020, 24 jun. 2020, rad 52227, que estableció las reglas -hoy vigentes-, con las cuales se determinan las bases de legalidad en materia de preacuerdos, mediante la aplicación de una determinada adecuación típica, cuyo efecto es admisible sólo para fijar la consecuencia punitiva, en contraprestación a la aceptación de responsabilidad.”. 
+(vi) “En esa línea, la Corte,  igualmente ha entendido que la negociación comporta una ficción jurídica habilitante de una benéfica tasación de la pena, que no irradia efectos a la verificación de los requisitos de la suspensión condicional y la prisión domiciliaria. Ello, debido a que las consecuencias de la admisión y declaración de responsabilidad se encuentra delimitada por el delito cometido (“imputado con estricta tipicidad”).”. 
+(vii) “Retomando, las pautas trazadas en la CSJ SP2073, del 24 de junio de 2020, rad 52227, son las que siguen vigentes, por tanto produjo efectos inmediatos y obligatorios para el caso que dio lugar a la modificación y respecto de los que deban resolverse hacia el futuro, como sucede en ese asunto. Así lo ha sostenido la Corte en los proveídos CSJ SP1575, del 17 de junio de 2020, rad 50312, y CSJ AP744, de 23 de febrero de 2022.”.
+
+---
+
+# PROVIDENCIA DDP 8414
+
+**Número de Providencia (DDP 8414):** AP136-2026
+**Radicación (DDP 8414):** 61623
+
+**Lista de Temas (DDP 8414):**
+(i) “Pues bien, a simple vista el actor busca reprochar aisladamente y de manera parcial algunos de los hechos indicadores que fueron usados por las instancias para acreditar la referida finalidad de distribución.”. 
+(ii) “Sin embargo, vulnera el principio de corrección material, pues no fueron todos los hechos indicadores que sirvieron a las instancias para soportar dicho elemento del tipo. Además, se advierte que esa finalidad fue soportada a través de un cúmulo de datos, convergentes y concordantes a esa conclusión, sin que el censor se ocupe de rebatirlos en su conjunto.”. 
+(iii) “Al respecto, en primer lugar, es diciente la advertencia expuesta por la primera instancia al abordar el asunto, cuando señaló que “hay varios puntos que, tomados en conjunto, es decir no aisladamente, llevan a concluir que dicho almacenamiento tenía como destino el suministro a terceros””. 
+(iv) “En particular, las instancias, al conformar una unidad jurídica inescindible, dieron por probada la finalidad de distribución a través de los siguientes hechos indicadores: …”. 
+(v) “Pues bien, la Corte ha sostenido que cuando una decisión se cimenta en la existencia de múltiples hechos indicadores que son convergentes y concordantes en una conclusión determinada, el censor debe ocuparse de unas cargas específicas, las cuales son desconocidas en esta oportunidad (CSJ SP1467-2016 Rad. 37175): …”. 
+(vi) “En tal sentido, si lo pretendido era demostrar un falso juicio de existencia por omisión, vulnera el principio de corrección material, pues deja de lado las consideraciones ya transcritas. En todo caso, si quería postular un falso juicio de identidad por cercenamiento, tampoco cumple las cargas que le asistían pues, entre otras, no identifica cuáles fueron los apartados suprimidos por las instancias y que objetivamente pueden abstraerse de las atestaciones. Mucho menos se ocupa de demostrar un yerro en el razonamiento de las instancias para descartar la hipótesis alternativa de que la droga era para el autoconsumo.”.
+
+---
+
+# PROVIDENCIA DDP 8414
+
+**Número de Providencia (DDP 8414):** AP465-2026
+**Radicación (DDP 8414):** 71629
+**Decisión (DDP 8414):** SMS DEL 9.2.2026
+
+**Lista de Temas (DDP 8414):**
+1 La Sala Penal de la Corte Suprema de Justicia “declaró infundada la recusación presentada por los apoderados de las víctimas en contra del magistrado Carlos Roberto Solórzano, para conocer las demandas de casación en caso del expresidente Álvaro Uribe.”.
+
+---
+
+# PROVIDENCIA DDP 8415
+
+**Número de Providencia (DDP 8415):** No especificado
+**Radicación (DDP 8415):** CUI 76109-60-00-163-2020-00057 (
+**Decisión (DDP 8415):** AC-748-25).
+
+**Lista de Temas (DDP 8415):**
+(i) “La Sala de vieja data ha precisado que para la demostración de ese ingrediente no es suficiente con elementos de persuasión relacionados con la simple posesión, tenencia o porte del arma de fuego o de la munición, sino que para ello es necesario partir de datos o hechos de naturaleza objetiva, emanados de los medios de conocimiento recaudados en el juicio oral, incluso, estipulación de las partes en ese sentido, que permita concluir de manera razonable y fundada que la posesión o tenencia del arma o munición carece de amparo jurídico”. 
+(ii) “Agréguese que el componente descriptivo del tipo no se puede presumir argumentativamente, toda vez que se desconocería el mandato legal de la carga de la prueba que recae en el órgano de persecución penal.”. 
+(iii) “Bajo tal intelección, la inexistencia de salvoconducto a nombre del sujeto agente debe estar soportada en prueba que así lo acredite, sin dejar de lado el principio de libertad probatoria contenido en el artículo 373 de la Ley 906 de 2004.”. 
+(iv) “En cuanto al ingrediente normativo del delito atentatorio contra el bien jurídico de la seguridad pública –art. 365 del C.P.– relacionado con la ausencia de permiso para el porte de armas de fuego, accesorios, partes o municiones, pasó por alto el Delegado del Fiscal General de [la] Nación que intervino en la audiencia de sustentación oral del recurso de casación, que, desde antaño, la Sala ha indicado que para tal acreditación no hay tarifa legal, porque el sistema de libertad probatoria da cabida a que tal circunstancia se demuestre con cualquier medio de convicción.”.
+
+---
+
+# PROVIDENCIA DDP 8416
+
+**Número de Providencia (DDP 8416):** No especificado
+**Radicación (DDP 8416):** CUI 73026
+**Decisión (DDP 8416):** 60.00.456.2016.00123.01.
+
+**Lista de Temas (DDP 8416):**
+(i) “Frente al punible de HOMICIDIO, el Alto Tribunal de Justicia, sobre los elementos de este tipo penal, en providencia, destacó: …”. 
+(ii) “En cuanto el homicidio agravado, bajo la causal del artículo 104 numeral 7° del CP, la misma Corporación de justicia, en providencia, puntualizó: …”. 
+(iii) “Con relación al punible de feminicidio, el Alto Tribunal ha señalado los siguientes criterios de configuración: …”. 
+(iv) Con relación al porte ilegal de armas, la Corte ha señalado que … 
+(v) Prescripción para el porte ilegal de armas. 
+(vi) “Vistos el criterio jurisprudencial expuesto, resulta evidente que el delito de tentativa de feminicidio agravado no se configuró porque efectivamente la Fiscalía no probó actos de agresión, de humillación, de discriminación que hicieran pensar que el intento de homicidio obedeciera a su condición de mujer …”.
+
+---
+
+# PROVIDENCIA DDP 8417
+
+**Número de Providencia (DDP 8417):** No especificado
+**Radicación (DDP 8417):** CUI 110016000015202106363
+
+**Lista de Temas (DDP 8417):**
+(i) “La Ley 906 de 2004 le otorga a la Fiscalía la facultad de celebrar con el imputado o acusado distintas clases de preacuerdos, siempre en búsqueda de cumplir las finalidades previstas en su artículo 348. A esas diferentes modalidades de negociación se ha referido la Sala de Casación Penal de la Corte Suprema de Justicia para fijarle algunos límites. Repárese: …”. 
+(ii) “Además, con el propósito específico de propiciar el resarcimiento de los derechos de las víctimas y el aprestigiamiento de la administración de justicia, la alta Corporación en cita ha diferenciado los alcances de los preacuerdos con base fáctica y aquellos que carecen de ese soporte. Obsérvese: …”. 
+(iii) “Como quedó visto, por tanto, cuando el acuerdo consiste en aplicar una norma jurídica más benigna con miras a obtener un beneficio punitivo, no hay lugar a aludir a la rebaja esperada para el allanamiento unilateral en determinada etapa procesal. Sin embargo, en esos casos se hace necesario considerar la proporcionalidad de la rebaja, valoración para la cual habrá de tenerse en cuenta, entre otros aspectos, la pena que corresponde al tipo penal, el momento en el cual se produjo la aceptación de cargos y, por supuesto, la conducta del procesado.”.
+
+---
+
+# PROVIDENCIA DDP 8418
+
+**Número de Providencia (DDP 8418):** No especificado
+**Radicación (DDP 8418):** CUI 66001-60-00-035-2018-03906-01 (
+**Decisión (DDP 8418):** AC-010-26).
+
+**Lista de Temas (DDP 8418):**
+(i) “Sobre la extinción de la sanción penal”. 
+(ii) “Entonces, es inaceptable, en atención con los principios rectores del Estado Social y Democrático de Derecho, prolongar la ejecución de la pena de un individuo de manera ilegal, como cuando el individuo permanece privado de su libertad, aun cuando ya cumplió la pena.”. 
+(iii) “En efecto, la concesión de la libertad condicional suspendió por un periodo específico la ejecución de la condena, pero, si se presenta algún incumplimiento, como ocurrió en este caso, deberá ejecutar lo que restaba de la condena para el momento de su concesión.”. 
+(iv) “Por tanto, el procesado cometió otro delito antes de que culminara el periodo de prueba otorgado, lo que quiere decir que debía ejecutar la pena que, previamente, fue objeto de suspensión, 10 meses y 8 días.”.
+
+---
+
+# PROVIDENCIA DDP 8419
+
+**Número de Providencia (DDP 8419):** No especificado
+**Radicación (DDP 8419):** CUI 19573-60-00-631-2009-00149-01 (
+**Decisión (DDP 8419):** AC-699-25). SMS DEL 10.2.2026
+
+**Lista de Temas (DDP 8419):**
+(i) “Una breve mención del panorama general sobre el principio de favorabilidad y el conteo de redención introducido con la ley objeto de estudio.”. 
+(ii) El principio de favorabilidad. 
+(iii) “… la Sala observa la necesidad de realizar el estudio desde otra perspectiva, ya no dirigida a identificar la posibilidad de aplicar la ley en situaciones jurídicas consolidadas en el pasado, sino, más bien, si es discriminatorio aplicar el descuento de que trata la Ley 2466 de 2025 solo al trabajo penitenciario y no a otras actividades. Por esa razón, se realizará un juicio integrado de igualdad, en el que se establecerá si, en este caso, el descuento por trabajo es extensible a al estudio y la enseñanza.”. 
+(iv) “Sobre el juicio integrado de igualdad.”. 
+(v) “Sin embargo ¿Acaso laborar por más tiempo significa que el proceso de resocialización es mayor a quien instruye por la mitad de la jornada? La respuesta, como será abordado más adelante, es negativa.”. 
+(vi) “Adicionalmente, se insiste, no se trata de aplicar, únicamente por favorabilidad, una ley (no es un conflicto de reglas en el tiempo), sino de examinar, también desde la perspectiva del principio constitucional de igualdad, si podría existir un trato discriminatorio no justificado. No interesa, para esos efectos, si la ley objeto de examen reguló o no la redención del estudio y la enseñanza, o si en el trabajo se recibe una contraprestación monetaria. Es decir, es un asunto teleológico y no material. En otras palabras, se demostró que la reducción de la reincidencia (el objetivo de la medida) era más relevante que las características ónticas de las actividades objeto de examen.”. 
+(vii) “Por tanto, se aplicará el artículo 19 de la Ley 2466 de 2025 a toda las actividades penitenciarias, lo que ameritará realizar la contabilización de dos días de redención por cada tres de ocupación, sin importar de cual se trate.”.
+
+---
+
+# PROVIDENCIA DDP 8420
+
+**Número de Providencia (DDP 8420):** AP466-2026
+**Radicación (DDP 8420):** 71479
+
+**Lista de Temas (DDP 8420):**
+(i) “Las medidas de aseguramiento son de naturaleza cautelar y de carácter real o personal. Buscan hacer efectiva una posible sentencia evitando que la misma resulte inane una vez ejecutoriada. Su imposición debe cumplir con los criterios de proporcionalidad, razonabilidad y necesidad.”. 
+(ii) “La detención preventiva es una medida de aseguramiento de carácter personal, y como de su propia definición se extrae, es excepcional y tiene una naturaleza preventiva y provisional. Preventiva por cuanto busca que los efectos del fallo no sean nulos. Y provisional por cuanto no puede extenderse en el tiempo indefinidamente.”. 
+(iii) “De manera categórica puede sostenerse que la provisionalidad de la detención preventiva implica que ésta no debe ser indefinida en el tiempo. De tal manera se garantiza a la persona que ha sido privada de la libertad de manera efectiva y material, en virtud de una medida de aseguramiento, su derecho a recobrarla. Esto se da si desaparecieron los fines por los que fue impuesta la detención preventiva, o porque se vencieron los términos con los que el Estado contaba para mantener privada de la libertad al procesado (entiéndase indagado o acusado).”. 
+(iv) La revocatoria de la medida de aseguramiento. 
+(v) “En conclusión, la jurisprudencia de esta Sala de Casación Penal y de la Corte Constitucional ha sido uniforme en considerar que la revocatoria de la medida de aseguramiento procede en cualquier etapa del proceso. Se da cuando exista prueba que desvirtúe los requisitos legales para su imposición y cese la necesidad de mantener la medida, en atención a sus objetivos constituciones y a los fines rectores que condujeron a imponerla.”. 
+(vi) “Como viene de verse, la gravedad, modalidad y naturaleza de la conducta punible, al igual que el número de delitos por los que se procede y las penas a imponer, son referentes objetivos que deben ser valorados por el funcionario judicial al momento de restringir temporalmente el derecho a la libertad. Pero estos por sí solos son insuficientes para soportar y mantener vigente una medida de aseguramiento, que debe ir atada de manera inexorable a la protección de un fin constitucional válido. Si este desvanece porque desapareció el peligro a la víctima, a la comunidad, a la práctica probatoria o la no comparecencia al proceso, no subsiste la justificación fundamental y, en consecuencia, la medida debe revocarse.”. 
+(vii) “Sin embargo, recordemos que lo que pretendió conjurar la Sala de Instrucción con la detención preventiva de CALLE AGUAS fue el peligro para la comunidad mediante el riesgo futuro de reiteración de la mercantilización de la función pública.”. 
+(viii) “Así, para la Sala la medida se debe mantener para evitar la afectación de los intereses del pueblo mediante la reincidencia en la vulneración de la función pública. Desde luego, no porque sea miembro de una corporación de elección popular o miembro de una colectividad política. Es por el riesgo del uso ilegal de esa ascendencia política, sobre todo cuando el caso sigue respecto de otras variantes de investigación en relación con otros congresistas. Además, porque se daría en plena época electoral.”.
+
+---
+
+# PROVIDENCIA DDP 8421
+
+**Número de Providencia (DDP 8421):** No especificado
+**Radicación (DDP 8421):** 71479
+**Decisión (DDP 8421):** SALVAMENTO DE VOTO DEL MAGISTRADO URBANO MARTÍNEZ.
+
+**Lista de Temas (DDP 8421):**
+“Por todo esto, como lo dije al comienzo y lo reitero ahora, considero que en el sistema penal colombiano el régimen de la medida de aseguramiento de detención preventiva está urgido de una revisión muy profunda. Al fin de cuentas, imposible es solo una palabra.”.
+
+---
+
+# PROVIDENCIA DDP 8422
+
+**Número de Providencia (DDP 8422):** AEP007-2026
+**Radicación (DDP 8422):** 01443
+
+**Lista de Temas (DDP 8422):**
+(i) “La acumulación jurídica de penas procede: i) siempre y en todo momento cuando se trata de conductas que, siendo conexas, se hubieren fallado independientemente; y ii) si se emiten varias sentencias en diferentes procesos.” 
+(ii) “Por el contrario, no son acumulables: a) las sentencias por hechos cometidos con posterioridad al proferimiento de la sentencia de primera o única instancia, b) las sentencias ya ejecutadas3. y, c) los fallos emitidos por conductas cometidas durante el tiempo que la persona estuviere privada de la libertad.”. 
+(iii) “De acuerdo con esta norma, la acumulación jurídica de penas exige aplicar los criterios previstos para la dosificación punitiva en los eventos de concurso de conductas punibles a que se refiere el artículo 31 del Código Penal, el cual dispone que cuando una persona vulnera varias disposiciones penales, o incurre repetidamente en la misma, deberá someterse a la sanción prevista para el delito de mayor gravedad, incrementada hasta en otro tanto, siempre que dicho aumento no exceda la suma aritmética de las penas que correspondan a cada conducta punible, previamente individualizadas. Además, se establece que, en ningún caso, la pena resultante podrá superar el límite máximo de sesenta (60) años.”. 
+(iv) “La expresión “hasta en otro tanto” ha sido explicada de manera reiterada por la jurisprudencia en materia de concurso de delitos como en las sentencias SP del 25 de agosto de 2010, rad. 33458; del 12 de marzo de 2014, rad. 42623; y del 28 de octubre de 2015, rad. 43868, en las que enseña que tal expresión alude al doble de la pena más alta.”. 
+(v) “En ese orden, es claro que el juez de ejecución de penas y medidas de seguridad, al resolver solicitudes de acumulación jurídica de penas, está compelido a analizar, no solo los requisitos que de manera objetiva dispone el artículo 460 de la Ley 906 de 2004, sino que para aumentar la pena acumulable debe ceñirse tanto a los criterios diseñados en el artículo 31 del Código Penal, como a los fundamentos jurídicos y factuales de la sentencia objeto de acumulación.”. 
+(vi) “Sub reglas para acumulación jurídica de penas”.
+
+---
+
+# PROVIDENCIA DDP 8423
+
+**Número de Providencia (DDP 8423):** SP012-2026
+**Radicación (DDP 8423):** 70525
+**Decisión (DDP 8423):** SMS DEL 11.2.2026
+
+**Lista de Temas (DDP 8423):**
+(i) Eventual  “Nulidad ante la indeterminación de los hechos jurídicamente relevantes de la acusación y por vulneración del principio de imparcialidad”. 
+(ii) “De otro lado, la defensa técnica sugiere que la legalidad de la actuación está viciada al llevar a cabo el Tribunal de Quibdó la fase del juicio pese a haber fungido dentro de la misma actuación como juez de control de garantías, en sede de segunda instancia. No obstante, el cuestionamiento se ofrece anodino, de cara a la metodología argumentativa que debe revestir una solicitud de invalidación del proceso.”. 
+(iii) “Adicionalmente, más allá de esta estructura normativa y jurídica que es pretermitida por el defensor, tratándose de la causal prevista en el artículo 56 del C.P.P., no basta con que concurra el supuesto de hecho previsto en el numeral 13 de ese precepto para asumir su efectiva configuración, puesto que la intervención del juez en sede de control de garantías ha de ser relevante. Es decir, tiene que ser una participación de fondo, que recaiga en asuntos esenciales y que conduzcan a anticipar un criterio definido de valoración.”. 
+(iv) “Debe recordarse que lo que se pretende con las causales de impedimento y recusación, en general, es que «las personas que acudan a la administración de justicia obtengan respuesta por parte de un funcionario imparcial, libre de cualquier preconcepto o de actuación que condicione su ánimo de decidir en algún sentido» (CSJ AP 2441-2020, Rad. 57967). Y esto se garantiza si el juez no ha tenido acceso previo a la evidencia física, elementos materiales de prueba o información legalmente obtenida que pudiese imprimirle una concepción anticipada del asunto objeto de decisión.”. 
+(v) “Incertidumbre frente a la responsabilidad del procesado. Ausencia de dolo. Tergiversación, exclusión y cercenamiento de los medios de convicción. Exclusión probatoria”. 
+(vi) “Redosificación punitiva. Circunstancia de agravación del artículo 58, numeral 1° del Código Penal. Concurso homogéneo de ilicitudes y aplicación de jurisprudencia favorable”.
+
+---
+
+# PROVIDENCIA DDP 8424
+
+**Número de Providencia (DDP 8424):** SP030-2026
+**Radicación (DDP 8424):** 60485
+
+**Lista de Temas (DDP 8424):**
+(i) El prevaricato por omisión. 
+(ii) “En el prevaricato por omisión, la conducta solo puede ser atribuida a quien tenga la calidad de servidor público. Para efectos penales, esta comprende a …”. 
+(iii) “El tipo se realiza mediante cualquiera de los verbos rectores previstos por el legislador (omitir, retardar, rehusar o denegar). La acción que lo configura se entiende, respectivamente, como abstenerse de hacer algo, diferirlo o dilatarlo injustificadamente, negarse a ejecutarlo o no concederlo cuando se ha solicitado conforme a la ley. Tales comportamientos deben recaer necesariamente sobre un acto propio de las funciones asignadas al cargo, derivado de un mandato jurídico concreto y exigible. Es así, pues la omisión no existe por sí misma, sino únicamente en la medida en que preexista un deber de actuar claramente definido …”. 
+(iv) “La Sala ha hecho énfasis en que la verificación del delito de prevaricato por omisión exige un juicio estricto de legalidad y no de simple desacierto o conveniencia funcional. La ausencia de cualquiera de sus elementos estructurales previamente referidos conduce a la atipicidad de la conducta, incluso en escenarios en los que se evidencian demoras, irregularidades o decisiones controvertibles desde la óptica administrativa o disciplinaria, pero no penal …”.
+
+---
+
+# PROVIDENCIA DDP 8425
+
+**Número de Providencia (DDP 8425):** SP007-2026
+**Radicación (DDP 8425):** 61198
+
+**Lista de Temas (DDP 8425):**
+(i) “La falta de competencia territorial no es un motivo invalidante.”. 
+(ii) “Sobre la taxatividad, el artículo 456 del CPP establece que la nulidad por falta de competencia se reduce a dos escenarios: 
+(i) porque la actuación se hubiera desarrollado por un funcionario judicial incompetente en razón a la existencia de un fuero y 
+(ii) porque el asunto esté asignado a los jueces penales del circuito especializado. Por otros factores asociados con la competencia, no procede la invalidación de la actuación …”. 
+(iii) “Los reconocimientos fotográficos y en fila de personas”. 
+(iv) “… de admitirse, en aras del debate, que el álbum fotográfico fue inadecuadamente construido, ninguna trascendencia probatoria puede asignarse a ello por la sencilla razón de que, aunque el reconocimiento se incorporó a la declaración rendida por RKS en juicio, esta identificó en la sala de audiencias a… como la persona contra la cual hizo las sindicaciones referenciadas. En esas condiciones, la hipotética supresión del reconocimiento previo no tendría ninguna incidencia en el alcance y sentido de su testimonio.”. 
+(v) “De otro lado, no todos los actos de indagación tienen vocación probatoria, entre otras razones, porque pueden servir solo de insumo para la conducción de la investigación.”. 
+(vi) “… unas son las diligencias de reconocimiento en fila de personas o mediante fotografías, como actos probatorios a través de los cuales se pretende determinar si el testigo puede identificar al imputado como aquella persona a la que se ha referido previamente y deben por tanto practicarse en cumplimiento de aquellos presupuestos señalados en la ley (particularmente en lo relacionado con el número mínimo de personas o fotografías que deben ser exhibidas al testigo) y otros los reconocimientos impropios o informales que se producen integrados a las declaraciones testimoniales, los cuales no revisten tales solemnidades.”. 
+(vii) “En síntesis, 
+(i) pueden existir actos en los que se exhiban fotografías a posibles testigos, pero que no tengan el objetivo de demostrar la identidad de los presuntos autores, sino que sirvan solo para conducir la investigación, 
+(ii) cuando se hace un reconocimiento fotográfico propiamente dicho bajo la ritualidad contenida en el art. 252 CPP, el mismo se integra al testimonio rendido en juicio, al no ser un medio de prueba autónomo, sin perjuicio de la posibilidad de introducirlo como prueba de referencia admisible, y 
+(iii) no basta con aducir una irregularidad en el desarrollo de cualquiera de estas actividades, sino que debe demostrarse su trascendencia respecto de la validez o fiabilidad de la identificación realizada.”.
+
+---
+
+# PROVIDENCIA DDP 8426
+
+**Número de Providencia (DDP 8426):** SP024-2026
+**Radicación (DDP 8426):** 60141
+**Decisión (DDP 8426):** SMS DEL 12.2.2026
+
+**Lista de Temas (DDP 8426):**
+(i) “El inciso 3° del artículo 184 de la Ley 906 de 2004, faculta a la Corte para actuar de oficio cuando, a pesar de inadmitir la demanda de casación, sea necesario hacer efectiva alguna de las finalidades del recurso extraordinario previstas en el artículo 180 ejusdem, por razones distintas a las planteadas en el libelo.”. 
+(ii) “Según se explicó en el auto de inadmisión AP5427-2025, la Sala de Amnistía o Indulto de la Jurisdicción Especial para la Paz – JEP, mediante resolución SAI-AOI-DAI-PMA-304 de abril 16 de 2024, concedió a WILFRIDO VALLEJO MINDIOLA la amnistía de iure por el delito de rebelión que lo condenó el Juzgado Primero Penal del Circuito de Riohacha en sentencia del 7 de diciembre de 2018, confirmada por la Sala Penal del Tribunal Superior de la misma ciudad el 23 de junio de 2021.”. 
+(iii) “De conformidad con los artículos 77 y 332 numeral 1º de la Ley 906 de 2004, la amnistía es causal objetiva de extinción de la acción penal que, para el caso, imposibilita continuar el ejercicio de la misma en contra de WILFRIDO VALLEJO MINDIOLA por la conducta punible de rebelión, únicamente, cabe precisar.”. 
+(iv) “La situación sobreviniente a la emisión de los fallos de instancia impone a la Corte proveer de oficio con el propósito de restablecer las garantías fundamentales del procesado.”. 
+(v) Dosificación punitiva. 
+(vi) Una petición de nulidad infundada.
+
+---
+
+# PROVIDENCIA DDP 8427
+
+**Número de Providencia (DDP 8427):** SP028-2026
+**Radicación (DDP 8427):** 61951
+
+**Lista de Temas (DDP 8427):**
+(i) “La jurisprudencia de esta Sala ha sostenido que un testimonio único puede ser suficiente para llegar al convencimiento, más allá de toda duda razonable, para condenar, siempre que a partir de su valoración, siguiendo los criterios cualitativos legislativamente dispuestos -art. 404 C.P.P.- se concluya que es creíble en atención a su coherencia, adecuada percepción e imparcialidad …”. 
+(ii) “Con todo, omite el recurrente tener en cuenta que al juez le corresponde valorar la prueba pericial practicada en juicio. El relato realizado por la víctima en la valoración -anamnesis- no es parte de la prueba pericial, sino que es una declaración anterior que puede constituir prueba de referencia excepcionalmente admisible, o utilizarse para impugnar credibilidad, siempre que se cumpla con los presupuestos legales y el debido proceso probatorio para ello.”. 
+(iii) “Ahora bien, si en gracia de discusión se admitiera la tesis defensiva, esto es, que la pareja había dejado de convivir, esa situación tampoco impediría la configuración del delito de violencia intrafamiliar, en especial en el presente caso donde se encuentra acreditado la sistematicidad de la violencia en contra de la víctima.”. 
+(iv) “La jurisprudencia de esta Sala ha definido que, aun antes de la entrada en vigencia de la Ley 1959 de 2019, la ausencia de convivencia no excluye de manera categórica la tipificación del delito de violencia intrafamiliar, pues se hace necesario examinar el contexto específico de cada familia, toda vez que “en los casos donde predominan patrones de violencia sistemática contra la mujer, la protección del núcleo familiar debe extenderse más allá de la convivencia física, ya que la unidad familiar sigue afectándose aun cuando el agresor ha sido apartado del hogar.””. 
+(v) “De acuerdo con dichos lineamientos jurisprudenciales, en la valoración de los casos de violencia intrafamiliar en contra las mujeres se debe establecer si los actos de violencia trascienden la convivencia física y afectan el bien jurídico de la unidad familiar, pues “lo relevante es el contexto de sometimiento y agresión que se desarrolla en el seno de la relación familiar o de pareja, independientemente de que al momento de los hechos los sujetos no compartieran un mismo techo”, criterio necesario para el análisis del delito a fin de establecer si la protección del núcleo familiar debe extenderse más allá de la convivencia física.”.
+
+---
+
+# PROVIDENCIA DDP 8428
+
+**Número de Providencia (DDP 8428):** SP027-2026
+**Radicación (DDP 8428):** 60950
+
+**Lista de Temas (DDP 8428):**
+(i) “El asunto bajo examen, en efecto, se inscribe en un conflicto civil preexistente entre las partes, cuya secuencia temporal, reconstruida a partir de las versiones rendidas en juicio, permite identificar con claridad la coexistencia de pretensiones incompatibles sobre el mismo predio. Según lo narrado, Carlos Saúl Serrano Echeverri, tío de la víctima, habría adquirido el lote hacia el año 1982, mientras que LUIS ALBERTO HERNÁNDEZ MENDOZA y SOCORRO FLÓREZ RUIZ afirman haber ejercido actos posesorios desde los años 1993–1994, al punto de promover una demanda de pertenencia en 2003 y, posteriormente, otra ante el Juzgado Segundo Promiscuo Municipal de Girón.”. 
+(ii) “El delito de perturbación de la posesión sobre inmueble, consagrado en el artículo 264 del Código Penal, se estructura a partir de la protección de la tenencia o posesión pacífica que una persona ejerce sobre un bien inmueble, con independencia del derecho de dominio. En efecto, la Sala ha precisado que el comportamiento típico “apunta a la protección no del titular del derecho de dominio (…) sino de quien ostenta su posesión” , entendida esta como una relación fáctica de custodia material sobre el bien, susceptible de tutela penal en tanto subsista como situación de hecho. La norma dispone, en consecuencia, que incurre en esta conducta quien, por medio de violencia sobre las personas o sobre las cosas, altere o perturbe dicha situación posesoria.”. 
+(iii) “Para su configuración se requiere, en primer lugar, la existencia de una posesión o tenencia material, pacífica y actual del inmueble por parte de la víctima; en segundo término, la realización de actos de violencia, entendidos no solo como agresiones físicas, sino también como comportamientos materiales que alteren, estorben, limiten o hagan más gravoso el ejercicio normal de esa posesión; y, finalmente, un nexo causal entre tales actos y la efectiva perturbación de la situación posesoria. Sobre este aspecto, esta Corporación ha señalado que la perturbación puede configurarse sin necesidad de despojo, pues “basta con poner trabas, crear dificultades, limitar o hacer molesto el ejercicio de la tenencia, alterando la quietud o el sosiego del bien”.”. 
+(iv) “Así las cosas, el delito de perturbación no protege la titularidad jurídica del bien ni dirime controversias sobre el dominio, sino que ampara la tenencia o posesión material y pacífica como situación fáctica merecedora de reproche penal. El eje de protección no radica en quién, en abstracto, ostenta el derecho de propiedad, sino en impedir que los conflictos sobre los bienes se resuelvan por vías de hecho, al margen de los cauces institucionales previstos por el ordenamiento jurídico.”. 
+(v) “Justo por ello, la conducta típica sanciona toda injerencia arbitraria que altere el ejercicio tranquilo de la tenencia, aun cuando quien perturba se considere asistido de un derecho. El reproche penal se activa, no para reconocer ni negar titularidades, sino para cerrar el paso a la autotutela, preservando la convivencia pacífica y reafirmando que las controversias patrimoniales deben ventilarse ante las autoridades competentes y no imponerse mediante la fuerza, la intimidación o acciones de hecho.”. 
+(vi) “Ahora bien, aunque la oportunidad de la querella no fue objeto de reproche específico en la impugnación especial, la Sala debe precisar que la perturbación a la posesión sobre bien inmueble es un delito de ejecución permanente, pues la afectación típica se prolonga mientras subsista la situación antijurídica derivada de la irrupción y exclusión del poseedor. En tal contexto, el término de caducidad de la querella no se contabiliza de forma estricta desde el instante inicial del hecho, sino en consideración a la permanencia de la perturbación y a la consolidación cierta de su ocurrencia y autoría.”. 
+(vii) “Ahora bien, conforme a lo dispuesto en el artículo 22 de la Ley 906 de 2004 y a la jurisprudencia  reiterada de esta Sala, el restablecimiento del derecho constituye una potestad autónoma del juez penal, orientada a hacer cesar los efectos producidos por el delito y a restituir la situación fáctica alterada, con independencia de la declaratoria de responsabilidad penal y sin que se encuentre sujeta a limitaciones temporales o procesales. Así lo ha precisado esta Corporación al señalar que tales medidas pueden adoptarse en cualquier estado del proceso, incluso cuando subsisten controversias de naturaleza civil, siempre que no comporten un pronunciamiento sobre el derecho de dominio.”.
+
+---
+
+# PROVIDENCIA DDP 8429
+
+**Número de Providencia (DDP 8429):** SP025-2026
+**Radicación (DDP 8429):** 64898
+**Decisión (DDP 8429):** SMS DEL 13.2.2026
+
+**Lista de Temas (DDP 8429):**
+(i) “Lo anterior, se menciona para destacar cómo la carga probatoria exigida al procesado para validar su versión no fue una simple quimera, según se percibió en el fallo de condena, sino que, por circunstancias que no le eran del todo atribuibles, no pudo lograrse su consecución. Esto implica que la inferencia obtenida a partir de una aparente omisión, no tendría el efecto persuasivo pleno que le fue atribuido en la sentencia recurrida.”. 
+(ii) “Y es que en este aspecto, la Sala estima que se hizo una alusión errada al evocarse el concepto de carga dinámica de la prueba. Si bien la Fiscalía acreditó, acorde con su teoría del caso, que los policías afirmaron que RAMÍREZ GONZÁLEZ no llevaba más pasajeros, lo cual se contraponía a su versión, los juzgadores exigieron para respaldar la narrativa ofrecida por el acusado la lista y nombre de aquellos. El incumplimiento de este aspecto, pese a lo incierto de obtener en la práctica tales datos, se interpretó como un factor que anulaba la credibilidad de la tesis de descargo.”. 
+(iii) “De otro lado, la sentencia recurrida se soporta en esencia en que el procesado debía conocer y percibir el olor de la marihuana, aun cuando éste dijo que durante el devenir de los acontecimientos tenía puesto un tapabocas con alcohol, lo cual resulta ser un aserto compatible con la coyuntura que rodeaba la cotidianeidad para esa época.”. 
+(iv) “Es decir, no obstante lo intuitivos y potencialmente acertados que puedan resultar en el sub examine las reflexiones de los juzgadores, un razonamiento de esa naturaleza no es admisible en orden a acreditar sin lugar a equívocos la configuración del delito. Ello de cara a vacíos probatorios significativos, como los que se avizoran en este asunto.”. 
+(v) “A esto se suma que la regla de la experiencia en cuestión, referente a que «todas las personas conocen el olor de la marihuana» a lo sumo podría cobijar una alta posibilidad o probabilidad, que no es absoluta. Por el contrario, la máxima de la experiencia correcta a emplear consistiría en que «la mayoría o casi todas las personas conocen el olor del cannabis», lo cual no abarca indefectiblemente a todos y cada uno de los miembros del conglomerado, independientemente de su extracción social. En ese sentido, por demás, el ad quem no expone parámetros susceptibles de constatación que permitan respaldar su percepción.”. 
+(vi) “Así, la regla de experiencia sobre el olor de la sustancia vegetal en cuestión no es generalizable en cualquier situación, ni a todas las personas.”. 
+(vii) “Como lo ha señalado la jurisprudencia, es imperativo «prevenir el inaceptable riesgo de condenar a un inocente, extremo de la disyuntiva falladora más grave que el de absolver a un eventual responsable, pues, la justicia es humana y, por lo mismo, falible, de ahí que el acto soberano y trascendente de emitir sentencia de condena tiene que estar anclado firmemente en prueba de irrefutable solidez; cuando ello no ocurre, se impone en nombre de esa misma justicia, decisión absolutoria»”.
+
+---
+
+# PROVIDENCIA DDP 8430
+
+**Número de Providencia (DDP 8430):** AP142-2026
+**Radicación (DDP 8430):** 70063
+
+**Lista de Temas (DDP 8430):**
+(i) “Reglas esenciales del recurso extraordinario de casación”. 
+(ii) “La violación directa de la ley sustancial puede ocurrir por 
+(i) falta de aplicación, 
+(ii) aplicación indebida o 
+(iii) interpretación errónea de la norma llamada a regular el caso (CSJ AP3457-2022, AP592-2023 y AP948-2024). Sin embargo, en cualquiera de las tres variables, se trata de una vía de ataque destinada a mostrar errores exclusivamente en la interpretación o aplicación de las normas jurídicas.  Por lo tanto, debe partirse por aceptar las conclusiones probatorias de la decisión. Cuando el demandante acude a esta modalidad de error está técnicamente impedido para discutir la valoración o apreciación de las evidencias.”. 
+(iii) “Como resulta evidente, el recurrente propone el cargo por la vía directa, pero el desarrollo de la sustentación está dirigida a la valoración de las pruebas. De este modo, en lugar de aceptar las conclusiones probatorias de la sentencia, en la cuales se desestimó la tesis de que el procesado actuó bajo estado de ira, se aparta de ellas. Propone una versión alternativa sobre lo que los medios de conocimiento indican. Así, la defensa desconoce el principio de autonomía, pues la fundamentación del cargo expresa una mezcla sistemática de las vías directa e indirecta de ataque del fallo.”. 
+(iv) “La violación indirecta de la ley sustancial, por errores de hecho, pueden asumir la forma de falsos juicios de existencia o identidad, o de falsos raciocinios (CSJ AP3457-2022, AP1381-2023 y AP2259-2024). El falso juicio de identidad y el falso juicio de existencia son defectos objetivos, vinculados a la equivocada apreciación de las pruebas. El falso raciocinio es un error ligado a la errónea valoración de las mismas, derivado de la transgresión de las máximas de la experiencia, las leyes de la ciencia o las reglas de la lógica.”. 
+(v) “Para acreditar cada uno de los anteriores errores, se precisa de específicas cargas argumentativas, destinadas a acreditarlos. Así, el falso juicio de identidad puede producirse porque se omiten, se agregan o se distorsionan contenidos objetivos de las evidencias. Por lo tanto, el recurrente debe precisar la modalidad de defecto que invoca y la evidencia o evidencias sobre las cuales recae. Así mismo, debe demostrar de qué manera se concretó tal equivocación en la argumentación del fallo y cómo, de no haberse incurrido en ella, el sentido de la decisión sería diferente.”. 
+(vi) “A su vez, el falso juicio de identidad puede ocurrir porque el juzgador emplea en sus razonamientos una prueba que no fue practicada u omite una evidencia relevante que se incorporó en debida forma a la actuación. En consecuencia, el recurrente tiene la carga de indicar la especie de error que predica y el medio de prueba erróneamente apreciado u omitido. En el mismo sentido, debe mostrar la forma en que se produjo la equivocación en los fundamentos del fallo. Además, ha de acreditar cómo el error impactó el sentido del fallo.”. 
+(vii) “Por último, en el falso raciocinio, el demandante debe identificar el contenido objetivo del medio de convicción en el que se refleja el desacierto. A continuación, ha de reconstruir lo inferido por el fallador y puntualizar si se plantea la infracción a un principio lógico, regla de la ciencia o máxima de la experiencia, además de indicar de cuál se trata. En adición, debe precisar de qué manera el falso raciocinio en que habría incurrido el fallo incidió en la resolución de fondo adoptada por las instancias.”.
+
+---
+
+# PROVIDENCIA DDP 8431
+
+**Número de Providencia (DDP 8431):** AP161-2026
+**Radicación (DDP 8431):** 65779
+
+**Lista de Temas (DDP 8431):**
+(i) “Bajo la causal segunda de casación, por «desconocimiento del debido proceso por afectación sustancial de su estructura o de la garantía debida a cualquiera de las partes», es posible que se demuestren irregularidades que signifiquen la nulidad total o parcial del proceso. Sobre su sentido y alcance la Sala  ha precisado que los motivos de invalidez de los actos procesales —señalados en los artículos 455 y siguientes de la Ley 906 de 2004— no son de postulación libre. Su postulación está sometida al cumplimiento de precisos principios, sin los cuales no pueden operar.”. 
+(ii) “La jurisprudencia ha establecido límites claros para alegar nulidades en el proceso penal. Solo pueden invocarse las previstas expresamente en la ley (taxatividad) y no puede alegarlas cuando fue el propio sujeto procesal quien con su conducta dio lugar al vicio (convalidación). Quien la promueve debe demostrar que la irregularidad afecta de manera sustancial los derechos constitucionales o las bases del proceso (trascendencia). Tampoco se anulará un acto que cumpla la finalidad para la que estaba destinado, porque las formas no son un fin en sí mismas (instrumentalidad). Finalmente, la anulación solo procede cuando no existe otra manera de subsanar el yerro procesal (residualidad).”. 
+(iii) “De modo que en sede de casación, no basta con invocar la existencia de un motivo de invalidación de lo actuado. Es carga del demandante precisar el tipo de irregularidad que alega, demostrar su existencia, acreditar cómo su configuración comporta un vicio de garantía o de estructura , y la trascendencia del error para afectar la validez del fallo cuestionado …”. 
+(iv) “Asimismo, cabe advertir que en casación no es viable el trámite de cualquier escrito que invoque un motivo de ineficacia de lo actuado. No se trata de proponer por proponer, ni de alegar como causal de nulidad lo que no se hizo o no se obtuvo en las instancias, o que, ya resuelto por la autoridad judicial, resultó adverso a los intereses del recurrente. Lo que suscita el análisis casacional por la senda de la causal 2ª es el planteamiento de motivos reales de grave afectación a la estructura del proceso o a las garantías de los intervinientes, cuya corrección no sea posible por otra vía.”. 
+(v) “Por ello, la simple enunciación de supuestos errores de procedimiento o de garantía tampoco es suficiente para quebrar la presunción de acierto y legalidad que ampara la sentencia. Es menester indicar en qué consistió la irregularidad y demostrar que, frente a los principios ya indicados y las particularidades del caso, no existe alternativa distinta de solución que la invalidación del trámite.”. 
+(vi) La alegada prescripción en este caso.
+
+---
+
+# PROVIDENCIA DDP 8432
+
+**Número de Providencia (DDP 8432):** SP009-2026
+**Radicación (DDP 8432):** 56050
+**Decisión (DDP 8432):** SMS DEL 16.2.2026
+
+**Lista de Temas (DDP 8432):**
+(i) La acción de revisión. 
+(ii) El hecho nuevo. 
+(iii) La prueba nueva. 
+(iv) “En relación con los conceptos de prueba nueva y hecho nuevo en el marco de la Ley 906 de 2004, la Corte ha sostenido (ver, entre otras, CSJ AP, 15 oct. 2008, rad. 29626, reiterado en CSJ AP4090-2022, 2 sep. 2022, rad. 60560) que en atención a la facultad que tienen las partes que intervienen en el proceso, de descubrir selectivamente los medios probatorios que pretenden hacer valer en el juicio oral, surge un requerimiento adicional a la exigencia de que la prueba no haya sido debatida en el juicio: que el accionante no haya tenido conocimiento de su existencia, o que teniéndola, no haya estado en condiciones de aportarla.”. 
+(v) “De esa manera, si la parte ha conocido la prueba, pero por razones estratégicas o de cualquier otro tipo decide voluntariamente renunciar a su descubrimiento y debate en la audiencia del juicio oral, no tendrá la connotación de nueva, porque lo nuevo para la estructuración de la causal tercera de revisión será únicamente aquello de lo cual no se ha tenido conocimiento que existe, o que se sabe que existe pero que no fue posible aducir al proceso.”. 
+(vi) “Bajo tal entendido, para demostrar la procedencia de la causal, es necesario acreditar: i) una situación fáctica o probatoria nueva, no conocida en el curso del proceso; y ii) la novedad fáctica o probatoria con virtualidad e idoneidad suficientes para derruir el soporte de la sentencia cuestionada como injusta, que permita establecer la inocencia o la inimputabilidad del condenado, o cuando menos tornar discutible la verdad declarada en el fallo, por lo cual se requiere, adicional e imperativamente, explicar la aptitud del elemento probatorio para derribar los fundamentos de tal proveído.”. 
+(vii) “Sobre este aspecto, teniendo en cuenta que la prueba practicada es de carácter pericial, debe recordarse que un perito es el experto convocado, no por su conocimiento personal de los hechos, sino por su conocimiento especializado y autorizado, que le permite presentar su opinión a través de un dictamen que presenta al funcionario judicial . Por tanto, el testimonio del perito debe estar antecedido por un informe que incluya la base de la opinión pedida por la parte que propuso la práctica de la prueba, y puede ser interrogado sobre aspectos de la ciencia, técnica o arte en la que es experto, aun cuando no recaigan directamente en el objeto del peritaje.”.  
+(viii) “Como lo ha señalado previamente esta Corporación (CSJ SP 23 mar. 2011, rad. 34412) la imputabilidad o inimputabilidad, por trastorno mental permanente o transitorio, son conceptos jurídicos, «cuya declaración compete realizarla al juez, no al médico, atendiendo la idoneidad y mérito del conjunto de la prueba recaudada». Por lo tanto, si bien los trastornos mentales pueden ser causados por factores traumáticos, psicológicos, hereditarios, orgánicos, etc., y eventualmente son fuente de la inimputabilidad, …”.
+
+---
+
+# PROVIDENCIA DDP 8433
+
+**Número de Providencia (DDP 8433):** STP21832-2025
+**Radicación (DDP 8433):** 150958
+
+**Lista de Temas (DDP 8433):**
+(i) “De la acción de tutela contra decisiones judiciales.”. 
+(ii) “El principio de favorabilidad en materia penal.”. 
+(iii) “Del reconocimiento de la enseñanza como una actividad laboral.”. 
+(iv) “De la favorabilidad del artículo 19 de la Ley 2466 de 2025 respecto del artículo 98 de la Ley 65 de 1993.”. 
+(v) “Adicionalmente, se tiene que, en gracia a discusión, de aplicarse el artículo 19 de la Ley 2466 de 2025, entendiendo a la enseñanza como una modalidad de trabajo en áreas ocupacionales y productivas y, con ello, el régimen propio de la redención de pena por trabajo, no resulta más favorable el tiempo que le ha sido redimido con fundamento en la Ley 65 de 1993.”. 
+(vi) “La anterior comparación aritmética pone de presente que, en tratándose de redención de pena por enseñanza bajo la tipología de trabajo, no es más favorable la reforma de la Ley 2466 de 2025. Pues, aun cuando sustituye la relación de un 1 día redimido por cada 2 días de enseñanza, por una proporción de 2 días redimidos por cada 3 días de esta labor, ello, como se explicó anteriormente, no puede desligarse de las horas permitidas para cada modalidad de redención de pena.”.
+
+---
+
+# PROVIDENCIA DDP 8434
+
+**Número de Providencia (DDP 8434):** STP1222-2026
+**Radicación (DDP 8434):** 151111
+
+**Lista de Temas (DDP 8434):**
+(i) “En el presente asunto, el problema jurídico a resolver se contrae a determinar si es procedente el amparo en contra de la Sala Especial de Primera Instancia de la Corte Suprema de Justicia, por la presunta vulneración de derechos fundamentales de Rodolfo Bautista Palomino López, en la sentencia condenatoria del 19 de noviembre de 2025, en la que se dispuso la captura inmediata en su contra, al interior del proceso que se le sigue por el delito de tráfico de influencias de servidor público.”. 
+(ii) “Procedencia excepcional de la tutela frente a decisiones judiciales.”. 
+(iii) “El estándar de motivación de la orden de captura derivada del artículo 450 de la Ley 906 de 2004.”. 
+(iv) “Por lo tanto, desde el 4 de diciembre de 2024 –fecha desde la cual se publicó la sentencia SU 220 de 2024, por la Corte Constitucional-, ya sea en el anuncio del sentido del fallo o en la sentencia de condena, cuando se considere necesario privar de la libertad a quien no viene detenido, habrá de cumplirse con el citado estándar de fundamentación de la captura.”. 
+(v) “En síntesis, las posiciones de la Corte Constitucional y de esta Sala resultan coincidentes en lo fundamental: tratándose de la captura derivada del artículo 450 de la Ley 906 de 2004, la intervención del juez de tutela se justifica, en aras de verificar si la restricción de la libertad de quien viene gozando de ella, ya sea en el anuncio del sentido del fallo o en este, se adecúa a un estándar de motivación constitucionalmente admisible.”. 
+(vi) “Sobre este punto, la intervención del juez constitucional es periférica y limitada, únicamente lo es con el objeto de verificar si la motivación se adecuó a un estándar constitucionalmente admisible, mas no para ejercer un control material de los fundamentos de lo decidido, en tanto ello corresponde al debate en sede ordinaria.”. 
+(vii) “Valga resaltar que la valoración y descripción de lo motivado hecha por esta Sala en sede constitucional no implica, desde ningún punto de vista, el respaldo de las razones esbozadas por la Sala Especial de Primera Instancia, mucho menos un control material sobre lo resuelto; sino la verificación de que, en efecto, la captura estuvo antecedida de un juicio real de ponderación que valoró aspectos positivos y negativos para privar de la libertad a quien venía gozando de ella.”.
+
+---
+
+# PROVIDENCIA DDP 8435
+
+**Número de Providencia (DDP 8435):** STP21973-2025
+**Radicación (DDP 8435):** 150278
+
+**Lista de Temas (DDP 8435):**
+(i) “El derecho fundamental a la presunción de inocencia.”. 
+(ii) “El derecho fundamental a la imparcialidad”. 
+(iii) “El uso de la inteligencia artificial en las actuaciones judiciales”. 
+(iv) “La Corte observa que, en el caso concreto, al momento en que la defensa revisó el expediente digital aún no se habían presentado los alegatos de conclusión ni anunciado el sentido del fallo; sin embargo, se encontró un archivo que contenía el borrador de la sentencia condenatoria contra OSBERT OROZCO PÉREZ.”. 
+(v) “No se trataba de un bosquejo genérico ni de un texto ajeno al proceso al que se le hubiera sustituido simplemente el nombre del acusado por el de otro. El archivo contenía la transliteración de las declaraciones de las pruebas de la Fiscalía -incluida la víctima, su hermana y los peritos del CTI y del INML-, así como la de la prueba de la defensa, junto con una valoración probatoria integral del caso concreto de OSBERT OROZCO PÉREZ, con conclusiones expresas sobre su responsabilidad penal.”. 
+(vi) “Mientras no se anuncie el sentido del fallo ni exista una sentencia condenatoria en firme, la presunción de inocencia exige que permanezcan abiertas, en condiciones de igualdad, las posibilidades de absolución o condena. Cuando esa incertidumbre desaparece y el resultado del juicio se muestra anticipadamente definido, la presunción de inocencia se vacía de contenido, pues el procesado deja de ser tratado como inocente y pasa a ser considerado, de hecho, como culpable.”. 
+(vii) “La elaboración y archivo de un borrador de sentencia condenatoria y su conocimiento por el acusado y la defensa, así sea accidental, antes de agotarse el debate final comporta un trato anticipado de culpabilidad, proscrito por la segunda dimensión de la presunción de inocencia, según las Grandes Declaraciones y Convenciones, relativa al comportamiento que las autoridades deben observar frente a quienes están sometidos al poder punitivo del Estado.”. 
+(viii)  “El hecho de que el documento no hubiera sido público o de que solo la defensa hubiera tenido acceso a él no elimina su potencial para afectar la confianza en la administración de justicia, pues la irregularidad se configuró desde el momento en que el despacho adoptó y accidentalmente difundió criterios anticipados sobre el fondo del asunto.”. 
+(ix) “En atención a lo expuesto, la Corte amparará los derechos fundamentales al debido proceso y a un juicio imparcial de OSBERT OROZCO PÉREZ. En consecuencia, dejará sin efectos los autos del 1º y 7 de octubre de 2025, por medio de los cuales los Juzgados 7º y 8º Penales del Circuito de Cali rechazaron la recusación promovida por la defensa. Así mismo, ordenará que el conocimiento del proceso 760016000193202208458 00, lo asuma el juzgado que sigue en turno.”. 
+(x) “De lo anterior se desprende con claridad que el fragmento citado no constituye una simple ayuda mecánica, ni una corrección de estilo, ni una síntesis neutra del material probatorio. Por el contrario, revela el uso de una herramienta de IA para realizar un “análisis probatorio y jurídico”, en el que se desarrollaron los siguientes aspectos: i) credibilidad del testimonio (coherencia interna, coherencia externa y motivación); ii) relevancia jurídica (tipo penal y elementos del tipo de penal); iii) corroboración y persistencia (persistencia del relato y corroboración indirecta); iv) intimidación y silencio inducido; v) estándar probatorio; vi) recomendaciones procesales.”. 
+(xi) “En este contexto, si bien el juez puede acudir a sistemas de IA cuando ello resulte necesario y pertinente, su utilización debe ser razonada y ponderada, orientada a la protección de los derechos fundamentales, y sujeta a buenas prácticas, criterios éticos y respeto por los mandatos superiores. El empleo indiscriminado o imprudente de estas tecnologías puede comprometer la responsabilidad del funcionario judicial, por lo que, como presupuesto mínimo, deben observarse el principio de no sustitución de la racionalidad humana y las cargas de transparencia, responsabilidad y privacidad.”.
+
+---
+
+# PROVIDENCIA DDP 8436
+
+**Número de Providencia (DDP 8436):** STP011-2026
+**Radicación (DDP 8436):** No especificado
+**Decisión (DDP 8436):** DDP 151436.
+
+**Lista de Temas (DDP 8436):**
+(i) “Requisitos de procedibilidad de la acción de tutela contra providencias judiciales.”. 
+(ii) Principio de subsidiariedad. 
+(iii) “En ese sentido, no es posible acudir a este medio excepcional para reemplazar los procedimientos ordinarios, pues la tutela se concibió para suplir la ausencia de estos y no para resquebrajar los ya existentes. En ese orden no puede estudiarse a fondo la demanda, ya que quien debe analizar los argumentos aquí propuestos por el actor es el juez de segunda instancia en el marco del procedimiento ordinario.”. 
+(iv) “En otras palabras, ante proceso en trámite, es decir, si la actuación del juez ordinario no ha culminado, el afectado podrá reclamar dentro de esta el respeto de las garantías constitucionales, sin que sea admisible acudir a la tutela.”. 
+(v)  “Bajo ese panorama, se resalta la postura pacífica y reiterada de esta Sala . Consiste en que, ante la existencia de un proceso en curso, no puede inmiscuirse el juez de tutela en tal disquisición. De hacerlo desbordaría su competencia e invadiría la del juez natural y por ende la órbita del debido proceso en el marco de la actuación ordinaria. Al respecto, la Corte Constitucional ha establecido: …”.
+
+---
+
+# PROVIDENCIA DDP 8437
+
+**Número de Providencia (DDP 8437):** STP694-2026
+**Radicación (DDP 8437):** 151785
+
+**Lista de Temas (DDP 8437):**
+(i) “MARIBETH BELEÑO MOLINA promovió acción de tutela contra la SALA DE CASACIÓN CIVIL, AGRARIA Y RURAL DE LA CORTE SUPREMA DE JUSTICIA, al considerar vulnerados sus derechos fundamentales al “Debido Proceso y al Acceso Efectivo a la Administración de Justicia”, con fundamento en la presunta mora judicial en la emisión del fallo de primera instancia dentro de una acción de tutela previamente instaurada.”. 
+(ii) “En efecto, del escrito de tutela se desprende que la pretensión concreta de la accionante se orientó a que el juez constitucional dispusiera el impulso inmediato del trámite, bajo el entendido de que el fallo de primera instancia no había sido proferido dentro del término previsto en el artículo 29 del Decreto 2591 de 1991, circunstancia que, a su juicio, prolongaba de manera indebida la definición de la controversia constitucional planteada.”. 
+(iii) “No obstante, se encuentra plenamente acreditado que, durante el trámite de la acción de tutela previamente promovida y cuya falta de decisión es objeto de reproche en el presente asunto, se adelantaron diversas actuaciones propias y necesarias del proceso constitucional, relacionadas con el trámite de impedimentos, la designación de conjueces y la corrección del reparto inicialmente efectuado, circunstancias que condujeron a que el conocimiento del expediente fuera asignado por la Sala Plena de la Corte Suprema de Justicia a la autoridad judicial competente, encontrándose actualmente el asunto en curso regular ante la Sala de Casación Civil, Agraria y Rural de la Corte Suprema de Justicia.”. 
+(iv) “Al respecto, la jurisprudencia constitucional ha sostenido de manera reiterada que no toda superación de los términos legales en el trámite de una actuación judicial comporta, por sí sola, la vulneración de derechos fundamentales, pues la mora únicamente adquiere entidad constitucional cuando la inactividad resulta claramente desproporcionada, carente de justificación objetiva y directamente imputable a la autoridad judicial llamada a decidir, afectando de manera real y actual el derecho de acceso a la administración de justicia en su dimensión temporal.”. 
+(v) “En el presente asunto, si bien se advierte que el término previsto para decidir la acción de tutela fue superado, dicha circunstancia no obedeció a una inactividad injustificada, sino a la necesidad de adelantar actuaciones institucionales indispensables para garantizar la imparcialidad, competencia y correcta integración del juez constitucional, sin que se evidencie desidia, abandono del trámite o falta de impulso procesal atribuible a la autoridad accionada.”. 
+(vi) “En consecuencia, aun cuando la accionante pretende que se ordene la emisión inmediata del fallo de primera instancia dentro de la acción de tutela previamente promovida, lo cierto es que el juez constitucional no puede sustituir al juez natural ni imponer términos perentorios de decisión cuando el trámite se encuentra en curso regular y no se acredita una mora judicial con relevancia constitucional.”.
+
+---
+
+# PROVIDENCIA DDP 8437
+
+**Número de Providencia (DDP 8437):** STP613-2026
+**Radicación (DDP 8437):** 151080
+**Decisión (DDP 8437):** SMS DEL 17.2.2026
+
+**Lista de Temas (DDP 8437):**
+1 
+(i) “MELQUISEDEC IBARRA GARCÍA, a través de apoderada, interpuso acción de tutela contra los Juzgados 9º Penal del Circuito Especializado de Bogotá y 4º de Ejecución de Penas y Medidas de Seguridad de Tunja. Considera que las decisiones que le negaron la reclusión domiciliaria u hospitalaria por enfermedad desconocieron el precedente jurisprudencial constitucional y se basaron únicamente en el dictamen médico legal emitido en noviembre de 2024, que no es concluyente y que debe ser complementado llevando a cabo una nueva valoración por parte de Medicina Legal.”. 
+(ii) “Sobre los requisitos de procedibilidad de la acción de tutela contra providencias judiciales”. 
+(iii) La reclusión domiciliaria u hospitalaria por enfermedad. 
+(iv) “Ahora, al pronunciarse en el marco de la revisión de una acción de tutela, en sentencia T-114 de 2025, la Corte precisó que la situación de las personas adultos mayores privadas de la libertad es particular al tratarse de una población que requiere atención diferenciada. La Corte Constitucional sostuvo que son sujetos de especial protección constitucional pues “con ocasión del envejecimiento pueden requerir del apoyo o asistencia del Estado y la sociedad para continuar disfrutando de una vida plena.”, especialmente, si se tiene en cuenta que son seres humanos que están bajo la tutela y la custodia del Estado. Específicamente, la Corte Constitucional explicó lo siguiente: …”. 
+(v) “… es de precisar que el artículo 26 de la Ley 1121 de 2006  establece la exclusión de beneficios y subrogados penales “Cuando se trate de delitos de [] secuestro extorsivo []” entre otros. Al respecto, al resolver la exequibilidad de la norma, la Corte Constitucional, en sentencia C-073 de 2010, aclaró que, en materia de concesión de beneficios penales, si bien el legislador cuenta con un amplio margen de configuración normativa, dicha concesión o negativa de beneficios no puede desconocer el derecho a la igualdad. Al respecto, indicó la Corte que …”. 
+(vi) “Ahora bien, a pesar de lo anterior, la Corte Constitucional también ha sido enfática en indicar que las medidas restrictivas de la libertad tienen carácter excepcional y, en ese sentido, “la potestad de configuración legislativa tiene como límite de aplicación los criterios de razonabilidad y proporcionalidad, de manera que, las restricciones a la libertad no pueden convertirse en una regla general” (CC C-318 de 2008). Así, al declarar la exequibilidad condicionada del parágrafo del artículo 27 de la Ley 1142 de 2007, norma que modificó el artículo 314 del Código de Procedimiento Penal, que se refiere a la prohibición de conceder la sustitución de la detención preventiva en establecimiento carcelario por la domiciliaria cuando la imputación sea por determinados delitos, la Corte Constitucional indicó lo siguiente: …”. 
+(vii) “… la Sala de Casación Penal de esta Corporación, en sentencia SP432-2023, Radicación 56193, del 23 de agosto de 2023, señaló, por ejemplo, que no son aplicables las prohibiciones contenidas en los numerales 2, 6 y 8 del artículo 199 de la Ley 1098 de 2006 a quienes padezcan una enfermedad «muy grave» incompatible con la vida en reclusión. La Sala consideró que esa interpretación es razonable porque …”. 
+(viii) La resocialización. 
+(ix) “Con fundamento en lo expuesto, la Sala revocará la decisión de primera instancia que negó la acción de tutela formulada por MELQUISEDEC IBARRA GARCÍA. En su lugar, amparará sus derechos fundamentales a la dignidad humana, a la unidad familiar y al debido proceso que fueron vulnerados por el Juzgado 9º Penal del Circuito Especializado de Bogotá. Lo anterior, tras advertir que el auto del 1º de septiembre de 2025 incurrió en los defectos sustantivo, de desconocimiento del precedente Constitucional y en la violación directa de la Constitución.”.
+
+---
+
+# PROVIDENCIA DDP 8438
+
+**Número de Providencia (DDP 8438):** CP021-2026
+**Radicación (DDP 8438):** 69054
+
+**Lista de Temas (DDP 8438):**
+Concepto sobre solicitud de extradición formulada por la República Bolivariana de Venezuela.
+
+---
+
+# PROVIDENCIA DDP 8439
+
+**Número de Providencia (DDP 8439):** AP273-2026
+**Radicación (DDP 8439):** 70789
+
+**Lista de Temas (DDP 8439):**
+(i) El recurso de queja. 
+(ii) “La Corte ha establecido que, mediante el recurso de queja, puede examinarse si procede o no conceder el recurso de impugnación especial. Esto se debe a que, aunque dicho recurso originalmente busca verificar si se concedió correctamente una apelación o la casación, en los trámites de las Leyes 600 de 2000 y 906 de 2004, la garantía de doble conformidad -como mecanismo aplicable frente a las sentencias condenatorias de los Tribunales dictadas en primera instancia y sin regulación legal expresa- exige ampliar el alcance del recurso para incluir los casos en los que se niegue la impugnación especial.”. 
+(iii) “Fundamentó su pretensión en que, por un «lapsus de interpretación jurisprudencial», confundió los plazos para interponer el medio de impugnación. Por ello, sostuvo que el error es «excusable» en tanto su situación no evidencia «negligencia». Así, agregó que restringir la revisión de la condena implica una limitación desproporcionada del derecho de defensa del procesado y de la garantía de la doble conformidad.”. 
+(iv) “La Corte evidencia que el recurrente tenía pleno conocimiento de la fecha y hora en que se realizaría la audiencia de lectura de fallo. Por ende, también debía considerar que, de no justificar su inasistencia, el término para interponer el recurso fenecería a los cinco (5) días siguientes. Sin embargo, adoptó una actitud omisiva sin justificación alguna.”. 
+(v) “La conclusión no puede ser distinta: los términos procesales no son un simple «tecnicismo», como aludió el quejoso. Son una manifestación del debido proceso que optimizan los recursos del sistema judicial y aseguran el acceso a la administración de justicia en condiciones de igualdad. Hacen operante el derecho de defensa y la seguridad jurídica de quienes enfrentan actuaciones judiciales. Por ello, como se dijo en líneas anteriores, su aplicación no está sujeta al arbitrio o interpretación personal de las partes.”.
+
+---
+
+# PROVIDENCIA DDP 8440
+
+**Número de Providencia (DDP 8440):** AP278-2026
+**Radicación (DDP 8440):** 66224
+
+**Lista de Temas (DDP 8440):**
+(i) La “legitimidad para recurrir”. 
+(ii) El “interés para recurrir”. 
+(iii) “Fines del recurso de casación”. 
+(iv) “Principios del recurso de casación”. 
+(v) “Causales de casación previstas por la Ley 906 de 2004”. 
+(vi) “Motivos de inadmisión” de la demanda de casación.  
+(vii) “Pues bien, esta Sala ha precisado que la violación indirecta por falso juicio de existencia ocurre cuando el juzgador omite un medio de prueba válidamente incorporado al proceso o fundamenta su decisión en uno inexistente. En el primer caso incurre en omisión; en el segundo, en suposición …”.  
+(viii) “Cuando el recurrente alega la omisión, le corresponde identificar el elemento probatorio omitido, precisar la información objetivamente suministrada por este, el mérito que le es atribuible y explicar cómo su valoración conjunta con el resto del acervo probatorio conduciría a modificar las conclusiones de la sentencia impugnada …”.
+
+---
+
+# PROVIDENCIA DDP 8441
+
+**Número de Providencia (DDP 8441):** SP2270-2025
+**Radicación (DDP 8441):** 60152
+**Decisión (DDP 8441):** SMS DEL 18.2.2026
+
+**Lista de Temas (DDP 8441):**
+(i) El principio de congruencia y una presunta nulidad por su violación. 
+(ii) “Esta Sala de Casación tiene pacíficamente establecido que la congruencia entre la imputación, la acusación y la sentencia, se debe estudiar desde varios aspectos …”.  
+(iii) “Por lo anterior, a juicio de la Sala, el reproche formulado por el recurrente no está llamado a prosperar. Lejos de juzgar y absolver a NEVIS GOMEZCÁSSERES HOYOS por hechos distintos a aquellos por los que fue acusada, lo cierto es que el Tribunal hizo referencia, precisamente, a todo el contexto que rodeó la emisión de los autos acusados de prevaricadores: simplemente que su juicio pasó por considerar que aquellas decisiones estuvieron precedidas de un auto del Juzgado 5º Penal del Circuito de Barranquilla que calificó de “exótico” y que, en su opinión, llevó a la procesada a una confusión, particularmente después de la emisión de una constancia de ejecutoria que, por lo demás, incluía a la sentencia condenatoria proferida por el Juzgado 4º homólogo.”. 
+(iv) “Respecto de la legitimidad del Ministerio Público para presentar el recurso de apelación que elevó en contra de la sentencia del Tribunal Superior de Barranquilla, es preciso recordar, en primer lugar, que la jurisprudencia de la Sala tiene pacíficamente establecido lo siguiente: …”. 
+(v) “Sobre la tipicidad objetiva y subjetiva del delito de prevaricato por acción”. 
+(vi) “Al respecto, se les recuerda a los apelantes que el dolo es un elemento que debe quedar debidamente demostrado al interior de un proceso penal, para que se pueda fundamentar una sentencia condenatoria. Como está pacíficamente decantado en la jurisprudencia de la Corte, esta demostración suele hacerse mediante prueba indiciaria; prueba que requiere, no sólo la demostración de un hecho indicador, sino la aplicación de una regla de la experiencia y de un examen de probabilidad, que permita construir la demostración de un hecho indiciado a partir de un argumento lógico inductivo.”. 
+(vii) “En el error de tipo, el autor desconoce el alcance de sus actos en la medida en que, supone erróneamente la ausencia de circunstancias constitutivas del tipo penal, que si están presentes en la realidad objetiva donde se desarrolló su acción. Por consiguiente, tal error se configura cuando el sujeto activo de la acción desconoce que su comportamiento se adecúa a un tipo y por lo mismo, excluye el dolo porque afecta su aspecto cognitivo, incidiendo así en la responsabilidad. …”. 
+(viii) “medidas de restablecimiento del derecho”, en este caso.
+
+---
+
+# PROVIDENCIA DDP 8442
+
+**Número de Providencia (DDP 8442):** SP020-2026
+**Radicación (DDP 8442):** 60549
+
+**Lista de Temas (DDP 8442):**
+(i) “Del agravante contenido en el numeral 5 del inciso 2º del artículo 365 de la Ley 599 de 2000.”. 
+(ii) “La Corte ha proferido diferentes sentencias que se han ocupado de la materia. Por ejemplo, se ha referido a que el vocablo “coparticipación criminal” no hace referencia a las diversas formas de intervención contenidas en el artículo 30 C.P., esto es, a los partícipes en sentido estricto, sino a la institución genérica de la coparticipación.”. 
+(iii) “Dicho de otro modo, la agravante no se restringe a los casos en que la conducta es cometida por un(os) autor(es) y cómplices o determinadores, sino que también puede aplicarse cuando exista multiplicidad de autores en sus diversas modalidades …”. 
+(iv) “[L]a expresión «copartícipe» no se refiere exclusivamente al cómplice o [al] determinador, sino que involucra al autor en sus diversas modalidades, pues en ningún momento la norma hace alusión a las diferentes formas de participación prevista en el artículo 30 del Código Penal, esto es, a los «participes» [sic], sino a la institución genérica de la coparticipación”.”. 
+(v) “De lo transcrito es posible evidenciar que la Sala ha dicho que la agravante por obrar en coparticipación criminal 
+(i) es objetiva. Sin embargo, en todos los casos, 
+(ii) se justificó su aplicación en atención a que la intervención de varias personas generó un mayor riesgo al bien jurídico tutelado, así como a otros que se resguardan de manera mediata, como lo son la vida, la integridad, o el patrimonio. También apeló a otras razones de política criminal, como facilitar el éxito del plan criminal o la huida, entre otras, todas ellas, que reflejan la necesidad de un mayor reproche punitivo.”. 
+(vi) “Criterios de interpretación para la aplicación de la agravante por coparticipación criminal”. 
+(vii) “Subsanado el yerro, al existir una variación en la calificación jurídica por la cual se debe dictar condena en contra de los procesados, también debe realizarse nuevamente el cómputo de la prescripción de la acción penal, como pasa a verse: …”.
+
+---
+
+# PROVIDENCIA DDP 8443
+
+**Número de Providencia (DDP 8443):** AP8155-2025
+**Radicación (DDP 8443):** 69623
+
+**Lista de Temas (DDP 8443):**
+(i) “Por regla general, el auto que decide la reposición no es susceptible de recursos. Sin embargo, en esta oportunidad, la Sala Mayoritaria del Tribunal de Barranquilla declaró la prosperidad del recurso horizontal propuesto por el apoderado de Alfonso Hilsaca Eljaude, contexto que, configura una excepción para habilitar la alzada, con relación a lo resuelto.”. 
+(ii) “La apelación contra autos podrá interponerse directamente o en subsidio de la reposición. Cuando se acceda a la reposición interpuesta por una de las partes, la otra podrá apelar el nuevo auto si fuere susceptible de este recurso.”. 
+(iii) “Ahora, respecto a la eventualidad de declarar desierto un recurso, la Sala «ha sido reiterativa en que no basta con que el recurrente exprese genéricamente su desacuerdo, sino que debe concretar el tema que le genera controversia, presentando argumentos fácticos y jurídicos en que se funda, obligación que de no acatar conduce necesariamente a declarar desierto el recurso»”. 
+(iv) “De la preclusión de la investigación”. 
+(v) “C]uando se trata de la causal sexta –imposibilidad de desvirtuar la presunción de inocencia– el Ente Acusador deberá acreditar que ha realizado una investigación exhaustiva y que a pesar de ello, no fue posible reunir los elementos demostrativos de la materialidad o de la autoría y responsabilidad del investigado, prevaleciendo la garantía fundamental de la presunción de inocencia y su correlato, el in dubio pro reo.”. 
+(vi) “Sobre el estándar probatorio para acceder a la terminación anticipada del proceso por esta vía, en decisión CSJ AP2259, 2 abr. 2025, Rad. 68337, se aclaró que aquél no se relaciona con la «demostración plena», la «plena prueba», un umbral «más allá de toda duda razonable» o la «suficiencia o insuficiencia probatoria».”. 
+(vii) “Privación ilegal de la libertad”. 
+(viii) “Amenazas a testigo y falso testimonio”. 
+(ix) “Concierto para delinquir”.
+
+---
+
+# PROVIDENCIA DDP 8444
+
+**Número de Providencia (DDP 8444):** SP034-2026
+**Radicación (DDP 8444):** 71169
+**Decisión (DDP 8444):** SMS DEL 19.2.2026
+
+**Lista de Temas (DDP 8444):**
+(i) La Corte revoca la sentencia absolutoria emitida el 5 de agosto de 2025 por la Sala Penal del honorable Tribunal Superior del Distrito Judicial de Bogotá, providencia proferida en favor de BIBIANA ROSA OROZCO BONILLA, procesada por el delito de Prevaricato por acción agravado, en calidad de autora. 
+(ii) Se niega a la procesada “la suspensión condicional de la ejecución de la pena y la prisión domiciliaria.”. 
+(iii)  Se impone a la procesada “la pérdida del cargo como Fiscal 49 adscrita a la Unidad Nacional de Derechos Humanos y Derecho Internacional Humanitario.”.
+
+---
+
+# PROVIDENCIA DDP 8445
+
+**Número de Providencia (DDP 8445):** SP031-2026
+**Radicación (DDP 8445):** 65543
+
+**Lista de Temas (DDP 8445):**
+(i) “La acción de revisión”. 
+(ii) La causal prevista en el artículo 192.7 de la Ley 906 de 2004. 
+(iii) El principio de favorabilidad. 
+(iv) La Ley 2477 de 2025. 
+(v) “En lo que atañe a la presente acción de revisión, el punto a resaltar de este criterio jurisprudencial reciente es que, al habilitarse este sistema de rebajas graduales propio de la Ley 2477 de 2025, desaparece la razón por la cual la Corte había dispuesto la inaplicación de los aumentos punitivos establecidos en la Ley 890 de 2004. No obstante, la Sala advirtió que si se dosifican las penas conforme al incremento previsto en la Ley 890, la aplicación de la Ley 2477 podría resultar injusta o contraria a los fines que persigue, ya que esta nueva ley no ofrecería ningún beneficio real a los procesados, anulando su propósito de política criminal de descongestionar la justicia.”. 
+(vi) “Bajo este criterio, al momento de individualizar la pena, los extremos punitivos de las conductas enlistadas en el artículo 12 de la Ley 2477 de 2025, no se incrementarán «en la tercera parte en el mínimo y en la mitad en el máximo», como lo prevé el art. 14 de la Ley 890 de 2004, sino que en su lugar, el extremo mínimo se aumentará en la sexta parte y el máximo en una cuarta parte. Así, si las rebajas que habilitan la aplicación de la Ley 890 de 2004 son moderadas, los aumentos punitivos por cuenta de esta ley serán así mismo moderados, de manera proporcional, para mantener la simetría y lo pretendido por el legislador con la Ley 2477 de 2025.”. 
+(vii) “Por consiguiente, contrario a lo señalado por el delegado del Ministerio Público, en este caso lo que se debe dilucidar no es si se debe acudir al principio de favorabilidad en materia normativa, sino determinar si bajo la óptica de los más recientes pronunciamientos, se cumplen los presupuestos requeridos para considerar fundada la causal de revisión invocada, relativa a la favorabilidad de un criterio jurisprudencial. Y la respuesta a tal pregunta debe ser afirmativa.”. 
+(viii) “Ahora bien, como el allanamiento a cargos del sentenciado TEJADA MORENO se produjo durante la audiencia de formulación de imputación, de conformidad con lo dispuesto en el parágrafo del art. 26 de la Ley 1121 de 2006, adicionado por el art. 12 de la Ley 2477 de 2025, se concederá una rebaja equivalente a la mitad de la prevista en el artículo 351 de la Ley 906 de 2004, lo que representa la cuarta parte.”.
+
+---
+
+# PROVIDENCIA DDP 8446
+
+**Número de Providencia (DDP 8446):** SP019-2026
+**Radicación (DDP 8446):** 65945
+
+**Lista de Temas (DDP 8446):**
+(i) “El tipo penal de omisión del agente retenedor o recaudador”. 
+(ii) “El comportamiento omisivo del agente retenedor adquiere relevancia jurídico penal cuando se cumplen los referidos dos (2) meses. Por ende, tal como lo tiene establecido la Sala, es un delito de conducta instantánea –que se consuma en un único momento– y de resultado –con consecuencia o efecto material– ante la ausencia de ingreso del dinero público a las arcas del Estado …”. 
+(iii) “En los términos descritos por el parágrafo de la norma, la obligación tributaria puede extinguirse por pago o compensación, junto con los respectivos intereses previstos en el Estatuto Tributario y normas aplicables. Esto tiene efecto directo en el proceso penal, como «resolución inhibitoria, preclusión de investigación, o cesación de procedimiento». Es decir que la extinción por pago de la obligación tiene efecto directo en la responsabilidad penal.”. 
+(iv) “Y si bien el delito de omisión del agente retenedor o recaudador puede extinguirse mediante el pago de la obligación, conforme al numeral 6º del artículo 82 del Código Penal (§ 47 y 48), los documentos aportados de manera extemporánea no corresponden al cumplimiento de un acuerdo de pago ni a un paz y salvo expedido por la DIAN luego de la práctica probatoria, sino a pruebas decretadas para su práctica (en la audiencia preparatoria o como prueba sobreviniente). La discusión es si, con dichos documentos que la defensa afirma forman parte del acervo probatorio, se demostró la inexistencia de la obligación.”. 
+(v) “En el presente asunto, la Sala no acudirá a la vía procesal de declarar la extinción de la acción penal por pago y de ordenar la consecuente cesación del procedimiento, que como se vio se ha hecho en otras oportunidades, previo a calificar la demanda de casación (§ 48). Lo procedente en esta oportunidad es revocar la sentencia condenatoria y, en su lugar, absolver a la procesada del delito acusado.”.
+
+---
+
+# PROVIDENCIA DDP 8447
+
+**Número de Providencia (DDP 8447):** AP8976-2025
+**Radicación (DDP 8447):** 67544
+**Decisión (DDP 8447):** SMS DEL 20.2.2026
+
+**Lista de Temas (DDP 8447):**
+(i) “Reglas esenciales del recurso extraordinario de casación”. 
+(ii) “Además de lo anterior, la fundamentación de la sentencia se encuentra acorde con la jurisprudencia. La Sala ha señalado que, en el contexto de la defraudación masiva a Foncolpuertos, los abogados que, mediante gestiones profesionales, llevaron a que jueces y servidores de la entidad propiciaran la apropiación de recursos deben responder como determinadores. Ello, debido a que “gestaron el propósito criminal en los empleados con competencia para reconocer, liquidar y pagar las prestaciones sociales a las que no tenían derecho… de tal manera que si no hubieran presentado la propuesta no hubiera tenido lugar la comisión del delito” …”. 
+(iii) “El falso juicio de existencia se configura cuando el juez 
+(i) desconoce por completo el contenido material de un medio de prueba debidamente incorporado a la actuación, o 
+(ii) concede valor probatorio a uno que no fue recaudado, suponiendo su existencia (CSJ AP2169-2022, AP5164-2022 y AP2665-2023). En el primer caso, se está en presencia del falso juicio de existencia por omisión. En el segundo evento, se predica un falso juicio de existencia por suposición.”. 
+(iv) “Pues bien, cuando el demandante postula el cargo por la vía del falso juicio de existencia, tiene la carga de señalar la específica modalidad de error que a su juicio ser verificó. Así mismo, el medio de prueba materialmente omitido o supuesto, según el caso. Además, ha se precisar cómo, de haber sido valorado o no apreciado -según sea el caso- junto con los demás medios de persuasión, las conclusiones adoptadas en el fallo habrían sido sustancialmente diferentes y favorables a su pretensión …”. 
+(v) “De esta manera, la ausencia de controversia respecto del fallo de primera instancia sobre el tema en cuestión revela implícitamente la conformidad de la defensa con lo decidido. Correlativamente, el mismo sujeto procesal no cuenta ahora con legitimidad para cuestionar el fallo de segundo grado, con el argumento de no haber otorgado el beneficio que reclama. El Tribunal no se pronunció al respecto, pues ni siquiera tuvo la oportunidad de hacerlo, a la luz del principio de limitación Así, por falta de legitimación, el cargo que se analiza también será inadmitido.”. 
+(vi) “la suspensión de la ejecución de la pena privativa de libertad del procesado.” que tiene 81 años.
+
+---
+
+# PROVIDENCIA DDP 8448
+
+**Número de Providencia (DDP 8448):** AP285-2026
+**Radicación (DDP 8448):** 63429
+
+**Lista de Temas (DDP 8448):**
+(i) “La violación directa de la ley sustancial versa exclusivamente sobre un yerro de juicio respecto del precepto que se ocupa de regular el supuesto fáctico en concreto, el cual tiene lugar por: 
+(i) falta de aplicación, lo cual suele presentarse, por regla general, cuando el funcionario yerra acerca de la existencia de la norma y por eso no la considera en el caso específico que la reclama; 
+(ii) aplicación indebida, vicio que consiste en una desatinada selección del precepto; y 
+(iii) interpretación errónea, caso en el cual el juez selecciona bien y adecuadamente la norma que corresponde al suceso en cuestión, y efectivamente la aplica, pero al interpretarla le atribuye un sentido jurídico que no tiene, asignándole efectos distintos o contrarios a los que le corresponden, o que no causa.”. 
+(ii) “Como el yerro recae de manera directa sobre la aplicación o interpretación de la norma, el argumento a presentar opera eminentemente jurídico o dogmático, por lo tanto, su correcta fundamentación exige aceptar los hechos y las pruebas de ellos tal como fueron declarados unos y apreciadas las otras por los juzgadores, y exponer la discrepancia en el ámbito del raciocinio estrictamente jurídico, es decir, sólo con las consecuencias jurídicas atribuidas a los hechos declarados, sin que resulte viable alegar o sugerir al tiempo la presencia de errores de apreciación probatoria, dado que para ello la ley ha previsto la vía indirecta …”. 
+(iii) “El desconocimiento del debido proceso por afectación sustancial de su estructura o de la garantía debida a cualquiera de las partes”. 
+(iv) “El actor solicita a la Corte que se decrete la nulidad de la actuación -no mencionó a partir de qué momento procesal- porque en su sentir se desatendieron los principios de presunción de inocencia y debido proceso, sin embargo, las críticas relacionadas con la diligencia de reconocimiento por medio de fotografías o vídeos y sobre la acreditación del dolo, no se relacionan con la existencia de alguna irregularidad sustancial que pudiere lesionar tales garantías fundamentales, sino que esas discrepancias versan sobre la actividad probatoria y la valoración por parte de los falladores, de modo que los defectos debieron ser alegados a través de la vía indirecta de la ley sustancial.”. 
+(v) “Dicho esto, la Corte de manera pacífica y reiterada ha señalado que si en las audiencias de formulación de imputación y de acusación, el fiscal no define de manera clara, completa y suficiente los hechos jurídicamente relevantes, a tal punto que el indiciado o imputado no haya tenido la posibilidad de conocer por qué hechos se le vincula o está siendo investigado, se vulnera de manera flagrante el debido proceso –congruencia y defensa-, y el único remedio posible es la nulidad de la actuación …”. 
+(vi) “El falso raciocinio constituye una modalidad de violación indirecta de la ley sustancial, que consiste en el manifiesto desconocimiento de las reglas de la sana crítica en el proceso de apreciación de la prueba sobre la cual se ha fundado la sentencia. En otras palabras, el juez incurre en un error protuberante en el proceso inferencial mediante el cual fija el mérito de una prueba, por la desatención de los parámetros que garantizan la persuasión racional.”. 
+(vii) “En ese orden, la debida sustentación de ese error de hecho requiere que el demandante indique 
+(i) lo que dice de manera objetiva el medio probatorio; 
+(ii) qué se infirió de él en la sentencia atacada; 
+(iii) cuál fue el mérito persuasivo otorgado; 
+(iv) el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en el fallo, debiendo, a la par, indicar su consideración correcta; y, 
+(v) la trascendencia del error, expresando con claridad cuál debe ser la correcta inferencia de la prueba, con la indeclinable obligación de acreditar, a través del examen conjunto de los medios suasorios, que la enmienda del yerro daría lugar a una declaración de derecho esencialmente diversa y opuesta a la ameritada; requisitos, todos, que fueron incumplidos por el defensor.”. 
+(viii) “En efecto, el artículo 252 de la Ley 906 de 2004, no exige como requisito de validez para el desarrollo de la diligencia de reconocimiento por medio de fotografías o videos, la presencia de un delegado del ministerio público.”. 
+(ix) “Por otra parte, contrario a lo sostenido por el recurrente, no es necesario que, cuando se lleve a cabo un reconocimiento fotográfico, en todos los casos se deba realizar el reconocimiento en fila de personas para que aquel tenga validez, conforme se pudiera desprender de lo previsto en el inciso 2º del artículo 252 de la Ley 906 de 2004, pues, al respecto la Sala ha concluido que ello depende, entre otros criterios, de si en verdad es útil la identificación en rueda de presos …”. 
+(x) “De otro lado, la Corte de manera reiterada ha establecido que el reconocimiento a través de fotografías o videos, no es una prueba en sí misma, que adquiera tal calidad a través de la introducción del acta que da cuenta de la misma, como si se tratara de un medio suasorio documental, sino que aquel comporta un acto de investigación cuyo resultado puede hacer parte del testimonio, cuando en el juicio el declarante alude a la existencia de dicha actividad investigativa, a los logros obtenidos a través de la misma o a la forma como se efectuó, atestaciones que habrán de ser valoradas integralmente con el testimonio de quien efectúa el reconocimiento y, en conjunto, con los demás medios de convicción.”. 
+(xi) “De cualquier modo, recuérdese que la transgresión de la cadena de custodia no es un problema de legalidad, sino de autenticidad y mismidad, que solo repercute en la valoración del elemento material probatorio, en las condiciones previstas en el artículo 273 de la Ley 906 de 2004 …”.
+
+---
+
+# PROVIDENCIA DDP 8449
+
+**Número de Providencia (DDP 8449):** AP286-2026
+**Radicación (DDP 8449):** 71354
+
+**Lista de Temas (DDP 8449):**
+(i) “El error de hecho por falso juicio de identidad, debe aclararse al impugnante, opera objetivo y se materializa cuando el fallador, al examinar determinado medio de prueba, lee de forma incorrecta lo que este contiene, sea porque le hace agregados -falso juicio de identidad por adición-, le recorta aspectos fundamentales -falso juicio de identidad por cercenamiento-, o tergiversa lo que allí se dice -falso juicio de identidad por tergiversación-.”. 
+(ii) “Dada su naturaleza, el yerro se demuestra de forma simple, pues, al demandante le basta con transcribir lo que consigna el medio de prueba y contrastarlo, también con su transcripción expresa, con lo que de ello leyó el Tribunal, para así, en esa doble columna, verificar que lo segundo no se compadece con lo primero.”. 
+(iii) “Se impone advertir al demandante que en los casos en los cuales se acude a la causal primera, por violación directa de la ley, la discusión opera eminentemente dogmática, sin posibilidad de controvertir los hechos estimados demostrados por el fallador, ni las consideraciones probatorias que llevaron a dicha conclusión, dado que, precisamente, la controversia tiene como base estos elementos fácticos, a partir de determinar que la norma aplicada no se compadece con ellos, que dejó de aplicarse la adecuada, o que, si bien, se utilizó la propia del caso, su contenido fue tergiversado o no se interpretó de forma correcta.”.
+
+---
+
+# PROVIDENCIA DDP 8450
+
+**Número de Providencia (DDP 8450):** AP9643-2025
+**Radicación (DDP 8450):** 69574
+**Decisión (DDP 8450):** SMS DEL 23.2.2026
+
+**Lista de Temas (DDP 8450):**
+(i) La legitimidad para recurrir. 
+(ii) El interés para recurrir. 
+(iii) “Fines del recurso de casación”. 
+(iv) “Principios del recurso de casación”. 
+(v) “Causales de casación previstas por la Ley 906 de 2004”. 
+(vi) “El recurrente considera que el Tribunal incurrió en errores de hecho por falso raciocinio. Esta modalidad de yerro se concreta cuando el juzgador al valorar la prueba le asigna un mérito no adecuado, por medio de la transgresión de los postulados de la sana crítica. Mediante este error no se busca acreditar que el fallador distorsionó el contenido de la prueba, sino que desconoció una regla de la lógica, alguna máxima de la experiencia o una la ley de la ciencia; por ello al recurrente le asiste la carga de indicar en cuál ámbito de los enunciados, se concretó la equivocación.”. 
+(vii) “Con ese propósito, le corresponde: 
+(i) identificar el medio probatorio indebidamente valorado, es decir, sobre el cual recayó el error; 
+(ii) precisar en qué consistió el equívoco del fallador al hacer la valoración; 
+(iii) señalar cuál fue el mérito otorgado; 
+(iv) cuál fue el postulado lógico, el aporte científico correcto o la regla de la experiencia que debió tenerse en cuenta para la adecuada apreciación de la prueba, y 
+(v) demostrar la trascendencia del error, esto es, cómo de haber sido apreciado correctamente el medio de prueba, frente al resto de elementos de conocimiento, el sentido de la decisión habría sido sustancialmente opuesto y a favor de los intereses del recurrente …”. 
+(viii) “En relación con el cargo por violación indirecta de la ley sustancial, estructurado a partir de un falso juicio de identidad por cercenamiento y tergiversación de la prueba pericial rendida por la psicóloga forense Alexandra Vallejo Mejía, es preciso recordar que la adecuada formulación de este reproche exige demostrar un yerro en la percepción del contenido probatorio. Para ello, el demandante debe efectuar un contraste paralelo, a modo de cuadro comparativo, en el que, de un lado, exponga fielmente lo que realmente afirma o contiene la prueba y, del otro, señale la distorsión, supresión o adición atribuida al juez de instancia.”. 
+(ix) “A continuación, para acreditar la trascendencia del error, es indispensable que muestre cómo, a partir de una correcta valoración del elemento probatorio, se impondría la modificación del sentido del fallo impugnado. En suma, se trata de una causal de naturaleza objetiva, ajena a la discrecionalidad valorativa de los jueces, pues esta última corresponde al falso raciocinio, de carácter subjetivo.”.
+
+---
+
+# PROVIDENCIA DDP 8451
+
+**Número de Providencia (DDP 8451):** No especificado
+**Radicación (DDP 8451):** CUI 76147-6000-170-2024-00487-01 (
+**Decisión (DDP 8451):** AC-062-26).
+
+**Lista de Temas (DDP 8451):**
+(i) “Una vez examinados los argumentos del apelante, la Sala anticipa que se abstendrá de resolver el recurso interpuesto, por dos razones: una, relativa a que la solicitud inicial debió ser rechazada de plano, porque era evidente que no cumplía con los requisitos para el decreto de la nulidad. En segundo lugar, inclusive si se superara ese asunto, la sustentación de la impugnación fue insuficiente para considerarlo como un verdadero ataque al auto controvertido.”. 
+(ii) “Sobre la nulidad y sus cargas argumentativas”. 
+(iii) “La defensa, realmente, no planteó una verdadera irregularidad. Como se indicó en el resumen de los antecedes procesales, el abogado realizó una extensa exposición sobre “la ausencia de construcción de los hechos jurídicamente relevantes”. Sin embargo, en ningún momento indicó por qué, en el caso concreto, existía tal situación.”. 
+(iv) “El principio de acreditación que, contrario a lo que parece entender el apelante, consiste en el deber de explicar en qué consistió el yerro, desde una perspectiva fáctica y jurídica. Argumentar cuál es la irregularidad es un presupuesto para examinar la nulidad.”. 
+(v) “Sobre la naturaleza del recurso de apelación.”. 
+(vi) “Sobre el particular, en decisión CSJ AP, 2 ago. de 2017, rad. 5056016, por ejemplo, la Corte Suprema de Justicia estableció que el recurso de apelación impone al recurrente “la carga argumentativa de demostrar el yerro en que incurrió el juzgador en la decisión recurrida”, lo que significa hacer “manifiestos los argumentos de hecho y de derecho por los cuales estima errada la postura del funcionario de primera instancia”, como también se propuso en la decisión CSJ AP2784, 7 may. 2025, rad. 6866417.”.
+
+---
+
+# PROVIDENCIA DDP 8452
+
+**Número de Providencia (DDP 8452):** No especificado
+**Radicación (DDP 8452):** CUI 76111-60-00-165-2022-52217-01 (
+**Decisión (DDP 8452):** AC-780-25).
+
+**Lista de Temas (DDP 8452):**
+(i) La víctima que apela una preclusión. 
+(ii) “La preclusión y su estándar de conocimiento.”. 
+(iii) “En nuestro medio, entonces, diríamos que para acusar se requiere que, luego de una investigación que cumpla con una debida y suficiente diligencia34, y luego de apreciar todos los distintos medios de conocimiento disponibles35, el fiscal considere que es más probable, que menos probable36, afirmar que la conducta existió y que el investigado es su autor o su partícipe.”. 
+(iv) “Por lo tanto, esta Sala considera que para acceder a la preclusión el juez debe verificar si: i. ha mediado una debida y suficiente diligencia en la investigación de los hechos; ii. el fiscal pone de presente al juez todas las evidencias disponibles; y iii. se justifique, a partir de una propuesta de valoración probatoria, por qué es más probable que concurra la causal de preclusión invocada, que la hipótesis de responsabilidad del investigado.”. 
+(v) “Eso sí, estos requisitos operan en aquellas causales de naturaleza sustancial, es decir, las que se conectan con categorías dogmáticas u ontológicas del delito investigado (el hecho no existió, es atípico, el procesado no intervino en él o hay eximentes de responsabilidad). No así con las causales procesales (imposibilidad de continuar con la acción penal o vencimiento del término para acusar37), que funcionan bajo una lógica deductiva38. Tampoco aplicarían frente a la imposibilidad de desvirtuar la presunción de inocencia. Esta última tiene su propio estándar de prueba y requisitos, lo que será explicado por la Sala en otra oportunidad. Por ahora, analizaremos la causal invocada.”. 
+(vi) “La atipicidad del hecho investigado.”. 
+(vii) “Sobre el delito de fraude procesal.”. 
+(viii) “Como quedó visto a lo largo de la decisión, la Fiscalía no realizó una adecuada argumentación de la causal de preclusión. Sin embargo, en caso de que, luego de una investigación suficiente y objetiva, considere que, en definitiva, la conducta no se adecúa, objetivamente, al tipo penal, podría acudir a la figura del archivo de la investigación.”.
+
+---
+
+# PROVIDENCIA DDP 8453
+
+**Número de Providencia (DDP 8453):** No especificado
+**Radicación (DDP 8453):** CUI 76-520-60-00000-2024-00080-01
+
+**Lista de Temas (DDP 8453):**
+(i) “… cuando se solicita la inadmisión de una prueba, lo que se ataca es la pertinencia y conducencia de aquella, tal como lo establece el artículo3 76 del Código de Procedimiento Penal, en concordancia con el artículo 375 de la misma norma. Es decir que, cuando se inadmite una prueba dentro del proceso penal, es porque se ha demostrado y corroborado que dicha prueba no es pertinente para el asunto concreto.”. 
+(ii) “Ahora, cuando se habla de rechazo de la prueba, la misma obedece a no haberse realizado el descubrimiento de un elemento material probatorio o si se hizo, fue de manera extemporánea o incompleta, acorde con lo establecido en el artículo 346 del Código de Procedimiento Penal. Por último, si se habla de exclusión de la prueba, lo que se alega es que aquella es ilegal, ilícita o se ha obtenido con violación del debido proceso, según el artículo 360 de la misma norma.”. 
+(iii) “En conclusión, es dable advertir que la inadmisión, rechazo y exclusión de una prueba en el proceso penal se enmarcan en diferentes situaciones fácticas, por lo tanto, es importante tener claridad sobre lo pretendido y alegado dentro de la solicitud, para determinar si lo aplicable es la inadmisión, porque se ataca la pertinencia; el rechazo, cuando se alega falta de descubrimiento o extemporaneidad y la exclusión, con relación a las pruebas ilegales o ilícitas.”. 
+(iv) “Así las cosas, se debe precisar que, como bien se ha reiterado por el órgano de cierre de la jurisdicción ordinaria, contra el auto que decreta pruebas no procede el recurso de apelación, salvo que se discutan solicitudes referentes a la exclusión o rechazo de las mismas. Lo anterior ha sido objeto de diferentes pronunciamientos por parte de la Sala Penal de esta Corporación, donde se ha expresado: …”. 
+(v) “Sin embargo, la Corte Suprema de Justicia resaltó que, cuando la discusión se suscite sobre la exclusión de un medio de prueba o -como en este caso- sobre su rechazo por vulneración de la etapa de descubrimiento, la alzada es procedente independientemente del sentido de la decisión del juez de conocimiento.”. 
+(vi) “Referente a los informes de policías e investigadores, se ha aclarado por la Sala Penal de esta Corporación que: no son pruebas autónomas, así se les pueda considerar documentos a partir de la literalidad del artículo 424 de la Ley 906 de 2004 y que puedan producir efectos probatorios en las fases de indagación e investigación del proceso para diversas decisiones, pues por regla general las pruebas nacen en el juicio oral respetando los principios de inmediación, publicidad, contradicción y concentración.”. 
+(vii) “En todo caso, conviene memorar que la Corte Suprema de Justicia ha venido aclarando que los informes de policías pueden ser utilizados i) para refrescar la memoria del testigo o impugnar su credibilidad; 
+(ii) como prueba de referencia, cuando el testigo no esté disponible y se cumplan los requisitos establecidos en los artículos 437 y siguientes de la Ley 906; y 
+(iii) como prueba, si el testigo se retracta o cambia su versión, en los términos referidos en los precedentes atrás relacionados.”.
+
+---
+
+# PROVIDENCIA DDP 8454
+
+**Número de Providencia (DDP 8454):** No especificado
+**Radicación (DDP 8454):** CUI 76-130-60-00-169-2022-00491-01 (
+**Decisión (DDP 8454):** AC-583-24).
+
+**Lista de Temas (DDP 8454):**
+(i) La cláusula de exclusión. 
+(ii) La prueba en común. 
+(iii) “… el Alto Tribunal ha establecido criterios orientadores sobre la posibilidad de que fiscalía y defensa soliciten una misma prueba, así como sobre los requisitos de admisibilidad que deben observarse para su decreto y práctica, descartando interpretaciones formalistas que restrinjan de manera anticipada el ejercicio del derecho probatorio. Al respecto, sostuvo: …”. 
+(iv) “En ese contexto, la decisión de inadmitir el testimonio no implica una restricción del derecho de contradicción; se sustenta en la verificación de que su práctica no aporta un valor probatorio distinto al ya previsto. Incluso, el a quo dejó a salvo la posibilidad en caso de que el ente acusador renuncie a su práctica, la defensa pueda hacer uso de dicho medio probatorio al reconocer su importancia para el esclarecimiento de los hechos.”.
+
+---
+
+# PROVIDENCIA DDP 8455
+
+**Número de Providencia (DDP 8455):** No especificado
+**Radicación (DDP 8455):** CUI 761096000-163-2025-00200- (
+**Decisión (DDP 8455):** AC-032-26). CON SALVAMENTO DE VOTO. SMS DEL 24.2.2026
+
+**Lista de Temas (DDP 8455):**
+(i) “Marco jurídico y jurisprudencial en preacuerdos”. 
+(ii) “Se viene delineando que: 
+(i) el cambio de calificación jurídica cuando no tiene base fáctica no puede ser utilizada para conceder beneficios desproporcionados; 
+(ii) los acuerdos deben ajustarse al marco constitucional, y puntualmente, a los principios que los inspiran; y 
+(iii) en cada caso los fiscales deben considerar las directivas emitidas por la Fiscalía General de la Nación.”. 
+(iii) “Seguidamente dentro de la práctica judicial imperó el mecanismo mediante el cual la Fiscalía con el propósito de reducir la pena, reconoce en las negociaciones circunstancias de menor punibilidad o cambios en la forma de participación, siempre que la calificación jurídica se mantenga intacta. En lo atinente a este tema se reiteró que: …”. 
+(iv) Control judicial a los preacuerdos. 
+(v) “La Fiscalía, en el ejercicio de la acción penal, no puede apartarse de la tipicidad ni de los principios del derecho penal sustantivo, y el control judicial que se ejerce sobre los preacuerdos no constituye una injerencia indebida, sino un mecanismo para evitar violaciones manifiestas al debido proceso, al principio de legalidad de la pena, a la tipicidad, a la culpabilidad, a la antijuridicidad material y a otras garantías fundamentales. Es por esto, que el principio de legalidad como elemento esencial del debido proceso (art. 29 superior), se denota como el marco jurídico implacable que debe observar el juez en procura de impartir justicia material y aproximarse a la verdad real, controlando así las facultades que han sido otorgadas al extremo acusador cuando desborda los límites al pactar culminación de la actuación penal con el procesado.”. 
+(vi) “En consecuencia, la jurisprudencia ha reiterado que cualquier ajuste en la calificación jurídica dentro de un preacuerdo debe estar debidamente justificado, bien sea por estricta adecuación típica conforme al principio de legalidad, o como resultado del beneficio negociado, siempre dentro de los límites legales. De este modo, los preacuerdos solo son válidos cuando la conducta está previamente tipificada, la sanción está legalmente prevista y las rebajas o beneficios se ajustan estrictamente a los parámetros fijados por la ley en los artículos 351 y 352, y excepcionalmente pueden sobrepasar ese límite siempre que se respeten el principio de proporcionalidad y aquellos que permean esta clase de terminaciones anticipadas.”.
+
+---
+
+# PROVIDENCIA DDP 8456
+
+**Número de Providencia (DDP 8456):** SP047-2026
+**Radicación (DDP 8456):** 67137
+
+**Lista de Temas (DDP 8456):**
+(i) Los hechos jurídicamente relevantes. 
+(ii) La congruencia. 
+(iii) El secuestro simple. 
+(iv) La coautoría. 
+(v) “Ha explicado esta Corporación que, tratándose de la coautoría impropia, necesario es verificar la existencia de: i) un acuerdo o plan común; ii) división de funciones y; iii) que el aporte sea trascendente en la fase ejecutiva del delito.”. 
+(vi) “Cuando la configuración del delito permite la división del trabajo siguiendo un plan común, como puede ocurrir, por ejemplo, en un homicidio o un secuestro, es posible que varios coautores realicen aportes esenciales y coordinados para la consumación del delito, aunque cada uno ejecute una parte diferente de la conducta típica. En estos casos, la coautoría se fundamenta en el co-dominio del hecho y en la voluntad común de realizar el delito.”. 
+(vii) “Frente a esta figura jurídica, la Sala ha señalado que es accesoria a la autoría porque el cómplice no realiza el tipo penal y carece del dominio funcional de los hechos, limitando su intervención a facilitar la conducta del autor en la realización del delito. Su actuación, en consecuencia, se limita a favorecer un hecho ajeno.”. 
+(viii) “Esta contribución del agente puede ser intelectual, psíquica, física o técnica y debe poder elevar «la posibilidad de producción del hecho antijurídico, esto es, la demostración de un riesgo adicional, relevante y atado a la causalidad, para el bien jurídico tutelado y el incremento de la oportunidad de éxito para los ejecutores».”.
+
+---
+
+# PROVIDENCIA DDP 8457
+
+**Número de Providencia (DDP 8457):** SP029-2026
+**Radicación (DDP 8457):** 60749
+**Decisión (DDP 8457):** SE ABSUELVE EN IMPUGNACIÓN ESPECIAL.
+
+**Lista de Temas (DDP 8457):**
+(i) “De la coautoría y el concierto para delinquir”. 
+(ii) “Así pues, son tres las características infaltables para la configuración del delito de concierto para delinquir: …”. 
+(iii) “Por otro lado, la naturaleza dogmática de la coautoría es servir como dispositivo amplificador del tipo penal para los casos en que la descripción del comportamiento establece un sujeto activo singular. Esto no ocurre en el delito de concierto para delinquir, pues el sujeto activo es plural, no requiere amplificar el tipo penal.”. 
+(iv) “Entonces, el cotejo científico de voces a través de una prueba especto-gráfica es un mecanismo ideal para la identificación de los interlocutores de una conversación telefónica. Pero ello no excluye que, como en el presente evento, ese conocimiento también pueda lograrse por otros elementos probatorios.”. 
+(v) La “tal” fuente humana. 
+(vi) “La Corte ha establecido como criterio orientador la posibilidad de probar los elementos constitutivos de un delito -como es el acuerdo de voluntades para probar el concierto o, incluso, el dolo- a través de inferencias lógicas fundadas en operaciones indiciarias.”. 
+(vii) “La ponderación del indicio exige al juez la contemplación de todas las hipótesis confirmantes e invalidantes de la deducción, porque solo cuando la balanza se inclina seriamente hacia las primeras y descarta las segundas, puede afirmarse la gravedad de una prueba que por naturaleza es contingente. Rechazar la otra posibilidad lógica que puede ofrecer el hecho indicador, sin cerciorarse de que ella en realidad haya sido objeto de examen y desestimada expresa o tácitamente por el juez, solo porque este ya tiene sus propias conclusiones sin atención a un juicio lógico integral, sería alentar un exceso de omnipotencia contrario al razonable acto de soberanía judicial en la evaluación de la prueba, que consiste precisamente en el ejercicio de una discrecionalidad reglada en la valoración probatoria.”. 
+(viii) “El tribunal incurre en una petición de principio. Esta se predica cuando la conclusión que se pretende demostrar ya está implícita o explícita en las premisas. En otras palabras, la prueba se valora asumiendo como cierta la hipótesis acusatoria.”.
+
+---
+
+# PROVIDENCIA DDP 8458
+
+**Número de Providencia (DDP 8458):** AEP011-2026
+**Radicación (DDP 8458):** 00411
+**Decisión (DDP 8458):** SENTIDO DEL FALLO CONDENATORIO EN EL PROCESO ADELANTADO EN CONTRA DE CARLOS ALBERTO VARGAS BAUTISTA, EXMAGISTRADO DEL TRIBUNAL CONTENCIOSO ADMINISTRATIVO DE CUNDINAMARCA.
+
+**Lista de Temas (DDP 8458):**
+(i) Prevaricato por acción. 
+(ii) Prevaricato por omisión. 
+(iii) Cohecho propio.
+
+---
+
+# PROVIDENCIA DDP 8459
+
+**Número de Providencia (DDP 8459):** sentenciado. SEP 013-2026
+**Radicación (DDP 8459):** 00518
+**Decisión (DDP 8459):** SENTENCIA CONDENATORIA PROFERIDA EN CONTRA DE JOSÉ LEONIDAS BUSTOS MARTÍNEZ, EXPRESIDENTE CSJ. SMS DEL 25.2.2026
+
+**Lista de Temas (DDP 8459):**
+(i) Concierto para delinquir. 
+(ii) Cohecho propio. 
+(iii) Tráfico de influencias. 
+(iv) La posición distinguida del
+
+---
+
+# PROVIDENCIA DDP 8460
+
+**Número de Providencia (DDP 8460):** AP219-2020
+**Radicación (DDP 8460):** 56097
+
+**Lista de Temas (DDP 8460):**
+(i) “La violación directa de la ley denunciada por el demandante se configura cuando a partir de la apreciación de los hechos legal y oportunamente acreditados dentro del diligenciamiento, los falladores omiten aplicar la disposición que se ocupa de la situación en concreto, en cuanto yerran acerca de su existencia —falta de aplicación o exclusión evidente—, realizan una equívoca adecuación de los hechos probados a los supuestos que contempla el precepto —aplicación indebida—, o le atribuyen a la norma un sentido que no tiene o le asignan efectos diversos o contrarios a su contenido —interpretación errónea—.”. 
+(ii) “Sin importar la especie de quebranto directo de la preceptiva sustancial, el yerro de los juzgadores recae sobre la normativa, circunstancia que ubica el debate en un ámbito estrictamente jurídico, sea porque se dejó de lado el precepto regulador de la situación específica demostrada, porque el hecho se ajusta a una disposición estructurada con supuestos distintos a los establecidos, o bien, porque se desborda el entendimiento propio de la norma aplicable al caso concreto, todo lo cual exige del censor la aceptación de la realidad fáctica declarada en las instancias.”. 
+(iii) “La violación directa de la ley la hizo consistir el demandante en la indebida utilización del artículo 68A de la Ley 599 de 2000, que prohíbe la concesión de subrogados a quienes incurran en concierto para delinquir agravado, así como la inaplicación del artículo 63 del mismo estatuto que permite la suspensión de la ejecución de la pena para ese delito en la modalidad simple porque los sentenciados aceptaron esta última modalidad delictiva y no la agravada como dedujo erradamente el Tribunal.”. 
+(iv) “Lo anterior porque la negativa de las instancias a conceder la suspensión condicional de ejecución de la pena —artículo 63 del C.P.— obedeció a la necesidad de atender la prohibición contenida en el artículo 68A del estatuto penal, según la cual dicho subrogado no procede frente al delito de concierto para delinquir agravado que fue imputado y aceptado por los sentenciados, como se aprecia en la audiencia de verificación del preacuerdo en la que se declararon culpables del delito materia de imputación —concierto para delinquir agravado— a cambio de que se les impusiera la pena correspondiente a la modalidad simple del dicho tipo penal.”. 
+(v) “El acuerdo celebrado entre la Fiscalía y los sentenciados, al tenor del artículo 350 inciso primero del Código de Procedimiento Penal, equivale al escrito de acusación, por manera que el juez de conocimiento, tal como sucede con la acusación radicada en el trámite ordinario, no puede dictar sentencia bajo una calificación jurídica distinta a la fijada por la Fiscalía y admitida por el acusado, salvo que se afecten garantías fundamentales, pues la separación de las funciones de acusación y juzgamiento, orientada a garantizar la imparcialidad judicial, impide que se efectúe un control material sobre la acusación en tanto el legislador no previó esa posibilidad.”.
+
+---
+
+# PROVIDENCIA DDP 8461
+
+**Número de Providencia (DDP 8461):** AP697-2026
+**Radicación (DDP 8461):** 62593
+
+**Lista de Temas (DDP 8461):**
+(i) “En primer lugar, son notorias las deficiencias técnicas en la postulación de los cargos enunciados. A manera de ejemplo, el primero lo ventila por la causal primera de casación, por inaplicación del artículo 7 del CPP. Esta vía de ataque consagra la violación directa de la ley sustancial y parte de que el censor acepta los hechos dados por probados por las instancias. Es decir, se limita a una cuestión de puro derecho, cuyas modalidades son: 
+(i) la falta de aplicación, 
+(ii) la aplicación indebida o 
+(iii) la interpretación errónea.”. 
+(ii) “En efecto, la debida fundamentación de un cargo por la causal tercera de casación debe precisar si es que los falladores supusieron u omitieron una prueba -falso juicio de existencia-, o que una evidencia fue distorsionada en la fase de apreciación (adición, cercenamiento o tergiversación) -falso juicio de identidad-, o que los juzgadores erraron en la valoración de las pruebas -falso raciocinio-.”. 
+(iii) “Si lo pretendido era sustentar un falso juicio de identidad, su debida postulación impone la carga de señalar, en concreto, cuál fue la prueba cuyo contenido se distorsionó, agregó o cercenó. Así mismo, indicar lo que ella decía objetivamente y demostrar que el entendimiento que del medio de conocimiento obtuvo el juzgador fue distinto. Lo anterior pasa por realizar un ejercicio de confrontación que, a la manera de una doble columna, reproduce en la primera lo que textualmente dijo la prueba y en la segunda lo que se le hizo decir, para destacar luego la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido el error, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(iv) “Por el contrario, si lo que quería era postular un falso raciocinio, debió precisar cuál o cuáles son las evidencias en las que recayó el yerro, qué dijeron las instancias sobre ellas, cuál fue la máxima de la experiencia, postulado lógico o ley científica aplicada incorrectamente o desconocida, así como la trascendencia del dislate.”.
+
+---
+
+# PROVIDENCIA DDP 8462
+
+**Número de Providencia (DDP 8462):** SP038-2026
+**Radicación (DDP 8462):** 65657
+**Decisión (DDP 8462):** SMS DEL 26.2.2026
+
+**Lista de Temas (DDP 8462):**
+(i) “Del dispositivo amplificador del tipo de la tentativa de cara al delito de homicidio”. 
+(ii) “La Sala ha sostenido que la conducta punible bajo el dispositivo amplificador de la tentativa puede aún presentarse en el caso de que la víctima haya resultado ilesa, sin que al efecto tenga trascendencia la naturaleza de las lesiones o la escasa incapacidad médica, pues lo que cuenta es la intención del agente y la acción dirigida contra la vida ajena, que es puesta en peligro o riesgo, sin que la lesión resultare factor definitorio …”. 
+(iii) “Finalmente, la tentativa reclama que el resultado típico pretendido por el sujeto activo no se configure «por circunstancias ajenas a su voluntad», por ejemplo, por la intervención obstructiva de un tercero o circunstancias fortuitas. Si lo que impide la efectiva consumación del delito es la voluntad del agente, el curso causal carecerá de relevancia penal a menos que, en su desarrollo, haya incurrido en comportamientos revestidos de tipicidad autónoma.”.
+
+---
+
+# PROVIDENCIA DDP 8463
+
+**Número de Providencia (DDP 8463):** AP695-2026
+**Radicación (DDP 8463):** 71679
+
+**Lista de Temas (DDP 8463):**
+(i) “De ahí que el primer aspecto que debe resolver una autoridad judicial, antes de pronunciarse sobre el asunto sometido a su consideración, es si se encuentra legalmente facultada para conocerlo, pues lo contrario no solo comportaría la vulneración del derecho fundamental al debido proceso, sino también el desconocimiento de los postulados que se derivan del principio de legalidad, eje central del derecho penal.”. 
+(ii) “La definición de competencia constituye, entonces, el mecanismo previsto en el ordenamiento jurídico para, en caso de duda, precisar, de manera perentoria y definitiva, cuál de los distintos jueces o magistrados es el llamado a conocer de una determinada actuación o fase procesal, cuando se suscita duda o controversia al respecto.”. 
+(iii) “En relación con este punto, la Sala precisó en el auto CSJ AP2863-2019, 17 de julio de 2019, rad. 55616, reiterado en CSJ AP1720-2023, que cuando se suscita una disputa sobre la competencia del funcionario judicial para conocer de una actuación, esto es, cuando el juez, las partes o los intervinientes discrepan acerca de quién debe asumir el conocimiento del asunto, pueden presentarse dos escenarios: …”. 
+(iv) “En tal contexto, el funcionario que advierta la posible incompetencia debe convocar la audiencia respectiva y, en su desarrollo, 
+(i) manifestar dicha circunstancia; 
+(ii) correr traslado a las partes e intervinientes para que se pronuncien; y 
+(iii) disponer la remisión del proceso al despacho considerado competente, si existe consenso, o enviarlo a esta Corporación cuando se configure una controversia, conforme fue reiterado en el auto CSJ AP1720-2023.”. 
+(v) “En materia penal y para la fase de juzgamiento, el artículo 43 ejusdem establece que es competente el juez del lugar donde ocurrió el delito. La misma disposición prevé que, cuando no sea posible determinar dicho lugar, cuando el hecho se haya realizado en varios sitios, en uno incierto o en el extranjero, la competencia se fija por el lugar donde la Fiscalía formule la acusación, esto es, donde se encuentren los elementos fundamentales de la misma.”. 
+(vi) “Ahora bien, la jurisprudencia reiterada de la Sala ha precisado que el delito de estafa se consuma cuando se materializa la defraudación patrimonial perseguida mediante el engaño, con independencia del lugar o momento en que este se despliegue, esto es, en el sitio donde el agente incorpora a su patrimonio los bienes o recursos que hasta entonces pertenecían a la víctima …”.
+
+---
+
+# PROVIDENCIA DDP 8464
+
+**Número de Providencia (DDP 8464):** SP037-2026
+**Radicación (DDP 8464):** 62821
+
+**Lista de Temas (DDP 8464):**
+(i) “La estructura típica del delito de homicidio y su agravación conforme al numeral 4 del artículo 104 del Código Penal”. 
+(ii) “Criterio diferenciador entre las figuras de coautoría y determinación”. 
+(iii) “… el determinador debe actuar dolosamente. Su dolo debe estar dirigido, de un lado, a la provocación de la resolución delictiva, y de otro, a la ejecución de la conducta típica por el autor material, incluidos los elementos subjetivos y la realización del resultado típico (doble dolo).”.
+
+---
+
+# PROVIDENCIA DDP 8465
+
+**Número de Providencia (DDP 8465):** AP279-2026
+**Radicación (DDP 8465):** 67658
+
+**Lista de Temas (DDP 8465):**
+(i) “La Corte no examinará los requisitos de admisibilidad de la demanda de casación presentada por la defensa de ERNESTO VELÁSQUEZ VARGAS, debido a que la Sala Penal del Tribunal Superior de Cúcuta incurrió en una irregularidad sustancial que comprometió el debido proceso: la omisión sin debida justificación de la audiencia de lectura de la sentencia de segunda instancia.”. 
+(ii) “La obligatoriedad de la audiencia de lectura de la sentencia de segunda instancia”. 
+(iii) “La notificación en estrados de la sentencia de segunda instancia, cuya obligatoriedad se analiza en esta oportunidad, refleja la esencia de esa arquitectura procesal. En particular, el artículo 179 de la Ley 906 de 2004, modificado por la Ley 1395 de 2010, impone al juez plural la obligación de convocar la audiencia dentro de los diez días siguientes a la adopción del fallo. El legislador, en el trámite del proyecto de Ley 197 de 2008 (Senado) y 255 de 2009 (Cámara), que reformó ese precepto, no cuestionó su necesidad, sino el plazo para su realización, lo que ratifica su trascendencia en el proceso.”. 
+(iv) “Así, la omisión de la audiencia de lectura del fallo de segundo grado sin una razón legítima –como, por ejemplo, la emergencia sanitaria por la pandemia de Covid-19– vulnera el debido proceso. Esta etapa es esencial, pues garantiza la secuencia lógica y jurídica de la actuación, preserva el sistema de notificaciones y define el cómputo de términos para interponer y sustentar el recurso de casación. El artículo 158 de la Ley 906 de 2004 exige autorización legal o judicial para prorrogar o restituir términos, lo que ratifica la obligatoriedad de la notificación en estrados y, en principio, impide sustituirla sin afectar la validez del asunto.”. 
+(v) “Ante tal panorama, la Corte declarará la nulidad de lo actuado a partir de la notificación electrónica de la sentencia de segunda instancia dictada el 22 de agosto de 2024 por el Tribunal Superior de Cúcuta. En consecuencia, ordenará a esa autoridad convocar a las partes e intervinientes, verificar su asistencia y asegurar la adecuada comunicación del fallo. Para ello, la Sala concederá un plazo de quince días contados desde la fecha en que la Secretaría comunique este pronunciamiento.”.
+
+---
+
+# PROVIDENCIA DDP 8466
+
+**Número de Providencia (DDP 8466):** SEP 021-2026
+**Radicación (DDP 8466):** 40647
+**Decisión (DDP 8466):** SMS DEL 27.2.2026
+
+**Lista de Temas (DDP 8466):**
+Sentencia condenatoria de Primera Instancia al excongresista EFRAÍN TORRADO GARCÍA por la presunta comisión del delito de interés indebido en la celebración de contratos. Proceso por el llamado 'Carrusel' de la contratación en Bogotá.
+
+---
+
+# PROVIDENCIA DDP 8467
+
+**Número de Providencia (DDP 8467):** AP507-2026
+**Radicación (DDP 8467):** 71550
+
+**Lista de Temas (DDP 8467):**
+(i) “La Sala resuelve el recurso de queja presentado por ALFONSO RAFAEL GÓMEZ NIETO contra la decisión adoptada en audiencia de juicio oral el 11 de diciembre de 2025. En esa oportunidad, la Sala Penal del Tribunal Superior del Distrito Judicial de Bogotá no habilitó el recurso de apelación contra el rechazo de plano a su solicitud de nulidad.”. 
+(ii) El recurso de queja. 
+(iii) “De la naturaleza de las providencias judiciales.”. 
+(iv) Las órdenes y su naturaleza jurídica.
+
+---
+
+# PROVIDENCIA DDP 8468
+
+**Número de Providencia (DDP 8468):** AP508-2026
+**Radicación (DDP 8468):** 71663
+
+**Lista de Temas (DDP 8468):**
+(i) “La Corte define la autoridad judicial competente para conocer de la audiencia innominada de cancelación de orden de captura ...”. 
+(ii) “La definición de competencia es el mecanismo previsto en el ordenamiento jurídico para determinar cuál de los distintos jueces o magistrados que reclaman o rehúsan el conocimiento de un asunto es el llamado a asumirlo. De acuerdo con los precedentes de la Sala , el incidente de definición de competencia comprende el siguiente trámite:”. 
+(iii) “De la competencia de los jueces con función de control de garantías.”. 
+(iv) “La Sala tiene decantado que cuando se ha presentado escrito de acusación el juez de garantías debe ser el del lugar donde quedó radicado el juzgamiento. Para esto se debe tener en cuenta que la competencia para asumir el asunto ya ha sido determinada …”. 
+(v) “Esta regla no es absoluta. Es posible variarla excepcionalmente, por motivos razonables que justifiquen la asignación de competencia a un juez de garantías con jurisdicción diferente a la sede del juzgamiento penal. Por ejemplo, cuando el procesado se encuentre privado de la libertad en establecimiento carcelario de lugar diferente al de la comisión de los hechos …”. 
+(vi) “Las partes al momento de seleccionar el juez con funciones de Control de Garantías para adelantar determinado asunto deben optar por el que tenga competencia en el lugar donde se presentaron los hechos o se surta el proceso en sede de conocimiento. Solo por vía de excepción, a jueces de otros lugares, cuando concurran circunstancias especiales que lo justifiquen, las cuales deberán explicarse en la audiencia respectiva.”.
+
+---
+
+# PROVIDENCIA DDP 8469
+
+**Número de Providencia (DDP 8469):** AP532-2026
+**Radicación (DDP 8469):** 70847
+**Decisión (DDP 8469):** SMS DEL 2.3.2026
+
+**Lista de Temas (DDP 8469):**
+(i) “La Sala se pronuncia sobre la procedencia del recurso de apelación interpuesto por el apoderado de Carmen Cecilia Valdés Hernández, en calidad de representante de víctimas, contra el auto proferido el 25 de agosto de 2025 por la Sala Penal del Tribunal Superior del Distrito Judicial de Cartagena, mediante el cual negó la nulidad frente a los trámites de notificación de la sentencia de segunda instancia dictada el 19 de octubre de 2023 por esa Corporación, dentro del proceso seguido contra Paola Andrea Serna Tobías por el delito de prevaricato por acción.”. 
+(ii) “De acuerdo con en el Código de Procedimiento Penal de 2004, los jueces de conocimiento tienen la función primordial de dirigir la fase de juzgamiento y de conocer los asuntos que se deriven del ejercicio de esa actividad, como el proferimiento del fallo.”. 
+(iii) “No obstante, cuando ya existe sentencia ejecutoriada, el funcionario judicial pierde la competencia de verificar la validez de lo actuado en la instancia. No hay disposición legal que autorice a los falladores resolver sobre eventuales irregularidades sustanciales ocurridas en el curso del proceso, ni estudiar la posibilidad de dejar sin efecto lo actuado por vicios en su trámite, ni desestimar una pretensión en ese sentido, pues ello implicaría un estudio de fondo sobre el asunto propuesto.”. 
+(iv) “Excepcionalmente podría pronunciarse frente al fallo, aún con posterioridad a su firmeza, por un error aritmético, en el nombre del procesado o de omisión sustancial en la parte resolutiva —art. 412 de la Ley 600 de 2000, aplicable por integración normativa del artículo 25 de la Ley 906 de 2004— …”. 
+(v) “No obstante, la solicitud elevada por el representante de víctimas no se adecua a alguno de estos eventos. Su pretensión es que se decrete la nulidad de lo actuado a partir de la ejecutoria de la sentencia absolutoria, inclusive, por una indebida notificación.”. 
+(vi) “Ahora bien, la Corte no desconoce que la notificación defectuosa impide el inicio del cómputo de los términos para interponer los recursos legales y, por ende, que la sentencia adquiera firmeza. Sin embargo, en procesos ya culminados, como el presente en más de dos años, la presunción de legalidad de la que goza la actuación solo podría desvirtuarse por irregularidades como la referida por el apoderado de Carmen Cecilia Valdés Hernández a través de la acción de tutela , siempre y cuando se interponga en un término razonable y se cumplan los requisitos para su procedencia.”.
+
+---
+
+# PROVIDENCIA DDP 8470
+
+**Número de Providencia (DDP 8470):** STP1648-2026
+**Radicación (DDP 8470):** 152510
+
+**Lista de Temas (DDP 8470):**
+(i) “De la acción de tutela contra providencias judiciales.”. 
+(ii) “De otra parte, los requisitos de carácter específico han sido reiterados en pacífica jurisprudencia a partir de la sentencia C-590 de 8 de junio de 2005, los cuales son: …”. 
+(iii) “Esos requisitos fueron inicialmente establecidos por la Corte Constitucional en la sentencia C-590 de 2005, reiterados en las decisiones T-332, T-780 y T-212 de 2006, para destacar que las acciones de tutela contra providencias judiciales solo pueden tener cabida “(…) si se cumplen ciertos y rigurosos requisitos de procedibilidad. Dentro de estos pueden distinguirse unos de carácter general, que habilitan la interposición de la tutela, y otros de carácter específico, que tocan con la procedencia misma del amparo, una vez interpuesta.” -C-590 de 2005-.”. 
+(iv) “Sobre este punto, la Sala observa que la inconformidad de la accionante no se orienta a demostrar una ausencia de competencia, falta de motivación o desconocimiento manifiesto del ordenamiento jurídico, sino a cuestionar la interpretación efectuada por la autoridad judicial respecto de los efectos procesales del desistimiento del recurso de apelación que la ahora accionante impetró, contra la decisión de negarle la libertad por vencimiento de términos.”. 
+(v) “En ese orden, la Sala observa que el debate propuesto por la accionante pretendía que, mediante la acción de hábeas corpus se resolviera una controversia procesal relativa a la libertad por vencimiento de términos y a los efectos del desistimiento del recurso. Empero, esos aspectos, por su naturaleza, son del resorte del juez natural en el proceso penal – o, como en este caso, del que ostenta la función de control de garantías –. Pero en últimas, no se evidencia una ilegalidad manifiesta o una prolongación arbitraria atribuible a una actuación abiertamente contraria a la Constitución o la ley que implique la intervención de esta Sala.”. 
+(vi) “Indirectamente la demandante controvierte la decisión del Juzgado 79 Penal Municipal con Función de Control de Garantías de Bogotá en cuanto no concedió la libertad por vencimiento de términos que en esa senda reclamada. Por esa razón, de nuevo, es necesario adelantar el tamiz de verificación de los requisitos generales de procedencia de la tutela contra providencias judiciales.”. 
+(vii) “Es que la tutela no puede erigirse en un mecanismo alternativo para reabrir o reemplazar el debate que debía surtirse ante el superior funcional. La subsidiariedad no solo exige la existencia del medio ordinario, sino su utilización diligente, sin que resulte válido abandonar voluntariamente la vía judicial dispuesta por el legislador y acudir de inmediato al juez constitucional para obtener un pronunciamiento sustitutivo.”. 
+(viii) “En esas condiciones, si la ahora accionante pretendía discutir aquella contabilización, era la apelación inicialmente promovida el mecanismo idóneo de defensa. Y si su queja se cimentó en un plazo que consideró excesivo, bien pudo pedir al despacho judicial que priorizara el asunto en garantía del derecho a la libertad, empero, desatinadamente decidió desistir de aquel medio de defensa y, por esa vía, renunciar a la controversia de aquellos razonamientos del funcionario a quo en sede de control de garantías.”.
+
+---
+
+# PROVIDENCIA DDP 8471
+
+**Número de Providencia (DDP 8471):** sentencia C-278 DE 2025. VER DDP 7902
+**Radicación (DDP 8471):** No especificado
+
+**Lista de Temas (DDP 8471):**
+Salvamento de voto en la
+
+---
+
+# PROVIDENCIA DDP 8472
+
+**Número de Providencia (DDP 8472):** SENTENCIA T- 010 DE 2026
+**Radicación (DDP 8472):** No especificado
+
+**Lista de Temas (DDP 8472):**
+“El deber de debida diligencia en la investigación disciplinaria de la violencia contra la mujer en el ámbito universitario”.
+
+---
+
+# PROVIDENCIA DDP 8473
+
+**Número de Providencia (DDP 8473):** ATP224-2026
+**Radicación (DDP 8473):** 151751
+
+**Lista de Temas (DDP 8473):**
+(i) “Sería del caso asumir el conocimiento de la demanda de tutela instaurada por JUAN ANTONIO CASADO MALDONADO, el cual manifestó que actúa como agente oficioso de ANDRÉS FABIAN HERNÁNDEZ VARGAS por la presunta transgresión de sus derechos fundamentales “al debido proceso y la administración de justicia en conexidad con el derecho de petición”, por parte de la SALA PENAL DEL TRIBUNAL SUPERIOR DE BARRANQUILLA por la presunta mora injustificada para resolver el recurso de apelación contra la sentencia condenatoria del 18 de septiembre de 2024, emitida por el Juzgado Séptimo Penal del Circuito con Función de Conocimiento de esa ciudad, si no fuera porque se observa el incumplimiento de uno de los requisitos de procedencia de la acción constitucional.”. 
+(ii) “Legitimación en la causa por activa para acudir al sendero constitucional.”. 
+(iii) “Cuando la demanda sea presentada a través de agente oficioso, se deben exponer las razones que le impiden al accionante recurrir de manera directa ante el juez constitucional en procura de solicitar la protección de sus derechos fundamentales.”. 
+(iv) “Así, una vez revisada la documentación que obra en el expediente, resulta claro que el ciudadano JUAN ANTONIO CASADO MALDONADO carece de interés para perseguir los intereses fundamentales del accionante, no cuenta con mandato especial para el ejercicio del amparo constitucional, ni tampoco justificó de manera clara y específica por qué actúa en condición de agente oficioso de ANDRÉS FABIAN HERNÁNDEZ VARGAS, a pesar de ser requerido en ese sentido.”. 
+(v) “A partir de estos lineamientos, esta Corte ha señalado, en reiterada jurisprudencia, que los elementos normativos que informan la agencia oficiosa son los siguientes …”. 
+(vi) “… es posible agenciar derechos de otros cuando su titular se encuentra imposibilitado para promover por sí mismo la tutela, pero si la calidad de agente oficioso no se acredita ni se prueba – siquiera sumariamente –, así como el apoderamiento judicial, el juez de tutela debe rechazar la demanda por falta de legitimación o interés.”. 
+(vii) “De tiempo atrás, la Sala ha venido señalando que la sola privación de la libertad en centro carcelario en manera alguna implica que no se pueda presentar la acción de tutela, en tanto, la persona recluida cuenta con la posibilidad de interponerla a través de la oficina jurídica o hacer uso del correo dispuesto por cada institución carcelaria …”.
+
+---
+
+# PROVIDENCIA DDP 8474
+
+**Número de Providencia (DDP 8474):** ATP229-2026
+**Radicación (DDP 8474):** 152411
+**Decisión (DDP 8474):** SMS DEL 3.3.2026
+
+**Lista de Temas (DDP 8474):**
+(i) “En el presente asunto, el demandante pretende que, por esta vía, se dejen sin efecto los proveídos dictados el 18 de marzo y el 11 de junio de 2025 por los Juzgados Quinto de Ejecución de Penas y Medidas de Seguridad y Séptimo Penal del Circuito, ambos de Manizales, respectivamente.”. 
+(ii) “Dicho lo anterior, como lo que se cuestiona a través de la acción constitucional de tutela son providencias judiciales, correspondería analizar en primera medida si se encuentran satisfechos los requisitos de procedibilidad de la acción de amparo contra tales decisiones.”. 
+(iii) “Sin embargo, en atención a lo manifestado por el accionante en su impugnación, advierte la Sala que existen vicios en la decisión de primer grado relacionados con la ausencia de motivación frente al reproche central formulado por el libelista.”. 
+(iv) “La Sala Penal de la Corte Suprema de Justicia  ha sostenido que son varias las modalidades bajo las cuales pueden presentarse defectos en la motivación de las providencias judiciales: …”. 
+(v) “Al examinar la motivación de la decisión de primer grado, la Sala no encuentra ningún fundamento normativo ni probatorio en el que el Tribunal hubiera sustentado su conclusión.”. 
+(vi) “En atención a ese defecto, esta Sala ordenará el retorno del expediente a la primera instancia, para que adopte la decisión que en derecho corresponda, de tal manera que pueda garantizarse la doble instancia en debida forma, pues como sucedió en este asunto, los únicos argumentos que pudo presentar al demandante fueron los mismos de su escrito inicial. Ello, debido a la falta de motivación de la sentencia.”.
+
+---
+
+# PROVIDENCIA DDP 8475
+
+**Número de Providencia (DDP 8475):** AP753-2026
+**Radicación (DDP 8475):** 71602
+
+**Lista de Temas (DDP 8475):**
+(i) “Decide la Sala de Casación Penal de la Corte Suprema de Justicia el recurso de queja presentado por MABEL WBILERMA SÁNCHEZ TOLOZA, en ejercicio de su derecho de defensa material, frente al auto de 11 de diciembre de 2025, por medio del cual la Sala Penal del Tribunal Superior de San Rosa de Viterbo, en la audiencia de acusación, rechazó de plano la solicitud de nulidad impetrada por su defensor de confianza, dentro del proceso que se adelanta en su contra por los delitos de «prolongación ilícita de privación de la libertad, falsedad ideológica en documento público y prevaricato por omisión».”. 
+(ii) “De conformidad con la línea jurisprudencial vigente, también es procedente la queja cuando se niega apelación, y no se declara desierta, por estimar que la sustentación fue indebida o deficiente, pues se habilita recurso (de queja) con el ánimo de salvaguardar el principio de doble instancia y que el superior funcional pueda decidir sobre la idoneidad de la fundamentación …”. 
+(iii) “Por consiguiente, para que el recurso de queja sea viable es necesaria la concurrencia de estos presupuestos: i) que la decisión sea susceptible de impugnación; ii) el recurso se proponga antes del vencimiento de los términos legalmente destinados para ello; iii) al recurrente le asista interés; y iv) la inconformidad haya sido sustentada en debida forma.”. 
+(iv) “El rechazo de plano se sustentó en la regla contenida en el artículo 139 numeral 1° del Código de Procedimiento Penal, que impone al juez el deber de evitar maniobras dilatorias e impartir celeridad al proceso, pues el mismo extremo procesal ya había solicitado la nulidad por afectación del derecho de defensa.”. 
+(v) Clasificación de las providencias judiciales. 
+(vi) “Esta clasificación recoge las directrices que sobre el particular han trazado la doctrina y la jurisprudencia, en el sentido que, 
+(i) la sentencia resuelve el objeto del proceso, 
+(ii) los autos definen cuestiones diversas del asunto principal, de carácter incidental o sustancial, y 
+(iii) las órdenes resuelven cuestiones de simple trámite o impulso procesal.”. 
+(vii) “En relación con las órdenes, esta Colegiatura, con sustento en la doctrina de la Corte Constitucional, ha indicado lo siguiente: …”. 
+(viii) “Así las cosas, la procedencia del recurso de apelación está condicionada por la naturaleza de la decisión adoptada por el funcionario judicial. En ese sentido, por vía de principio, si se trata de una sentencia o de un auto, el recurso procederá, pero si se está ante una orden, el recurso será improcedente.”. 
+(ix) “Deviene importante recordar que, de acuerdo con el artículo 339 del Código de Procedimiento Penal, cuando se discute la indebida fijación de los hechos jurídicamente relevantes, la parte interesada debe solicitar a la fiscalía, en caso de tener algún reparo, la aclaración, adición o corrección del escrito de acusación …”. 
+(x) “En el marco conceptual anterior, instalada la audiencia de acusación, cuando la defensa solicite la declaratoria de nulidad desde la audiencia de imputación, porque, en su criterio, en esa diligencia, la Fiscalía incurrió en defectos trascedentes en la confección o comunicación de los hechos jurídicamente relevantes, el Juez debe ser muy cuidadoso para identificar si las deficiencias denunciadas por el interesado en realidad existen y vulneran el derecho a la defensa o dan al traste con el debido proceso. Solo bajo estas condiciones tendría lugar el trámite total del incidente y la declaratoria de nulidad.”.
+
+---
+
+# PROVIDENCIA DDP 8476
+
+**Número de Providencia (DDP 8476):** SP087-2026
+**Radicación (DDP 8476):** 60324
+
+**Lista de Temas (DDP 8476):**
+(i) “El delito de tráfico de niños, niñas y adolescentes. Elementos estructurales del tipo penal”. 
+(ii) “El estándar de conocimiento que exige la ley como soporte de la decisión de condena. Reiteración de jurisprudencia”. 
+(iii) “Desde la sentencia C-336 de 2007 la Corte Constitucional delimitó el alcance de la figura de la búsqueda selectiva en base de datos. Al respecto, precisó que esta se configura cuando la autoridad accede de manera directa a sistemas que contienen información personal organizada, cuya consulta puede afectar los derechos fundamentales al habeas data e intimidad. Sin embargo, también advirtió que no todo archivo que contenga información constituye, por ese solo hecho, una base de datos.”. 
+(iv) “Por su parte, la «búsqueda selectiva en bases de datos» que contengan información confidencial referida al indiciado o imputado hace referencia «a las búsquedas focalizadas sobre un sujeto en particular, en este caso el indiciado o imputado. La confidencialidad de la información dimana del carácter personal de los datos, cuya difusión constituye una invasión a la intimidad personal o familiar de su titular. La confidencialidad es uno de los principios que regula la actividad del tratamiento de datos personales, en virtud del cual, las personas que intervengan en la recolección, almacenamiento, uso, divulgación y control de esos datos están obligadas, en todo tiempo, a garantizar la reserva de la misma, incluso después de finalizar sus relaciones con el responsable del tratamiento».”. 
+(v) “En este punto cabe reconocer que la información relativa al envío y recepción de giros de dinero se puede caracterizar como un dato personal de contenido económico, en cuanto se encuentra vinculado a personas naturales determinadas. Sin embargo, la obtención de una información de esta naturaleza no implica, por sí misma y de manera automática, el acceso a una base de datos estructurada destinada al tratamiento sistemático de información personal en los términos previstos en el artículo 244 de la Ley 906 de 2004.”. 
+(vi) La retractación del testigo. 
+(vii) “Para la utilización de esta herramienta procesal —el testimonio adjunto— y lograr la incorporación legal de una entrevista rendida por fuera del juicio oral en caso de retractación o contradicción sustancial del testigo, la Sala fijó las siguientes subreglas en la sentencia CSJ SP934-2020, 20 may. 2020, rad. 52045, reiterada en la CSJ SP1777-2025, entre otras: …”. 
+(viii) “En definitiva, una entrevista previa puede ingresar al juicio oral como testimonio adjunto siempre y cuando: …”. 
+(ix) “… llamado de atención a la Sala Penal del Tribunal Superior de Cartagena por el reconocimiento, de oficio y a favor de los procesados, de una «culpabilidad atenuada del delito en cuestión» derivada de las circunstancias de ignorancia y pobreza extrema, consagradas en el artículo 56 del Código Penal. Para el ad quem el estado de precariedad económica en el que vivían RÉGULO ALFONSO ALVIS ARRIETA e HIGINIA GUTIÉRREZ DE VARGAS «influyeron en el determinismo o ejecución de la conducta punible por la cual se emite condena».”. 
+(x) La violencia contra la mujer por razones de género.
+
+---
+
+# PROVIDENCIA DDP 8477
+
+**Número de Providencia (DDP 8477):** AHP027-2026
+**Radicación (DDP 8477):** 72031
+
+**Lista de Temas (DDP 8477):**
+(i) El hábeas corpus. 
+(ii) “En el presente asunto, el actor acude al hábeas corpus al considerar en síntesis que con ocasión de la orden de captura con fines de extradición proferida en su contra por la Fiscalía General de la Nación se ha configurado una privación ilegal de la libertad.”. 
+(iii) “En consecuencia, no es acertada la postura del accionante en cuanto se encuentra ante una privación ilegal de su libertad, pues como se explicó previamente, la orden de captura obedeció a una solicitud formal realizada por la Embajada de la República Bolivariana de Venezuela, quien solicitó su captura y formalizó el pedido de extradición, para lo cual allegó las notas verbales correspondientes. Es decir, su reclusión se encuentra fundamentada.”.
+
+---
+
+# PROVIDENCIA DDP 8478
+
+**Número de Providencia (DDP 8478):** AP868-2026
+**Radicación (DDP 8478):** 62715
+**Decisión (DDP 8478):** SMS DEL 4.3.2026
+
+**Lista de Temas (DDP 8478):**
+(i) “En torno a las nulidades, la jurisprudencia de esta Sala ha precisado que, quien la promueve a través de la causal segunda debe proponer una argumentación con sujeción a  los principios de taxatividad, acreditación, protección, convalidación, instrumentalidad, trascendencia y residualidad . Si se evidencia que el defecto denunciado no alcanza a afectar en grado suficiente el desarrollo de la actuación, ni alterar lo decidido en el fallo censurado, no hay lugar a la admisión del reproche.”. 
+(ii) “Como se ha dicho por esta Corte, la declaración del vicio y sus efectos está atada a la comprobación cierta de yerros insalvables de garantía o de estructura, que hagan que la actuación y la decisión de segunda instancia pierdan toda validez formal y material, por lo que, corresponde al libelista expresar, conforme al principio de taxatividad, la irregularidad sustancial que afecta la actuación, determinar la forma en que ella rompe la estructura del proceso o lesiona las garantías de los intervinientes,  así como la fase en la que se produjo, y demostrar que ninguno de los correctivos que se erigen alrededor de la invalidación de la actuación ha operado en el caso concreto.”. 
+(iii) “A ello se suma que esta Corte  ha sostenido un criterio pacífico en el cual advierte que la participación de un funcionario en quien eventualmente concurra una causal de impedimento o de recusación no declarada, no genera por sí misma y sin más, la invalidez de lo actuado, entre otras razones, porque tampoco es suficiente por sí misma para entender que se afectó la imparcialidad.”. 
+(iv) “Por lo demás, el cargo en su fondo se verifica artificioso, pues, parte de asumir que sólo con verlos en cámara podrían las partes conocer quiénes eran el juez y fiscal que intervenían en el asunto, pasando por alto que, además de presentarse de forma oral al inicio de las diligencias, las actas de estos y otros actos anteriores verificaban su identidad.”. 
+(v) “Mas allá de verificar que tanto el juez como el fiscal, solo activaron el audio, no la cámara, en las diferentes audiencias en las que participaron, tal proceder no es suficiente para declarar la nulidad de lo actuado, por lo demás, sí es claro que el libelista no identificó un perjuicio concreto y real al derecho de defensa o debido proceso.”. 
+(vi) “Finalmente, que, en un caso similar al presente, la Sala Penal del Tribunal Superior de Bogotá decidiera anular lo actuado a partir del momento en que se presentó el yerro, no vulnera el derecho a la igualdad, como lo pregona la defensa. La Corte  ha precisado que, acorde con el artículo 228 de la C.N., los jueces gozan de total autonomía judicial para decidir los asuntos sometidos a consideración, sin que lo dilucidado en otro proceso, lo vincule para resolver después en determinada forma, entre otras razones, porque las circunstancias no son necesariamente iguales.”. 
+(vii) “Tampoco cumple las exigencias mínimas de un reproche por nulidad. El recurrente plantea la falta de congruencia entre la imputación, la acusación y el fallo, por cuanto, considera que en la acusación se detalló que los hechos tuvieron ocurrencia en el año 2016; sin embargo, los jueces de primera y segunda instancias condenaron con fundamento en que los mismos se presentaron “en julio o agosto” de ese año.”.
+
+---
+
+# PROVIDENCIA DDP 8479
+
+**Número de Providencia (DDP 8479):** AP883-2026
+**Radicación (DDP 8479):** 71857
+
+**Lista de Temas (DDP 8479):**
+(i) “Del trámite de la definición de competencia”. 
+(ii) “… la Sala en auto AP2863-2019 del 17 de julio de 2019 dentro del radicado 55616 , varió su jurisprudencia en torno al trámite de la impugnación de competencia que debe surtirse frente al artículo 54 del Código de Procedimiento Penal. En ese sentido, precisó que antes de la remisión del asunto a esta Sala debe generarse una controversia en torno al funcionario judicial competente, cuyo trámite es el siguiente: …”. 
+(iii) “Esta Sala ha indicado que los artículos 43 y 52 del Código de Procedimiento Penal regulan situaciones diferentes en las que se define la competencia, sin que pueda advertirse colisión, confrontación, confusión o ambigüedad entre ambas disposiciones legales (CSJ AP5569-2022, radicado. 62761, 30 nov. 2022 retomando las consideraciones de CSJ AP, radicado. 41532, 19 jun. 2013), pues: …”. 
+(iv) “De esta forma, tratándose de la comisión de varios delitos, la regla que se debe aplicar para definir la competencia es la dispuesta en el artículo 52 de la Ley 906 de 2004, la que, al referirse al juzgamiento de delitos conexos, señala que de ellos conocerá: …”. 
+(v) “El primer elemento a analizar entonces es la jerarquía del juez. …”. 
+(vi) “… el segundo aspecto a analizar es el lugar de ocurrencia del delito más grave. …”. 
+(vii) “El siguiente criterio es el lugar en donde se haya realizado el mayor número de delitos. …”. 
+(viii) “… se impone acudir al último criterio del artículo 52 del C.P.P. que señala que la competencia se establece por el lugar en donde se haya producido la primera aprehensión o donde se haya formulado primero la imputación.”.
+
+---
+
+# PROVIDENCIA DDP 8480
+
+**Número de Providencia (DDP 8480):** SP061-2026
+**Radicación (DDP 8480):** 60599
+
+**Lista de Temas (DDP 8480):**
+(i) La “extinción de la acción penal por muerte”. 
+(ii) “El primer reproche tiene que ver con la omisión de autorizar el testimonio de la víctima Sonia Yolanda Moncayo, pues a pesar de haber sido solicitado, el juez no se pronunció sobre su pertinencia, utilidad y admisibilidad.”. 
+(iii) “Si bien el a quo erró porque no se pronunció sobre la solicitud probatoria de la Fiscalía, ni la parte, ni el apoderado de víctima, pudiendo hacerlo, solicitaron la corrección de esta omisión en el momento procesal oportuno. Tampoco interpusieron los recursos que la ley establece para ello. Con ello, el demandante convalidó el error sobre el cual guardó silencio durante el proceso.”. 
+(iv) “La segunda inconformidad alegada en la demanda se sustenta en la supuesta negación de las pruebas solicitadas por la representación de víctimas. En el libelo se sostiene que a pesar de habérsele permitido descubrirlas, se le señaló que ellas sólo podían ser pedidas por la Fiscalía. Para la Corte, esta alegación no se compadece con irregularidad procesal alguna.”. 
+(v) “La jurisprudencia de la Sala tiene decantado que la intervención de las víctimas en el desarrollo del proceso regido bajo la Ley 906 de 2004, debe garantizar la igualdad de condiciones entre la defensa y la Fiscalía. Esta perspectiva tiene estribo en la sentencia C- 454 de 2006, a través de la cual la Corte Constitucional las facultó para que pudiesen presentar solicitudes probatorias, pero siempre que sean canalizadas a través del ente acusador. Así se puntualizó: …”. 
+(vi) “En un tercer reproche se alega la vulneración de las reglas básicas del interrogatorio cruzado durante la recepción del testimonio de la investigadora Bertha Echavarría.”. 
+(vii) La intervención del Juez en desarrollo de los interrogatorios. 
+(viii) “La actuación del ad quem estuvo encaminada a corregir el yerro de congruencia, delimitando la discusión a los hechos jurídicamente relevantes presentados en la audiencia de imputación. Como innumerables veces ha dicho la Corte, estos deben permanecer invariables desde ese punto hasta la emisión del fallo. Al respecto, la Sala ha decantado las siguientes reglas: …”. 
+(ix) “Adicionalmente, una vez admitida la demanda de casación para su estudio de fondo, el apoderado de ESMERALDA MARÍA SAYEGH ÁLVAREZ allegó al Despacho un memorial. Informó que el conflicto litigioso suscitado entre los herederos de Blanca Adela y Khamis Sayegh, se resolvió de común acuerdo por medio de contrato de transacción. Este fue firmado por Diego Díaz Álvarez y sus hermanos ante notario el día 20 de junio de 2020. La cláusula 2.1 contempló como obligación a cargo de Diego Díaz desistir del presente recurso de casación. No obstante que sus hermanos cumplieron con las obligaciones pactadas, Diego Díaz desconoció lo acordado y continuó sus pretensiones ante esta instancia extraordinaria.”.
+
+---
+
+# PROVIDENCIA DDP 8481
+
+**Número de Providencia (DDP 8481):** AP722-2026
+**Radicación (DDP 8481):** 63316
+**Decisión (DDP 8481):** SMS DEL 5.3.2026
+
+**Lista de Temas (DDP 8481):**
+(i) “Tratándose de la violación directa de la ley sustancial, la labor de demostración del vicio debe centrarse en la acreditación de un yerro de juicio respecto del precepto que se ocupa de regular el supuesto fáctico. Así, se ha de evidenciar que, demostrada una situación concreta a la que corresponde una específica institución normativa, el juzgador seleccionó una norma que no era la llamada a gobernar el asunto (aplicación indebida). U omitió otra que sí resolvía los extremos de la relación jurídico procesal (falta de aplicación o exclusión evidente). O, habiéndola seleccionado correctamente, al aplicarla al caso le atribuyó un sentido jurídico que no tiene o le extendió consecuencias contrarias a su naturaleza jurídica (interpretación errónea).”. 
+(ii) “El censor ofreció la lógica argumentativa correcta de la causal de casación escogida, pues acudió a la violación directa de la ley sustancial para cuestionar la dosificación punitiva. En la sustentación aseguró que la hermenéutica aplicada por los falladores fue equivocada, porque a pesar de reconocer que el asunto finalizó de manera anticipada por aceptación de cargos, no aplicaron el criterio jurídico jurisprudencial que ello conllevaba. Paso seguido, el demandante sustentó el criterio jurídico que considera más idóneo desde el plano interpretativo, pero que, como se pasará a exponer, no es el adecuado en el presente caso.”. 
+(iii)  “El allanamiento a cargos nace de la voluntad unilateral del implicado de aceptar su responsabilidad penal, renunciando a la realización de un juicio público. A cambio de ello, el ordenamiento le garantiza una disminución de la pena correspondiente a la conducta por la que ha sido vinculado a la actuación. Se trata de uno de los institutos por medio de los cuales «se consigue definir la situación jurídica de los ciudadanos en plazos razonables y aminorar la carga estatal de tramitar asuntos de relevancia penal a través de decisiones producto de la terminación de juicios orales».”. 
+(iv) “La Sala ha sostenido que el beneficio que recibe el procesado por aceptar su responsabilidad penal, dependerá de la oportunidad procesal en la que tenga lugar dicha aceptación. De modo que, «si el acto ocurre en la formulación de imputación -artículo 288 Ley 906 de 2004- el descuento punitivo será hasta de la mitad de la pena imponible -art. 351 ibidem. Si la aceptación de cargos tiene lugar en la audiencia preparatoria -art. 356 ib.-, la sanción se reducirá hasta en la tercera parte. Y, por último, si se verifica al inicio de la audiencia del juicio oral, el enjuiciado tendrá derecho a la rebaja de una sexta parte -art. 367 ídem-».”. 
+(v) “A partir de las normas citadas es claro que el último momento procesal que tiene el procesado para aceptar cargos y recibir una rebaja de pena por ello es al inicio de la audiencia de juicio oral. Una vez iniciada la práctica probatoria, esta oportunidad caduca.”. 
+(vi) “La Sala ha sostenido que quien invoca el error de hecho por falso raciocinio debe demostrar que la valoración del fallador sobre el medio de prueba desconoció las reglas de la sana crítica. Esto es, que desconoció las pautas de la lógica, las leyes de la ciencia o las de la experiencia. Por lo tanto, tras haber identificado el medio probatorio sobre el cual recae el reproche, el demandante debe señalar qué dice concretamente, qué se infirió de él en la sentencia atacada y cuál fue el mérito valorativo otorgado con desconocimiento de aquellos lineamientos.”. 
+(vii)  “También se exige al censor determinar el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en la decisión impugnada. Se debe indicar cuál debió ser la consideración correcta e identificar la norma de derecho sustancial que merced al yerro resultó excluida o indebidamente aplicada.”. 
+(viii) “(…) la libertad probatoria privilegia a las partes, por cuanto facilita el ejercicio adversarial propio de nuestro sistema procesal penal al consentir que los aspectos sustanciales objeto del debate se acrediten a través de cualquier elemento de convicción. Por ello, el órgano jurisdiccional está convocado a examinar las pruebas a partir de su poder suasorio. En otras palabras, le corresponde al juez otorgarles el mérito o valor que pueda deducirse de su contenido, con el fin de determinar su grado de persuasión y la capacidad intrínseca de lograr o no el fin perseguido con su práctica».”. 
+(ix) “Desde luego, la Corte no desconoce que ciertos medios de conocimiento constituyen la mejor evidencia de los ingredientes de la infracción. Lo ideal es que sean demostrados en juicio mediante el artefacto mismo, el dictamen que constate su aptitud funcional y la certificación de existencia o inexistencia del permiso expedida por el Departamento de Control de Armas. Pero la noción de mejor evidencia no puede confundirse con la de única evidencia, pues ello contrariaría el referido principio de libertad probatoria.”.
+
+---
+
+# PROVIDENCIA DDP 8482
+
+**Número de Providencia (DDP 8482):** AP704-2026
+**Radicación (DDP 8482):** 65449
+
+**Lista de Temas (DDP 8482):**
+(i) “El falso raciocinio tiene ocurrencia cuando el juzgador observa la prueba en su integridad, pero al valorarla desconoce los postulados de la sana crítica, es decir, una concreta ley científica, un principio lógico o una máxima de la experiencia.”. 
+(ii) “A efectos de acreditar la existencia del yerro, la censura debe señalar la prueba o inferencia en la cual recayó el error. Posteriormente, tendrá que identificar el principio lógico, la máxima de experiencia o el postulado científico que, en concreto, el juzgador desconoció en el proceso de valoración probatoria, con indicación clara y precisa de las razones por las cuales su aplicación resultaba necesaria para la corrección de la conclusión cuestionada en el caso concreto.”. 
+(iii) “En tanto referente de valoración probatoria, las reglas de la experiencia no pueden invocarse de cualquier manera. La construcción de una máxima fundada en el ordinario devenir de los acontecimientos de la vida en sociedad requiere de una estructura general y abstracta, definida por la Corte en los siguientes términos: …”. 
+(iv) “Por lo tanto, el punto de partida formal para analizar la incursión en falso raciocinio, por desconocimiento de las máximas de la experiencia, es la formulación de una proposición con estructura de regla, apta para ser aplicada en términos generales y abstractos, con pretensión de universalidad. Sólo a partir de tal referente de valoración es dable verificar si, al analizar el mérito de las pruebas, el razonamiento del juzgador deviene falso.”. 
+(v) “De otro lado (cfr., entre otros, CSJ AP 25 mar. 2015, rad. 45235), la lógica concierne a la corrección del proceso completo del pensamiento. Tal disciplina comprende, entonces, el estudio de los métodos y principios que se usan para distinguir el razonamiento bueno (correcto) del malo (incorrecto). Los errores de razonamiento se denominan falacias o silogismos aparentes o sofísticos, los cuales no implican cualquier yerro en el raciocinio o una idea falsa, sino errores típicos en las relaciones lógicas entre las premisas y la conclusión.”. 
+(vi) “A su vez, en tanto componente de la sana crítica, la ciencia corresponde a un conjunto de conocimientos obtenidos mediante la observación y el razonamiento, sistemáticamente estructurados, de los que se deducen principios y leyes generales. Tales máximas científicas, a partir de las cuales se generalizan e interpretan los fenómenos, permiten su explicación y comprensión en sus distintos ámbitos. Para que el sistema de conocimientos en un área de la ciencia deduzca una ley o un principio con carácter universal, los métodos cognoscitivos dirigidos a ese fin deben encontrar fundamento en conceptos exactos, cuya veracidad sea comprobable y demostrable mediante métodos aceptados y estandarizados (cfr., entre otras, CSJ SP 15 sept. 2010, rad. 32488).”.
+
+---
+
+# PROVIDENCIA DDP 8483
+
+**Número de Providencia (DDP 8483):** SP040-2026
+**Radicación (DDP 8483):** 60774
+
+**Lista de Temas (DDP 8483):**
+(i) “Imputación objetiva y atribuibilidad del resultado lesivo”. 
+(ii) “Sobre la responsabilidad penal en delitos culposos y desde la imputación objetiva, la Corte ha acotado que «para que un resultado le pueda ser atribuido a un agente, este ha debido crear o incrementar un riesgo jurídicamente desaprobado, y este riesgo creado debió realizarse en el resultado típico» …”. 
+(iii) “Por consiguiente, frente a una conducta culposa, la valoración del juez deberá hacerse, en un primer momento, respecto a la creación de un riesgo jurídicamente desaprobado desde una perspectiva ex ante, es decir, desde la figura de un observador inteligente que se coloca en la posición del autor.”. 
+(iv) Las lesiones personales culposas. 
+(v) “A manera de ejemplo, en el marco de la acción de conducir son infracciones al deber objetivo de cuidado la conducción de un vehículo a exceso de velocidad o la acción de omitir la señal de semáforo en rojo, o iniciar la marcha y tomar un nuevo carril sin anunciar o utilizar las señas para dar cuenta de la maniobra a seguir. En estos escenarios, la ley de tránsito determina el deber objetivo de cuidado que debe protegerse, pero ninguna de aquellas infracciones constituye un hecho penalmente relevante por sí mismo considerado. Aquellos eventos solo adquieren relevancia para el derecho penal, si como consecuencia de la infracción se produce un resultado dañoso, como el atropellamiento y muerte o lesión sufrida por la víctima, siempre que sea objetivamente imputable al infractor. Precisamente, por la infracción del deber que buscaba evitar la producción de ese resultado.”. 
+(vi) “En definitiva, la tipicidad del delito de lesiones personales culposas desde el punto de vista subjetivo, no depende únicamente de la infracción de un deber objetivo de cuidado. Es necesario, además, que el resultado sea consecuencia previsible y evitable de la infracción al deber.  Además, éste debe atribuirse objetivamente al sujeto activo, en función del riesgo que con su actuar imprudente creó.”.
+
+---
+
+# PROVIDENCIA DDP 8484
+
+**Número de Providencia (DDP 8484):** autor. SP105-2026
+**Radicación (DDP 8484):** 62806
+**Decisión (DDP 8484):** PROCESO EN CONTRA DE LILIANA PARDO GAONA, COMO DIRECTORA GENERAL DEL INSTITUTO DE DESARROLLO URBANO, IDU. CARRUSEL DE LA CONTRATACIÓN EN BOGOTÁ. SMS DEL 6.3.2026
+
+**Lista de Temas (DDP 8484):**
+(i) La presunta prescripción en este caso. 
+(ii) EL cohecho propio. 
+(iii) “En reciente decisión (CSJ, SP1767-2025 Rdo. 61359), la Sala reiteró la jurisprudencia que sobre el tema se ha decantado, para delimitar los aspectos sobre los cuales pueden recaer dichas estipulaciones, a saber: -(a)- uno o varios hechos jurídicamente relevantes, -(b)- uno o varios hechos indicadores, y -
+(c)- uno o varios de los referentes fácticos de la autenticación de las evidencias físicas o documentos (CSJ SP9621-2017, 5 jul. 2017, Rad. 44932). En este sentido: …”. 
+(iv) “La Sala anticipa la constatación de errores de hecho trascendentes en la sentencia impugnada. Como se verá, cada error analizado por sí solo no tiene la trascendencia de cambiar el sentido de la sentencia. Sin embargo, al develar el alcance de los yerros y sus implicaciones en la valoración conjunta de la prueba, se logra constatar, en parte, la plausibilidad de la hipótesis alterna de la defensa.”. 
+(v) “Es pertinente recordar que el error de hecho por falso juicio de existencia se presenta cuando el fallador omite apreciar el contenido de una prueba legalmente aportada al proceso (falso juicio de existencia por omisión). O cuando, por el contrario, hace enunciados fácticos a partir de un medio de convicción que no forma parte del proceso (falso juicio de existencia por suposición) AP579-2021, rad. 2456310, feb. 24de 2021.” 
+(vi) “Por otro lado, el error de hecho por falso juicio de identidad se comete cuando el juzgador pasa por alto el contenido objetivo de determinado medio de prueba, bien sea porque …”. 
+(vii) “Es cierto que no es posible analizar lo anterior bajo una regla general y permanente que implique dar credibilidad a los testigos que han adquirido compromisos con la justicia, por su participación en hechos delictivos asociados con el investigado. Tampoco se podría suponer una disminuida credibilidad en dichos testigos o descalificar a priori su testimonio, con ocasión de su interés por recibir beneficios a partir de la información que suministren.”. 
+(viii) “Lo cierto es que, la sujeción a un principio de oportunidad por parte de los testigos no es un dato irrelevante, y debe ser analizado en el contexto específico de cada caso, a partir de los criterios de valoración establecidos en el artículo 404 de la Ley 906 de 2004.”. 
+(ix) “De la existencia de una hipótesis alterna propuesta por la defensa”. 
+(x) El autor. 
+(xi) El co
+
+---
+
+# PROVIDENCIA DDP 8485
+
+**Número de Providencia (DDP 8485):** AP760-2026
+**Radicación (DDP 8485):** 70927
+
+**Lista de Temas (DDP 8485):**
+(i) “Ante la fundada sospecha de que el escrito presentado por el abogado no había sido confeccionado por el profesional del derecho, la Corte sometió el texto a la herramienta Winston AI6, cuyo análisis arrojó que el documento presenta únicamente un 7% de contenido humano, lo que evidencia una marcada influencia de escritura automatizada y permite concluir que fue producido mediante inteligencia artificial.”. 
+(ii) “Por su parte, la herramienta Copyleaks7 analizó las 3314 palabras que componen el escrito y concluyó que este presenta un 7% de texto plagiado y un 100% de probabilidad de haber sido generado mediante inteligencia artificial.”. 
+(iii) “Así, la causal primera de casación -Falta de aplicación, interpretación errónea, o aplicación indebida de una norma del bloque de constitucionalidad, constitucional o legal, llamada a regular el caso- se relaciona con un error in iudicando, en la modalidad de violación directa de la ley, que puede presentarse por: 
+(i) falta de aplicación; 
+(ii) aplicación indebida; o 
+(iii) interpretación errónea.”. 
+(iv) “Por su parte, la causal tercera de casación -El manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia- también comporta un error in iudicando, pero en la modalidad de la violación indirecta de la ley, la cual comprende los errores de hecho –falso juicio de existencia, falso juicio de identidad y falso raciocinio- y los errores de derecho -falso juicio de legalidad y falso juicio de convicción-.”. 
+(v) “Y, la causal segunda de casación -Desconocimiento del debido proceso por afectación sustancial de su estructura o de la garantía debida a cualquiera de las partes- corresponde al error in procedendo, que se vincula con la validez del proceso y las garantías y derechos que lo sustentan.”. 
+(vi) “Pues bien, la violación directa de la ley sustancial versa exclusivamente sobre un yerro de juicio respecto del precepto que se ocupa de regular el supuesto fáctico en concreto, el cual puede tener lugar por: 
+(i) falta de aplicación, que se presenta cuando el funcionario se equivoca frente a la existencia de la norma que regula el caso, ya sea porque la ignoró, la desconoció o la consideró derogada; 
+(ii) aplicación indebida. Se configura cuando el juez desatinó en la selección del precepto y adecuó erróneamente los hechos probados a los supuestos condicionantes de aquél, es decir, los sucesos reconocidos en el proceso no coinciden con la respectiva hipótesis normativa; y 
+(iii) interpretación errónea, evento en el que el juez selecciona de manera adecuada la norma que corresponde al caso sometido a su consideración y efectivamente la aplica, pero al interpretarla le atribuye un sentido jurídico que no tiene o le asigna efectos contrarios a su real contenido.”. 
+(vii) “Cuando se alega la violación directa de la ley el argumento a presentar opera eminentemente jurídico o dogmático, en tanto, se trata de determinar que, a determinados hechos, que se asumen como demostrados, no se aplicó la norma adecuada, se aplicó una ajena al caso o se interpretó inadecuadamente la que correspondía.”. 
+(viii) “Por lo tanto, cuando se acude a esta causal se debe aceptar los hechos y las pruebas de ellos tal como fueron declarados unos y apreciadas las otras por el juzgador de segunda instancia, porque la discrepancia se presenta en el ámbito de lo estrictamente jurídico, es decir, sólo con las consecuencias jurídicas atribuidas a los hechos declarados …”. 
+(ix) “Pues bien, cuando la discrepancia versa sobre la actividad probatoria y la apreciación y valoración de los medios de conocimiento por parte de los falladores, la vía de ataque legalmente adecuada es la violación indirecta de la ley sustancial, ya que, a la infracción de la ley sustancial se llega de manera mediata, esto es, a través de la infracción de las normas que regulan el ámbito probatorio.”. 
+(x) “Dicha violación puede ocurrir por: 
+(i) un error de hecho, el cual emana de la apreciación objetiva o de la valoración de la prueba, que puede consistir en un falso juicio de existencia, un falso juicio de identidad o un falso raciocinio; o 
+(ii) un error de derecho, el cual proviene de aquella falencia en que incurre el sentenciador al contemplar la prueba desconociendo las normas que regulan su producción o eficacia probatoria, que se puede configurar por falso juicio de legalidad o falso juicio de convicción.”.
+
+---
+
+# PROVIDENCIA DDP 8486
+
+**Número de Providencia (DDP 8486):** AP856-2026
+**Radicación (DDP 8486):** 71880
+
+**Lista de Temas (DDP 8486):**
+(i) La definición de competencia. 
+(ii) “Conforme con los antecedentes de la actuación, se tiene que en el presente caso se adelanta la judicialización de varias conductas punibles. Motivo por el cual, en aras de definir la controversia, se hace necesario acudir a los postulados del artículo 52 de la Ley 906 de 2004, donde se refiere que la competencia para conocer de delitos conexos.”. 
+(iii) “Así, en principio, le corresponde conocer al juez de mayor jerarquía, pero si los funcionarios enfrentados son del mismo nivel, el factor determinante será el territorial, de forma excluyente y preferente, en el siguiente orden: 
+(i) donde se haya cometido el delito más grave, 
+(ii) donde se haya realizado el mayor número de delitos, 
+(iii) donde se haya producido la primera captura o 
+(iv) donde se haya formulado la primera imputación.”. 
+(iv) “En ese sentido, la Sala ha sostenido que la conducta punible tipificada en el artículo 376 del Código Penal es de carácter alternativo, en tanto que contempla varios verbos rectores como: introducir al país, transportar, llevar consigo, almacenar, conservar, elaborar, vender, ofrecer, adquirir, financiar o suministrar droga que produzca dependencia «lo que conlleva a que su ejecución comprenda todos los lugares en donde se produce la actuación típica».”.
+
+---
+
+# PROVIDENCIA DDP 8487
+
+**Número de Providencia (DDP 8487):** AP887-2026
+**Radicación (DDP 8487):** 60758
+**Decisión (DDP 8487):** SMS DEL 9.3.2026
+
+**Lista de Temas (DDP 8487):**
+(i) “En relación con la sustentación del recurso extraordinario de casación presentada por RICARDO VANEGAS SIERRA, la Sala reitera que la legitimidad para sustentar el recurso extraordinario de casación, de acuerdo con el artículo 182 de la Ley 906 de 2004 , la tienen los intervinientes con interés, siempre que lo hagan a través de abogado, o directamente, cuando ostenten esta calidad (CSJ AP2114-2023 y AP936-2024).”. 
+(ii) “En el presente caso, el procesado no es abogado titulado ni inscrito, de acuerdo con lo que consta en la actuación y la información disponible en el Registro Nacional de Abogados . Es decir, carece de aptitud para sustentarlo. De esta manera, la Sala no está facultada para examinar los presupuestos lógicos y de debida fundamentación de los escritos presentados. Por tanto, el análisis de admisibilidad se centrará en la demanda presentada por su defensor.”. 
+(iii) “Por otra parte, la Sala no estudiará las solicitudes radicadas por el procesado durante el trámite de casación. Además de lo recién señalado sobre la falta de legitimidad, la Sala ha explicado que no hay lugar, en sede del recurso extraordinario, a incorporar nuevos hechos, medios de prueba ni argumentos después de la demanda. En concreto, ha dilucidado que: …”. 
+(iv) “Si con posterioridad al juicio oral se encuentra un medio de prueba no considerado, cuyos efectos sean trascendentes, el procesado debe, «una vez ejecutoriada la sentencia, acudir a la acción de revisión, por la senda de la causal tercera inserta en el artículo 192 de la Ley 906 de 2004» (CSJ AP4617-2025).”. 
+(v) “La causal invocada, esto es, la violación indirecta de la ley sustancial (prevista en el numeral 3° del artículo 181 de la Ley 906 de 2004) obliga a desvirtuar la apreciación o el escrutinio de las pruebas, a fin de acreditar un supuesto de hecho diverso, que consecuencialmente deba ser subsumido en normas diferentes. Los errores que se pueden cometer en la actividad probatoria pueden ser de hecho o de derecho (CSJ AP2256-2025).”. 
+(vi) “Los errores de hecho implican el desconocimiento de una situación fáctica, producto de la incursión en falsos juicios de existencia o identidad, o falso raciocinio, mientras que los errores de derecho presuponen la violación de una norma probatoria (falsos juicios de legalidad o convicción) …”. 
+(vii) “El falso juicio de identidad es un defecto de naturaleza eminentemente objetiva, por lo que su proposición exige acreditar que el sentido literal de un medio de prueba fue cambiado, haciéndole decir lo que en realidad no muestra. Por tanto, excluye cualquier reparo de índole inferencial del juzgador que, de existir, debe ser postulado por la senda del error de hecho por falso raciocinio (CSJ AP4923-2024, AP2256-2025 y AP4891-2025).”. 
+(viii) “Dicho error tiene lugar por (a) tergiversación, si se varía el contenido material; (b) adición, cuando se agregan aspectos o circunstancias no comprendidos por el medio de prueba; o 
+(c) cercenamiento, si se suprimen hechos fundamentales de medio de conocimiento o se omite considerar aspectos relevantes del mismo (CSJ AP2256-2025 y AP4891-2025).”. 
+(ix) “En cualquiera de estos tres supuestos, la postulación del yerro exige que el casacionista 
+(i) identifique el medio de prueba sobre el que recae, 
+(ii) revele en términos exactos lo que dimana de aquél -en su estricto contenido material- y demuestre que la comprensión objetiva del sentenciador fue distinta, y 
+(iii) concrete el tipo de reproche en que este habría incurrido (tergiversación, adición o cercenamiento), para lo cual es necesario comparar los dos textos  y finalizar demostrando la incidencia del defecto en la decisión …”. 
+(x) “La causal alegada, la violación directa de la ley sustancial, puede configurarse a través de tres modalidades de error en el juicio (in iudicando), a saber, por 
+(i) falta de aplicación, 
+(ii) aplicación indebida, o 
+(iii) interpretación errónea de una norma de rango constitucional o legal llamada a regular el caso …”. 
+(xi) “El primer error tiene lugar cuando el juez se equivoca frente a la existencia de la norma que regula el caso y deja de aplicarla, ya sea porque la ignora, la desconoce o la considera derogada. El segundo ocurre porque el funcionario desatina en la selección del precepto y adecúa erróneamente los hechos probados a los supuestos condicionantes de aquél, es decir, los sucesos reconocidos en el proceso no coinciden con la respectiva hipótesis normativa. El tercero acaece cuando, pese a que selecciona adecuadamente la disposición que corresponde al caso sometido a su consideración, el juez desacierta al interpretarla y le atribuye un sentido jurídico que no tiene o le asigna efectos contrarios a su real contenido …”. 
+(xii) “Cuando se acude a la violación directa de la ley sustancial, el yerro denunciado debe limitarse a una simple oposición entre la sentencia y la ley (i.e. deben ser asuntos de pleno derecho), sin que tenga cabida 
+(i) la crítica de los hechos, tal cual fueron declarados en la sentencia, por lo que son inalterables, inmodificables, intangibles; ni 
+(ii) cuestionamientos sobre la forma en que allí se valoraron los medios de prueba (no puede cuestionarse «la argumentación probatoria en que se soporta esa fijación de proposiciones fácticas») …”.
+
+---
+
+# PROVIDENCIA DDP 8488
+
+**Número de Providencia (DDP 8488):** No especificado
+**Radicación (DDP 8488):** CUI 76-834-60-00000-2025-00030-01 (
+**Decisión (DDP 8488):** AC-743-25).
+
+**Lista de Temas (DDP 8488):**
+(i) “La preclusión y su estándar de conocimiento.”.  
+(ii) “Ausencia de intervención en el hecho investigado.”. 
+(iii)  “La imposibilidad de desvirtuar la presunción de inocencia.”. 
+(iv) “Entonces, la imposibilidad de desvirtuar la presunción de inocencia no solo debe recaer en la valoración de los elementos de convicción con los que cuenta el ente acusador. La Fiscalía está en la obligación de establecer si existe viabilidad de recaudar otros elementos materiales probatorios y evidencia física para que pueda apartarse de las incertidumbres que tiene frente al caso. En otras palabras, se exige que se demuestre que la Fiscalía no tiene ni está en posibilidad, agotado el máximo esfuerzo, de obtener más elementos de convicción que despejen la duda en uno u otro sentido.”. 
+(v) “Es decir, si el delito de receptación castiga a quien ejecuta acciones para ocultar un bien producto de una conducta ilícita, no es suficiente, para descartar su participación, que no tenga alguna relación jurídica con el bien inmueble en el que se encontró la motocicleta.”.
+
+---
+
+# PROVIDENCIA DDP 8489
+
+**Número de Providencia (DDP 8489):** No especificado
+**Radicación (DDP 8489):** CUI 76111-22-04-004-2026-00169-00
+
+**Lista de Temas (DDP 8489):**
+(i) La tutela contra providencias judiciales. 
+(ii) “De las pruebas allegadas, se puede colegir que el litigio se contrae en la censura planteada frente a la decisión del 19 de diciembre de 2025 adoptada por el JUZGADO PRIMERO PENAL DEL CIRCUITO DE BUGA frente a la revocatoria de la búsqueda selectiva en base de datos autorizada el 18 de diciembre de 2025 por el Juzgado 701 Penal Municipal con función de control de garantías Ambulante Transitorio de Buga, esto dentro del proceso 110016000000-2024-00211.CUI 76111-22-04-004-2026-00169-00”. 
+(iii) “En efecto, la solicitud de búsqueda selectiva en base de datos debe partir, preliminarmente de la utilidad de la información a recaudar, pero no realizando un juicio ex ante de la naturaleza de la prueba, sino como en su rol de juez de control de garantías, sopesar esa utilidad con la posible incidencia en el derecho a la intimidad del titular de la información, ello a través de un test de ponderación, evaluando criterios relacionados con la afectación de los derechos constitucionales. Por el contrario, en el caso concreto, el juzgado accionado, atribuyéndose una competencia ajena, otorgó valor a la prueba desestimando su utilidad e idoneidad, siendo esta la tarea del juzgado que conoce la causa en sede de juicio.”. 
+(iv) “Lo correcto era que, a través de la valoración de los derechos fundamentales en conflicto, ponderara si, era admisible la afectación de los derechos fundamentales de JEFERSON DAVID DUQUE GUTIÉRREZ despojándose con ello de valoraciones previas de utilidad y pertinencia, centrándose exclusivamente en la tarea del juez de control de garantías. Así, en criterio de la Sala, el auto del 19 de diciembre de 2025 afectó los derechos fundamentales del señor CORAL PEREA, por ello, con miras a garantizar su reparación, se dejará sin efectos la decisión censurada en esta cede y se devolverá al juzgado accionado para que adopte una decisión acorde al test de ponderación que debe realizar en su rol de juez de control de garantías de segunda instancia; no obstante, ello no sígnica que la operadora judicial deba acceder a lo solicitado, basta, como se dijo, con que evalúe la petición dentro del marco de sus competencias.”.
+
+---
+
+# PROVIDENCIA DDP 8490
+
+**Número de Providencia (DDP 8490):** No especificado
+**Radicación (DDP 8490):** CUI 76111600016520225082801 (
+**Decisión (DDP 8490):** AC-017-26).
+
+**Lista de Temas (DDP 8490):**
+(i) “Sobre el delito de violencia intrafamiliar agravada”. 
+(ii) “Lo que diferencia el delito de violencia intrafamiliar con otros punibles, como el de lesiones personales, radica en la lesividad del comportamiento para la familia. En efecto, aunque la acción pueda afectar otros bienes jurídicos, como la integridad personal, moral o, inclusive, la libertad de la víctima, el punible de violencia intrafamiliar procura proteger la existencia y conservación de las relaciones circunscritas en el núcleo familiar. Se trata de un tipo subsidiario, pues opera cuando la conducta no se adecúe a un delito sancionado con pena mayor.”. 
+(iii) “El Alto Tribunal ha señalado que la circunstancia de agravación punitiva consistente en ejecutar la conducta contra una mujer depende de “la demostración de que la conducta constituye violencia de género, en la medida en que sea producto de la discriminación de las mujeres, del hecho de considerarlas inferiores, de su cosificación y, en general, cuando la conducta reproduce la referida pauta cultural que, con razón, pretende ser erradicada”.”. 
+(iv) “A partir de la Ley 1257 de 2008, la Corte ha explicado que la violencia de género puede ser: 
+(i) física: “corresponde a aquellos casos en que intencionalmente se realizan o provocan actos con la capacidad para provocar lesiones físicas, daños o la muerte”; 
+(ii) sexual: “implica obligar a la mujer a mantener prácticas o contacto sexual físico o verbal a través del uso de la fuerza, intimidación, coerción, chantaje, soborno, manipulación, amenaza o cualquier otro mecanismo que anule o limite la voluntad de la víctima”; 
+(iii) psicológica: “se manifiesta mediante patrones sistemáticos, sutiles y en ocasiones, imperceptibles para terceros, deteriorando la capacidad de autogestión y desarrollo personal de la víctima”; 
+(iv) económica: “se utiliza el poder financiero para dominar las decisiones de la pareja y condicionar su proyecto de vida. El agresor, administra el patrimonio común sin considerar quién generó los recursos, asume el control del dinero y figura como titular exclusivo de los bienes”; 
+(v) vicaria: “se refiere a cualquier acción u omisión que genere daño físico, psicológico, emocional, sexual, patrimonial o de cualquier índole a familiares, dependientes o personas afectivamente significativas para la víctima con el objetivo de causarle daño. Esta generalmente es ejercida a través de los hijos de la víctima”; y 
+(vi) institucional: su categorización como forma de violencia busca “reconocer y hacer visibles los sesgos o estereotipos de género que, en muchos casos, permanecen latentes e imperceptibles y que crean barreras adicionales para que las mujeres puedan ejercer sus derechos”.”.
+
+---
+
+# PROVIDENCIA DDP 8491
+
+**Número de Providencia (DDP 8491):** No especificado
+**Radicación (DDP 8491):** CUI 76520-60-00-182-2013-00060-01 (
+**Decisión (DDP 8491):** AC-090-26).
+
+**Lista de Temas (DDP 8491):**
+(i) “Sobre el permiso administrativo de hasta setenta y dos horas.”. 
+(ii) “Sobre la acumulación jurídica de las penas y el principio de favorabilidad.”. 
+(iii) “La Corte Suprema de Justicia, en decisión CSJ AP5608, 30 nov 2022, rad. 62520, al examinar cuál era la normativa aplicable para conceder la libertad condicional en un caso en el que se acumularon las penas por hechos cometidos en diferentes vigencias de reglas jurídicas, concluyó que tenía que aplicarse aquella que tenía validez para la época de los hechos, a saber, todos los hechos circunscritos en las sentencias acumuladas. Esto, sin perjuicio de acudir a normas posteriores que resultasen más beneficiosas para el procesado.”. 
+(iv) “Esa Corporación ha delimitado unos requisitos concurrentes para que opere el principio de favorabilidad, así: “i) sucesión o simultaneidad de dos o más leyes en el tiempo; ii) regulación de un mismo supuesto de hecho, pero que conlleva consecuencias jurídicas distintas; y iii) permisibilidad de una disposición frente a la otra”. El principio de favorabilidad, para determinar la ley aplicable a un caso específico en un contexto de sucesión o simultaneidad de normas, puede operar por: 
+(i) retroactividad: por disposición legal, “la norma nacida con posterioridad a los hechos regula sus consecuencias jurídicas como si hubiese existido en su momento”; y 
+(ii) ultraactividad: cuando hay sucesión de leyes en el tiempo “si la nueva ley es favorable en relación con la derogada, ésta será la que se siga aplicando a todos los hechos delictivos que se cometieron durante su vigencia”.”. 
+(v) “Entonces, surge el siguiente interrogante: ¿La norma aplicable debe ser el artículo 32 de la Ley 1142 de 2007, relativa a la “sentencia más grave”? o acaso ¿se ha de regir por el artículo 28 de la Ley 1453 de 2011, modificado, a su vez, por el artículo 13 de la Ley 1474 de 2011, aplicable a la sanción objeto de acumulación? Veamos las implicaciones en cada hipótesis procesal: …”. 
+(vi) “Según doctrina autorizada, la resocialización se introduce como un proceso de “personalización”. Un reconocimiento implícito de sus derechos civiles, económicos, culturales y sociales que materialmente disminuyeron con el delito y la imposición de la pena. Por ello, la importancia de que se adopte un mecanismo progresivo en la que, siempre que se demuestre que existe una condición favorable de resocialización, se le permita al sujeto permanecer, cada vez con menos restricciones, en libertad.”.
+
+---
+
+# PROVIDENCIA DDP 8492
+
+**Número de Providencia (DDP 8492):** No especificado
+**Radicación (DDP 8492):** CUI 76111-60-00-165-2025-00699-01 (
+**Decisión (DDP 8492):** AC-096-26). SMS DEL 10.3.2026
+
+**Lista de Temas (DDP 8492):**
+(i) “Los recursos ordinarios en contra de la decisión que decreta una prueba”. 
+(ii) “En este orden de ideas, la Sala considera que el recurso de apelación contra autos que admiten una prueba, por regla general, no es procedente, salvo cuando se argumenten aspectos relacionados con rechazo por no descubrimiento, o de exclusión por obtención ilícita o ilegal del medio de conocimiento. Los temas de admisibilidad no son susceptibles de análisis en doble instancia, en los casos en los que la prueba es decretada.”. 
+(iii) “La prueba ilícita y la prueba ilegal”. 
+(iv) “Las cargas argumentativas para la solicitud de exclusión”. 
+(v) “Sobre la facultad de la policía de vigilancia para recolectar videos de cámaras de seguridad en el caso concreto.”. 
+(vi) “El sistema de cadena de custodia y la exclusión de evidencia.”.
+
+---
+
+# PROVIDENCIA DDP 8493
+
+**Número de Providencia (DDP 8493):** SP080-2026
+**Radicación (DDP 8493):** 58700
+
+**Lista de Temas (DDP 8493):**
+(i) “Corresponde entonces a la Sala determinar, en primer término, si la providencia proferida por SALGADO ATENCIA el 15 de marzo de 2013, en su condición de juez de segunda instancia en sede de tutela, resultó manifiestamente contraria a las reglas que estructuran dicho mecanismo constitucional, particularmente en lo concerniente a la inclusión de trescientas treinta y dos (332) personas ajenas al proceso. En segundo lugar, deberá establecer si tal decisión fue adoptada con conocimiento de esa contrariedad, de manera que se configuren los elementos objetivo y subjetivo del delito de prevaricato por acción, o si, como lo postula la defensa técnica, se trató de una actuación errónea o excesiva.”. 
+(ii) Prevaricato por acción. 
+(iii) “La Sala tiene establecido que cuando la decisión está orientada a generar beneficios propios o ajenos, el dolo puede concluirse al contener criterios subjetivos, argumentos caprichosos, arbitrarios, abiertamente absurdos, o cuando posteriormente se dan explicaciones basadas en hechos que procesalmente resultan inexistentes, ocultados o tergiversados, situaciones de las que surge que el ánimo del funcionario es abandonar el propósito de administrar justicia y la aplicación de las normas llamadas a regular el asunto a resolver.”. 
+(iv) “En este punto ya no se está ante una interpretación amplia o discutible del alcance de la acción de tutela, sino frente al desconocimiento de presupuestos estructurales del proceso constitucional. La incorporación de beneficiarios que no ejercieron acción alguna, que no hicieron parte de la relación procesal ni fueron objeto de verificación probatoria dentro del expediente altera la configuración misma del trámite y desborda el margen de apreciación reconocido al juez constitucional.”. 
+(v) “Tampoco resulta de recibo el argumento defensivo según el cual no se configuraría el prevaricato por acción porque el procesado no obtuvo beneficio económico alguno ni actuó con ánimo corrupto. El artículo 413 del Código Penal no exige provecho personal ni ventaja patrimonial, pues el bien jurídico protegido es la recta administración de justicia y la sujeción del juez al orden jurídico. La Sala ha sido clara en señalar que el denominado “ánimo corrupto” no constituye un elemento autónomo del tipo penal y que exigir su demostración independiente implicaría desconocer el principio de legalidad. Basta con que el servidor público conozca la contrariedad ostensible de su decisión con el ordenamiento y, pese a ello, quiera proferirla.”. 
+(vi) “De igual manera, tampoco prospera la tesis defensiva orientada a reconducir la conducta al ámbito del abuso de función pública. Como lo ha sostenido esta Corporación, cuando el servidor actúa dentro de su competencia formal, pero profiere una decisión que desconoce de manera manifiesta y grosera las reglas jurídicas aplicables, el juicio no es de extralimitación competencial sino de ilegalidad ostensible del contenido decisorio. En este caso, SALGADO ATENCIA no asumió funciones ajenas; decidió como juez de segunda instancia en sede de tutela. Lo que se reprocha no es la competencia, sino el haber extendido los efectos del fallo a personas completamente ajenas al proceso, sin demanda, sin vinculación, sin prueba y sin motivación que justificara jurídicamente esa inclusión.”.
+
+---
+
+# PROVIDENCIA DDP 8494
+
+**Número de Providencia (DDP 8494):** AP869-2026
+**Radicación (DDP 8494):** 71755
+
+**Lista de Temas (DDP 8494):**
+(i) “La Corte no es competente para resolver los recursos de apelación promovidos por la defensa y el sentenciado en contra del auto de 28 de noviembre de 2025 emitido por el Juzgado Segundo de Ejecución de Penas y Medidas de Seguridad de Valledupar, en atención a que no actuó como juez de conocimiento en la actuación adelantada en contra de Jorge Eduardo Fadul Díaz.”. 
+(ii) “Al efecto, importa destacar que el parágrafo primero del artículo 38 de la Ley 906 de 2004, advierte:  Cuando se trate de condenados que gocen de fuero constitucional o legal, la competencia para la ejecución de las sanciones penales corresponderá, en primera instancia, a los jueces de ejecución de penas y medidas de seguridad del lugar donde se encuentre cumpliendo la pena. La segunda instancia corresponderá al respectivo juez de conocimiento.”. 
+(iii) “A tono con lo anterior, esta Corte ha establecido que De conformidad con lo dispuesto en el parágrafo 1° del artículo 38 de la Ley 906 de 2004 y en atención a lo establecido por la jurisprudencia, esta Corporación es competente para conocer del recurso de apelación presentado contra las decisiones emitidas por los Jueces de Ejecución de Penas y Medidas de Seguridad, en aquellos asuntos en los que actuó como juez de conocimiento (…) (AP4753–2022, 18 oct. 2022. Rad 62108).”. 
+(iv) “Por lo tanto, en seguimiento de la norma especial que regula el asunto, el conocimiento en segunda instancia del auto que dictó el Juzgado Segundo de Ejecución de Penas y Medidas de Seguridad de Valledupar, le corresponde a la dependencia que asumió la etapa de juicio, en este caso, la Sala Penal del Tribunal Superior de Valledupar, Corporación a la cual se remitirá de inmediato la actuación.”.
+
+---
+
+# PROVIDENCIA DDP 8495
+
+**Número de Providencia (DDP 8495):** AP879-2026
+**Radicación (DDP 8495):** 68989
+
+**Lista de Temas (DDP 8495):**
+(i) “La preclusión en la Ley 906 de 2004”. 
+(ii) “Se entiende por atipicidad la adecuación de un comportamiento a la descripción de una conducta contenida en la ley penal. Por consiguiente, para que pueda pregonarse la configuración de esta categoría jurídica resulta necesario que la identidad entre el proceder investigado y la genérica consagración del tipo sea integral, es decir, que todos los aspectos considerados en la norma concurran en la acción u omisión investigada, pues si falta cualquier elemento de los contemplados en la norma no se concreta el delito y la actuación deviene atípica.”. 
+(iii) “De igual modo, la Corte ha reconocido que la atipicidad se presenta cuando la conducta no se adecúa a las exigencias materiales del tipo penal, o cuando pese a concurrir, hay ausencia de tipicidad subjetiva en la descripción típica agotada. Lo anterior, considerando que el artículo 21 del Código Penal consagra que todos los tipos de la parte especial corresponden a conductas dolosas, salvo cuando se prevé expresamente la modalidad culposa o preterintencional …”. 
+(iv) El prevaricato por omisión. 
+(v) “De acuerdo con la recurrente, las conductas reprochadas al indiciado consistieron en retardar la resolución de la solicitud de terminación del proceso ejecutivo hipotecario por pago total de la obligación del 15 de julio de 2016 y el recurso de reposición interpuesto contra la decisión del 11 del mismo mes y año, por medio de la cual se aceptó la cesión de crédito realizada por el cedente Andrés Alfonso Ramírez Londoño a favor del cesionario Gulfran Romero Plaza. Estas peticiones, en criterio de la abogada, debieron resolverse antes de la diligencia de remate para que esta se suspendiera.”. 
+(vi) “En cuanto al sentido y alcance de dicho verbo rector, esta Corporación ha explicado que retardar es diferir, detener, entorpecer, dilatar la ejecución de algo. Retardar implica que el sujeto activo no ejecutó el acto esperado y debido dentro del término previsto para ello, pero lo realizó más tarde, o está en condiciones de cumplirlo extemporáneamente. Por tanto, el retardo comienza al expirar el término dentro del cual se debió actuar y perdura mientras no se cumpla con la obligación de realizar la acción esperada …”. 
+(vii) El prevaricato por acción. 
+(viii) “En torno a su determinación y comprobación, la Sala ha considerado que en esta labor deben tenerse en cuenta no solo los fundamentos jurídicos o procesales consignados por el funcionario judicial en la decisión tildada de prevaricadora, o la ausencia de estos, sino también las circunstancias en las cuales fue proferida y los elementos de juicio con los que contaba para ese momento el servidor público …”.
+
+---
+
+# PROVIDENCIA DDP 8496
+
+**Número de Providencia (DDP 8496):** SEP027-2026
+**Radicación (DDP 8496):** 00158
+**Decisión (DDP 8496):** SMS DEL 11.3.2026
+
+**Lista de Temas (DDP 8496):**
+Proceso en contra de JUAN MANUEL GONZÁLEZ TORRES, ex gobernador del Departamento del Meta, condenado en Primera Instancia por la presunta comisión de los delitos de contrato sin cumplimiento de requisitos legales y peculado por apropiación en favor de terceros agravado, “ambos en concurso homogéneo, y heterogéneo, con las circunstancias de mayor punibilidad previstas en el artículo 58-1, 9 y 10 del Código Penal.”.
+
+---
+
+# PROVIDENCIA DDP 8497
+
+**Número de Providencia (DDP 8497):** AP1070-2026
+**Radicación (DDP 8497):** 62936
+
+**Lista de Temas (DDP 8497):**
+(i) “En el cargo primero, como se vio, el recurrente formuló un yerro de garantía, pero éste no tiene aptitud formal ni sustancial para propiciar la invalidación total ni parcial del fallo controvertido.”. 
+(ii) “De manera que una adecuada argumentación no implica: i) que se pongan todas las razones existentes para llegar a la conclusión, pues ello, incluso, puede tornar en sospechosa la solidez del discurso; y ii) que se aduzcan premisas que sobren.”. 
+(iii) “En cambio, lo que se requiere es que la razón o las razones que sustentan la conclusión no se ofrezcan a medias, sino, como lo dice el principio, que sean suficientes.”. 
+(iv) “Adicionalmente, la Corte ha clarificado que una afirmación debe ser capaz de sustentarse o explicarse por sí misma, así: …”. 
+(v) “En el cargo segundo, como se reseñó, el defensor denunció que el Tribunal incurrió en diversos errores por falso juicio de identidad por cercenamiento, los cuales recaían sobre: i) la promesa de compraventa; y ii) los testimonios de Karina Sofía Pérez Mendoza, Fabio Navarro de la Hoz y DALEL FIERRO ALBERTZI.”. 
+(vi) “Sin embargo, el adecuado planteamiento de dicho error de apreciación u observación probatoria impone la carga de señalar, en concreto, lo que las pruebas decían y demostrar que el entendimiento que obtuvo el juzgador de los medios de conocimiento fue distinto.”. 
+(vii) “Se trata, entonces, de un ejercicio de confrontación que, a la manera de una doble columna, reproduce en la primera lo que textualmente dijo la prueba y, en la segunda, lo que se le hizo decir, para destacar, luego, la incidencia del yerro en la decisión, de forma que, si no se hubiera cometido, el sentido del fallo habría sido otro sustancialmente diferente.”. 
+(viii) “Por lo tanto, quien denuncia un yerro de esa naturaleza, además de cotejar el tenor literal de la prueba concernida con la aprehensión de su contenido que se consignó en la sentencia, tiene el deber de enseñar su trascendencia.”. 
+(ix) “Ello supone demostrar cómo la contemplación del exacto tenor de ésta, en conjunto con los demás elementos de conocimiento que sustentan la sentencia, llevaría a una conclusión jurídica diversa y favorable a los intereses del impugnante.”. 
+(x) “En otras palabras, el memorialista tiene la carga de: …”.
+
+---
+
+# PROVIDENCIA DDP 8498
+
+**Número de Providencia (DDP 8498):** AP1039-2026
+**Radicación (DDP 8498):** 71106
+
+**Lista de Temas (DDP 8498):**
+(i) “De manera preliminar, la Sala anuncia que abordará el estudio de los dos reproches formulados por el casacionista de manera conjunta, pues, en su confección participan de la exhibición de la misma modalidad de violación indirecta de la ley sustancial, esto es, el falso juicio de existencia, pero bajo las tipologías de omisión y suposición, respectivamente.”. 
+(ii) “Recuérdese que, en la variable de ese error de hecho por omisión, el sentenciador deja de apreciar una prueba con la suficiente capacidad para modificar la decisión impugnada, a pesar de constatarse objetivamente que ella ha sido legalmente incorporada al proceso.”. 
+(iii) “Una alegación adecuada de este tipo de yerro requiere una argumentación lógica y consecuente que parta de la demostración del desprecio por la prueba y, una vez acreditado tal aspecto, incursione en el examen de la nueva situación probatoria que se generaría si se considerara el medio de convicción omitido, a fin de demostrar que reviste idoneidad para modificar el sentido o el alcance de la sentencia, única forma de justificar la emisión de un fallo de sustitución.”. 
+(iv) “Es decir, es preciso demostrar que, si la prueba marginada se hubiese apreciado, las restantes perderían la capacidad suasoria necesaria para arribar a la certeza declarada en el fallo.”. 
+(v) “Recuérdese que el error de hecho por falso juicio de existencia por suposición se configura cuando el juzgador hace precisiones fácticas a partir de un medio de convicción que no forma parte del proceso. Por ello, para su debida fundamentación y demostración se requiere que el demandante identifique el apartado del fallo que valora el supuesto elemento de convicción y se acredite que al suprimirlo la declaración de justicia sería diferente y favorable a quien recurre.”.  
+(vi) “Para finalizar, ante la tardanza en que incurrió la Secretaría del Tribunal Superior del Distrito Judicial de Bogotá, para remitir la actuación a esta Corporación, en virtud del recurso casacional incoado por la defensa, pues, se tomó más de un año para cumplir la orden dada por Magistrada Ponente, la Sala estima necesario, conforme lo ha dispuesto en otros procesos en los que se ha detectado la misma irregularidad , poner en conocimiento de la Presidencia del Tribunal de origen los hechos descritos, para que adopte las medidas necesarias en aras de prevenir futuras dilaciones en la remisión de los expedientes de casación a la Corte Suprema de Justicia.”.
+
+---
+
+# PROVIDENCIA DDP 8499
+
+**Número de Providencia (DDP 8499):** AP351-2026
+**Radicación (DDP 8499):** 63856
+**Decisión (DDP 8499):** SMS DEL 12.3.2026
+
+**Lista de Temas (DDP 8499):**
+(i) “… al demandante le corresponde justificar que le asiste interés jurídico para recurrir, además de acreditar la necesidad de intervención de la Corte en el caso concreto. También es su carga identificar la causal de casación invocada, desarrollar los cargos con apego a la lógica que la define y a los principios de prioridad, precisión, claridad, crítica vinculada, razón suficiente, no contradicción, autonomía, corrección material y trascendencia.”. 
+(ii) “… olvidó que los reproches para obtener la invalidación de la actuación se postulan con prelación de aquellos que solamente pretenden quebrar el fallo de segunda instancia. El fundamento de dicha exigencia radica en el hecho de que si prospera la nulidad es innecesario abordar el estudio de las demás censuras.”. 
+(iii) “Ahora bien, en relación con los cargos atribuidos a la «causal 1 del artículo 181 CPP», debe precisarse que la propuesta de la violación directa de la ley sustancial implica la denuncia de desaciertos de selección o interpretación de la norma sustancial. De ahí que el libelista deba hacer completa abstracción de lo fáctico y probatorio y, por lo tanto, sin que medie reparo a los hechos o a la apreciación de los medios de prueba fijados por los sentenciadores.”. 
+(iv) “Este marco lógico conceptual impone desarrollar el reproche a partir de un ejercicio estrictamente jurídico, en el que se establezca la vulneración del precepto normativo sustancial en el caso concreto, por cualquiera de los siguientes motivos: …”. 
+(v) “En efecto, si su deseo era encontrar mayores elementos juicio, no solo para su ejercicio defensivo sino para contribuir al acervo probatorio, debió emprender una defensa activa que, en el marco de sus funciones, le permitiera proponer alternativas resolutivas del caso. Esto, de ninguna forma entraña una carga dinámica de la prueba o una alteración en la obligación probatoria del ente persecutor.”. 
+(vi) “Que la defensa no tenga la obligación de presentar una teoría del caso o de comprometerse con la superación de determinado estándar de conocimiento, no implica que no esté llamada a probar lo que sea de su interés. Es el defensor quien, al estudiar su caso y definir su estrategia, debe preparar las solicitudes probatorias que encuentre indispensables.”. 
+(vii) “Pues bien, de acuerdo con la jurisprudencia de la Sala, la demostración de la causal 2° no puede ser de «libre factura». Por ende, el yerro que se alega en la demanda debe ser esencial y constituir una vulneración grave a los derechos fundamentales de los sujetos procesales.”. 
+(viii) “Lo anterior exige que el cargo casacional permita comprender los fundamentos fácticos del ataque y los preceptos que se consideran conculcados. Se precisa que fije el momento procesal en que se produjo la anomalía. También es necesario que determine si a consecuencia de ésta se quebrantó la estructura del proceso o una determinada garantía fundamental. Por último, debe acreditar, en términos de trascendencia, que es ineludible acudir a la nulidad como remedio único y extremo para su restablecimiento (CSJ AP5627-2021, rad. 60523).”. 
+(ix) “Además, la fundamentación del ataque debe hacerse a la luz de los principios que rigen la declaración de las nulidades, esto es, los de convalidación, protección, instrumentalidad de las formas, trascendencia y residualidad (310 de la Ley 600 de 2000). Por ese motivo, si se avizora que el defecto denunciado no alcanza a transgredir, en grado suficiente, el desarrollo de la actuación, ni alterar lo decidido en el fallo censurado, no hay lugar a la admisión del reproche (CSJ AP3474-2023, rad. 59591).”. 
+(x) “En efecto, el error de hecho por falso juicio de existencia se produce cuando el sentenciador supone o ignora un medio de prueba determinante en la declaración de justicia de la decisión. Por otro lado, el falso raciocinio se verifica si en su valoración no se tienen en cuenta las reglas de la sana crítica, a saber, postulados científicos, máximas de la experiencia o reglas de la lógica.”. 
+(xi) “En lo que atañe a este último error, se impone para quien lo alega demostrar que la valoración impartida por el fallador sobre el medio de prueba desconoce, como ya se dijo, las reglas de la sana crítica, valga decir, de la lógica, de la ciencia o de la experiencia.”. 
+(xii) “Por ello, resulta forzoso, tras haber identificado el medio probatorio sobre el cual recae la crítica, señalar qué dice concretamente, qué se infirió de él en la sentencia atacada, cuál fue el mérito persuasivo otorgado. En contra partida, desde luego, determinar el postulado lógico, la ley científica o la máxima de experiencia cuyo contenido fue desconocido en la decisión impugnada. A la par, se debe indicar su consideración correcta e identificar la norma de derecho sustancial que indirectamente resultó excluida o indebidamente aplicada.”.
+
+---
+
+# PROVIDENCIA DDP 8500
+
+**Número de Providencia (DDP 8500):** AP906-2026
+**Radicación (DDP 8500):** 62506
+
+**Lista de Temas (DDP 8500):**
+(i) “Frente al primer cargo: la abogada sustentó que el Tribunal incurrió en una violación indirecta de la ley por un error de hecho por falso raciocinio, dado que al valorar la prueba quebrantó las reglas de la sana crítica. En particular dentro de las reglas de la lógica por violación al principio de no contradicción.”. 
+(ii) “La transgresión de los principios de la lógica , entendida como la ciencia formal que estudia la estructura y coherencia del razonamiento expuesto en la sentencia, lleva al desconocimiento de alguno de los principios que permiten dar una argumentación coherente, estos son: i) identidad que confluye en que una cosa sólo puede ser lo que es y no otra; ii) no contradicción, el cual converge en que una cosa no puede ser y no ser al mismo tiempo; iii) tercero excluido, respecto a que, entre dos proposiciones en la cual una afirma y otra niega, una de ellas debe ser verdadera- y iv) razón suficiente,  el cual se concreta en que,  cualquier afirmación que acredite la existencia o no de un hecho debe estar fundamentada en una razón que la acredite suficientemente …”. 
+(iii) “… sobre el contenido del testimonio, la Corte ha considerado que: los cambios en sus contenidos fácticos, los que antes que contradicciones insístase principales excluyentes de lo esencial investigado, se proyectan es como variaciones, es decir, como ‘contradicciones relativas’ sin que al interior de esas versiones pueda afirmarse o concluirse la inexistencia material de la conducta atribuida (CSJ SP2008, 17 ser., rad. 26055), de ahí la necesidad de la contrastación en la valoración que de la prueba en conjunto debe realizar el juzgador.”. 
+(iv) “Segundo cargo: se incurre en la violación indirecta de la ley por falso juicio de convicción, cuando el fallador desconoce las normas que tasan el valor o la eficacia probatoria del medio de conocimiento; esta forma de violación resulta restringida, en tanto la apreciación probatoria se rige por el método de libre formación del convencimiento, encontrándose como única hipótesis en la Ley 906 de 2004, la prohibición de dictar sentencia condenatoria con base exclusiva en pruebas de referencia (CSJ AP975-2025, 26 feb., rad. 67138).”.
+
+---
+
+# PROVIDENCIA DDP 8501
+
+**Número de Providencia (DDP 8501):** AP699-2026
+**Radicación (DDP 8501):** 63166
+
+**Lista de Temas (DDP 8501):**
+(i) “Al analizar los escritos correspondientes a los recursos de apelación y casación y lo resuelto en la sentencia de segunda instancia, se aprecia que la demandante no cuenta con legitimidad en la causa para efectos de interponer el recurso de casación; en concreto, porque los cuestionamientos invocados no fueron objeto del recurso de apelación.”. 
+(ii) “En segundo término, en gracia de discusión, ante una eventual vulneración de derechos y garantías procesales que amerite el conocimiento oficioso de la Corte, resulta aconsejable analizar lo concerniente al planteamiento sobre la violación directa de la ley sustancial por aplicación indebida; para el efecto, este tipo de error supone la selección de la norma requerida para resolver el caso; lo cual sucede, cuando el fallador se equivoca en la adecuación típica de los hechos acreditados en el proceso, al atribuirle una calificación legal que no le corresponde, o cuando selecciona una equivocada en la aplicación de las consecuencias jurídicas.”. 
+(iii) “Lo anterior significa que, para alegar un error por violación directa -aplicación indebida- debe respetarse de plano lo estrictamente jurídico, de modo que, es improcedente cuestionar la fijación de los hechos y de las pruebas que las sentencias recogen; no obstante, para el cado, la recurrente desatiende este presupuesto, en la medida que su fundamentación desconoce los cursos causales fácticos declarados en la sentencia y favorece una controversia frente a la valoración probatoria agotada. Situación que se evidencia al observar los motivos por los cuales el ad quem ubicó la conducta desplegada por el procesado ALMEIRO HASTAMORIR VELA en el artículo 209 de la Ley 599 de 2000.”. 
+(iv) “Sobre el falso raciocinio, la Corte ha reiterado que, «esta modalidad de infracción, tiene lugar cuando el juez aprecia la prueba en su integridad, pero al valorarla desconoce una ley científica concreta, un principio lógico o una regla de la experiencia, es decir, transgrede los postulados de la sana crítica» (CSJ, AP2812-2024, 29 may., rad. 62496).”. 
+(v) “Para la acreditación de este error se requiere que el casacionista:  i) identifique el medio de prueba, su contenido y lo que se deduce de él; ii) indique el mérito persuasivo otorgado por el juez; iii) señale qué regla lógica, ley de la ciencia o máxima de la experiencia fue aplicada erróneamente en el ejercicio valorativo; iv) revele qué regla lógica, ley de la ciencia o máxima de la experiencia debió haber aplicado; v) enseñe qué norma del derecho sustancial se excluyó, aplicó o interpretó indebidamente y, vi) demuestre que de no haberse producido dicho error, la decisión habría sido distinta a la recurrida.”
+
+---
+
+# PROVIDENCIA DDP 8502
+
+**Número de Providencia (DDP 8502):** AP346-2026
+**Radicación (DDP 8502):** 71414
+**Decisión (DDP 8502):** SMS DEL 13.3.2026
+
+**Lista de Temas (DDP 8502):**
+(i) “El instituto de los impedimentos y recusaciones tiene por objeto garantizar el derecho que le asiste a todas las personas a ser juzgado por un tercero neutral, garantía reconocida como componente esencial del debido proceso. Así, para evitar que circunstancias externas al proceso alteren la imparcialidad de la autoridad jurisdiccional, las diferentes normas procesales penales prevén taxativamente circunstancias concretas que imponen al funcionario judicial el deber de separarse del conocimiento de los asuntos que le han sido asignados, bien sea por iniciativa propia o de los sujetos procesales …”. 
+(ii) “En el presente asunto, como se indicó, la Juez Penal del Circuito de Lorica sustentó su manifestación impeditiva en las causales descritas en los numeral 4º y 6º del artículo 56 de la Ley 906 de 2004, en virtud de las cuales el funcionario judicial se encuentra impedido cuando “haya (…) manifestado su opinión sobre el asunto materia del proceso” y “hubiese participado” dentro de este, respectivamente.”. 
+(iii) “En relación con el sentido y alcance de la primera de ellas, la Corte ha precisado que la opinión que da lugar a su configuración es solo aquella que se emite por fuera del ejercicio de la función jurisdiccional -procedencia general- y, en caso de haberse emitido en cumplimiento de esta, debe presentarse en el marco de un proceso distinto a aquel en el que se invoca la situación impeditiva -procedencia excepcional-. Además, esta debe ser sustancia y vinculante, es decir, debe estar necesariamente relacionada con las premisas fáticas y jurídicas comprendidas en el juicio de reproche en contra de quien es procesado, anticipando el criterio del funcionario frente a la responsabilidad que pudiese asistirle …”. 
+(iv) “En relación con la segunda causal, ha indicado que esta se configura cuando en la misma actuación cuyo conocimiento se rehúsa, el funcionario judicial  ha emitido juicios de valor y de ponderación jurídica y probatoria con implicación en su criterio, objetividad e imparcialidad. Es decir, la hipótesis impeditiva relacionada con la “participación” se estructura ante la intervención trascendente y sustancial del juez capaz de afectar la serenidad y ecuanimidad con la que debe resolver la nueva controversia sometida a su consideración …”.
+
+---
+
+# PROVIDENCIA DDP 8503
+
+**Número de Providencia (DDP 8503):** AP698-2026
+**Radicación (DDP 8503):** 71708
+
+**Lista de Temas (DDP 8503):**
+(i) “Lo primero que advierte esta Corte, es que, como el proceso de la jurisdicción ordinaria se adelantó bajo el procedimiento de la Ley 600 de 2000, este asunto debe tramitarse como una colisión de competencia …”. 
+(ii) “En ese orden, conforme al numeral 4° del artículo 75 de la Ley 600 de 2000, la Sala de Casación Penal de la Corte Suprema de Justicia es competente para decidir sobre «las colisiones de competencia que se susciten (…) entre juzgados de diferentes distritos». Asimismo, el artículo 93 de dicho estatuto procesal señala que «hay colisión de competencias cuando dos o más funcionarios judiciales consideren que a cada uno de ellos corresponde adelantar la actuación, o cuando se niegan a conocerla por estimar que no es de competencia de ninguno de ellos».”. 
+(iii) “Este asunto, se encuentra regulado procedimentalmente en el artículo 95 de la Ley 600 de 2000, el cual establece que «el funcionario judicial que proponga [la colisión de competencia] se dirigirá al otro exponiendo los motivos que tiene para conocer o no del caso concreto. Si éste no lo aceptare, contestará dando la razón de su renuencia, y en tal caso dará cuenta al funcionario judicial competente, para que dentro de los tres (3) días siguientes decida de plano la colisión».”. 
+(iv) “Así las cosas, se puede evidenciar que un presupuesto necesario de la colisión de competencia de la Ley 600 del 2000, que no se presenta en su homóloga, la definición de competencia establecida en la Ley 906 del 2004, es la existencia de una controversia entre dos o más autoridades judiciales frente a la competencia para conocer de una determinada actuación, ya sea porque ambas se consideran competentes (colisión de competencia positiva) o, por el contrario, ambas niegan tal asignación (colisión de competencia negativa) …”. 
+(v) “Lo primero que hay que precisar es que el proceso penal que se adelantó en contra del condenado se tramitó bajo el procedimiento de la Ley 600 de 2000, por lo cual, tal y como lo ha hecho esta Corporación en asuntos similares (CSJ AP2722-2023, 6 sep. 2023, rad. 64529; AP439-2023, 22 feb. 2023, rad. 63167; AP2813-2021, 7 jul. 2021, rad. 59779) la norma que regula la asignación de la competencia es el artículo 80 de la citada disposición, que establece que: «(…) La apelación interpuesta contra las decisiones judiciales proferidas por los jueces de ejecución de penas y medidas de seguridad, será resuelta por la sala penal de los tribunales del distrito al que pertenezca el juez».”. 
+(vi) “Sobre la aplicación de esta regla de asignación de competencia, esta Corporación ha establecido que: …”.
+
+---
+
+# PROVIDENCIA DDP 8504
+
+**Número de Providencia (DDP 8504):** AP905-2026
+**Radicación (DDP 8504):** 62448
+
+**Lista de Temas (DDP 8504):**
+(i) “La Corte reitera que de acuerdo con los artículos 181 numeral 2º y 457 inciso 1º de la Ley 906 de 2004, en el ámbito de la casación, es causal de nulidad el desconocimiento del debido proceso por afectación sustancial de su estructura o la violación de la garantía fundamental a la defensa. Ahora, si bien al sustentar una nulidad, la postulación y desarrollo del cargo puede ser sencilla, esto no significa que el recurrente pueda abandonar por completo el rigor técnico, tanto en la correcta y precisa selección de la causal, como en el desarrollo y sustentación metodológica, consistente y suficiente del reparo.”. 
+(ii) “La censura debe sujetarse a los principios que orientan la invalidación de la actuación procesal por la que se propende con el recurso. Para lo cual, será imprescindible evidenciar la necesidad de acudir a esa reparación extrema, en razón de la existencia de una irregularidad manifiesta que se ajuste a alguna de las causales taxativas indicadas en los artículos 455 a 458 de la Ley 906 de 2004.”. 
+(iii) “Para el caso, la nueva apoderada judicial de JOSÉ MANUEL GUEVARA GALVIS, sin precisar adecuadamente el cargo, reduce la cuestión a que se vulnera el derecho de defensa, porque los abogados que le antecedieron no actuaron conforme a las reglas del sistema penal acusatorio, esto es, porque decidieron plantear la preclusión de la investigación por advertir la prescripción de la acción penal, con fundamento en el trámite de la prescripción del cobro coactivo de las acciones tributarias y, proceder a gestionar un impedimento de la jueza de conocimiento, quien resolvió continuar con el proceso en el juicio, pese a que había decidido lo concerniente a la preclusión de la investigación.”. 
+(iv) “Ahora, en gracia de discusión, sobre el actuar de los defensores que antecedieron a la nueva representación judicial del acusado GUEVARA GALVIS, la recurrente desconoce que la Corte ha considerado que, en sede de casación, no resulta dable juzgar el acierto o desatino de la gestión de los abogados que precedieron a los actuales, pues cada letrado tiene su particular forma para afrontar la labor encomendada, sin que sea factible determinar en forma irrebatible cuál pudo ser la mejor y más afortunada estrategia de defensa, por lo que la táctica empleada en el ejercicio de su actividad responde a sus propias percepciones profesionales, sin que ello tenga la connotación de socavar el derecho de defensa técnica …”. 
+(v) “De otra parte, la Sala ha reiterado que, no por disentir de la estrategia defensiva utilizada por quien asume el encargo en el curso del proceso, o por haber sido adversos los resultados del juicio, puede afirmarse que se ha violado el derecho a una asistencia calificada por idoneidad, pues el ejercicio de la actividad de defensa es de medio, no de resultado, y porque el defensor, en la tarea de hacer efectiva esta asistencia, goza de autonomía y libertad en la selección de la táctica a adoptar, entre las múltiples alternativas posibles de ser planteadas en el curso de un juicio …”. 
+(vi) “Es claro que, la ley no impone al abogado derroteros a seguir en el desarrollo de la gestión encomendada, ni le fija orientaciones de ninguna índole y no existen reglas preestablecidas que indiquen que frente a una determinada situación deba actuarse de una específica manera, o plantearse unas concretas tesis defensivas.”.
+
+---
+
+# PROVIDENCIA DDP 8505
+
+**Número de Providencia (DDP 8505):** AP350-2026
+**Radicación (DDP 8505):** 63415
+**Decisión (DDP 8505):** SMS DEL 16.3.2026
+
+**Lista de Temas (DDP 8505):**
+(i) “En los casos de terminación anticipada del proceso, ya sea por vía del allanamiento a cargos o por la celebración de un preacuerdo, la Sala ha establecido  algunas reglas. Entre estas, que el procesado solamente tiene interés para recurrir en apelación o casación, los siguientes aspectos: …”. 
+(ii)  “En este caso, la defensa alegó la nulidad parcial de la actuación por la supuesta vulneración del debido proceso. Indicó que la defensa técnica del procesado fue deficiente, pues contrario a ser proactivo y propender la indemnización del procesado a la víctima, no se comunicó de manera oportuna con este para concretar dicho propósito.”. 
+(iii) “Pues bien, de acuerdo con la jurisprudencia de la Sala, la demostración de la causal 2° no puede ser de «libre factura». Por ende, el yerro que se alega en la demanda debe ser esencial y constituir una vulneración grave a los derechos fundamentales de los sujetos procesales.”. 
+(iv) “En lo relativo a la nulidad por deficiente defensa técnica, la jurisprudencia sobre la materia muestra que tal reclamo es procedente en esta sede cuando se evidencie una auténtica orfandad defensiva durante el devenir procesal. Es decir, su declaración depende de una afectación grave, ostensible y objetiva que haya significado la vulneración de los derechos del procesado (CSJ SP1067-2024. Radicación n.° 58829).”. 
+(v) “Por esas razones, esta Corporación ha reiterado que no habrá lugar a decretar la nulidad cuando la solicitud anulatoria se sustente, exclusivamente, en la discrepancia de criterios entre el abogado demandante y el antecesor. Menos si ese desacuerdo gira en relación con la forma en que debió adelantarse la defensa o las estrategias que debieron emplearse en su ejercicio.”.
+
+---
+
+# PROVIDENCIA DDP 8506
+
+**Número de Providencia (DDP 8506):** STP1499-2026
+**Radicación (DDP 8506):** 151853
+
+**Lista de Temas (DDP 8506):**
+(i) “Requisitos de procedibilidad de la acción de tutela contra providencias judiciales.”. 
+(ii) “En el presente asunto, NIDIA YADIRA MICAN MORA promovió acción de tutela para la protección de los derechos fundamentales al debido proceso y mínimo vital, conculcados presuntamente por la Fiscal 43 EEDD al imponer la medida cautelar de suspensión del poder dispositivo, que afectó el derecho de propiedad que le asiste sobre los locales comerciales No. 101 y 108 de la calle 16 # 8ª – 09 de esta ciudad capital, que representan el 20% del inmueble.”. 
+(iii) “No obstante, al examinar las pruebas obrantes en el expediente y el marco jurídico aplicable, esta Sala anticipa que se debe confirmar la decisión de primera instancia, como quiera que la presente solicitud de amparo no cumple con el requisito general de subsidiariedad, esto es, «que se hayan agotado todos los medios -ordinarios y extraordinarios- de defensa judicial al alcance de la persona afectada», ya que, de conformidad con lo establecido en el inciso 3º del artículo 86 de la Constitución Política, en concordancia con el numeral 1° del artículo 6° del Decreto 2591 de 1991, la acción de tutela únicamente es procedente cuando el afectado no disponga de otro medio de defensa judicial, salvo que se utilice como mecanismo transitorio para evitar un perjuicio irremediable.”. 
+(iv) “Ahora, en relación con la subsidiariedad, es preciso recordar que la jurisprudencia  ha sostenido que en acciones contra decisiones o procedimientos judiciales, este requisito no se entiende satisfecho cuando: 
+(i) existe un proceso judicial en curso; 
+(ii) los medios de defensa judicial que el procedimiento ofrece al accionante no se han agotado; y 
+(iii) es utilizada para sustituir al funcionario judicial en la función jurisdiccional que le es propia, o para revivir etapas procesales donde no se utilizaron los mecanismos de impugnación disponibles.”. 
+(v) “Adicionalmente, esa Corporación puntualizó, sobre la improcedencia de la acción de tutela en los casos en los que se alegue una vía de hecho en relación con una actuación judicial en trámite, que: …”.
+
+---
+
+# PROVIDENCIA DDP 8507
+
+**Número de Providencia (DDP 8507):** STP1649-2026
+**Radicación (DDP 8507):** 152423
+
+**Lista de Temas (DDP 8507):**
+(i) “En atención a la pretensión formulada por el accionante, consistente en que se deje sin efectos el auto proferido por la Sala Penal del Tribunal Superior del Distrito Judicial de Bogotá, por medio del cual confirmó la decisión emitida el 4 de septiembre de 2025, por el Juzgado 17 de Ejecución de Penas y Medidas de Seguridad de la misma ciudad, en la que inaplicó lo dispuesto en el artículo 12 de la Ley 2477 de 2025, y se profiera decisión de reemplazo; es necesario acotar que la tutela es un mecanismo de protección excepcional frente a providencias judiciales; y su prosperidad va ligada al cumplimiento de estrictos requisitos de procedibilidad (generales y específicos), que implican una carga para el demandante, tanto en su planteamiento, como en su demostración.”. 
+(ii) “Sobre el particular, resulta necesario precisar que quien administra justicia tiene autonomía para interpretar la norma que más se ajuste al caso, para valorar las pruebas y decidir el asunto con fundamento en las prescripciones legales y constitucionales pertinentes. La labor de interpretación, como consecuencia de la autonomía judicial que reconoce la Carta Política, permite que la comprensión que se llegue a tener de una misma disposición por distintos operadores jurídicos sea diversa, pero ello, per se, no hace procedente la acción de tutela.”. 
+(iii) “Para la Sala, a diferencia de lo considerado por el demandante, no existe duda alguna que el Tribunal Superior del Distrito Judicial de Bogotá -Sala Penal-, al desatar el recurso de apelación, trajo a colación lo dispuesto en el artículo 12 de la Ley 2477 de 2025: …”. 
+(iv) “Así, el Tribunal accionado estableció que la discrepancia radica en que para el actor el hecho de que no se hubiera tenido en cuenta el incremento de penas previsto en la Ley 890 de 2004, en virtud de un preacuerdo, no impide reconocimiento, por principio de favorabilidad, del descuento punitivo previsto en la referida normativa.”. 
+(v) “En ese orden, frente al proceso con radicado No. 50001600056520170003200, el Tribunal afirmó que, la habilitación descrita en el artículo 12 de la Ley 2477 de 2025 no le es aplicable al actor, pues recordó que esa actuación se adelantó por la comisión de los delitos hurto calificado agravado y fabricación, tráfico, porte o tenencia de armas de fuego accesorios, partes o municiones, es decir, no corresponden a aquellos enunciados en el artículo 26 modificado, motivo por el cual, el cambio legal introducido por la referida ley, en relación con ese específico asunto, no tiene incidencia en la situación procesal de JAIRO ALEXANDER BELTRÁN CASTAÑEDA.”. 
+(vi) “Ahora, respecto del radicado No. 50001600000020180003200, la Corporación accionada recordó que el procesado fue condenado por los delitos de secuestro extorsivo agravado, desaparición forzada y hurto calificado y agravado, luego de que se realizara un preacuerdo en el que aquel aceptó la realización de esas conductas punibles, y como beneficio se le otorgó que no se tuviera en cuenta el incremento de penas previsto en el artículo 14 de la Ley 890 de 2004.”. 
+(vii) “En consecuencia, concluyó que, si se aplicara lo establecido en el artículo 12 de la Ley 2477 de 2025, es evidente que, al redosificar la pena privativa de la libertad, esta sería igual e inclusive mayor a la fijada en la sentencia condenatoria, por cuanto: …”. 
+(viii) “Además, si el actor lo que pretende es que aun cuando le fue concedida, al interior del proceso penal, la rebaja de pena en virtud de la inaplicación del artículo 14 de la Ley 890 de 2004, se le otorgue a su vez la que prevé el artículo 12 de la Ley 2477 de 2025, la Sala accionada indicó que ello es improcedente.”. 
+(ix) “De igual forma, se itera que, la acción de tutela no procede para impugnar providencias judiciales cuando el presunto afectado simplemente no coincide con la posición judicial, pues las vías de hecho son defectos graves en el ejercicio de la actividad jurisdiccional que comprometen el debido proceso y la integridad del ordenamiento jurídico, categoría en la cual no encajan las divergencias interpretativas.”.
+
+---
+
+# PROVIDENCIA DDP 8508
+
+**Número de Providencia (DDP 8508):** STP1506-2026
+**Radicación (DDP 8508):** 152220
+
+**Lista de Temas (DDP 8508):**
+(i) “ÁLVARO GAITÁN HURTADO acudió a la acción de tutela en síntesis porque a la fecha no ha sido resuelta por la Sala Única de Decisión del Tribunal Superior del Distrito Judicial de Mocoa, la apelación que se presentó dentro del proceso penal con radicado 865736000530-2019-00001, actuación dentro de la cual fue condenado el 29 de abril de 2025, por el Juzgado Segundo Promiscuo del Circuito de Puerto Asís- Putumayo.”. 
+(ii) “Consideraciones en relación con la mora judicial”. 
+(iii) “No obstante, la tardanza de las autoridades en materia judicial no se deduce por el tiempo, sino que exige un análisis completo de la situación. Para determinar cuándo se presentan dilaciones injustificadas en la administración de justicia y, por consiguiente, en qué eventos procede la acción de tutela, la jurisprudencia constitucional, sentencia [T-052-2018, T-186-2017, T-803-2012 y T-945A-2008], ha indicado que debe estudiarse: …”. 
+(iv) “Así entonces, resulta necesario para el juez constitucional evaluar, bajo el acervo probatorio correspondiente, si en casos de mora judicial ésta es justificada o no (T-357/2007). Una vez hecho ese ejercicio, si el juez de tutela encuentra que la dilación no tiene justificación alguna, habrá de intervenir en defensa de los derechos fundamentales del afectado. Y en caso de determinar que la mora judicial estuvo – o está – justificada, siguiendo los postulados de la sentencia T-230-2013, cuenta con tres alternativas distintas de solución: …”. 
+(v) “En ese orden, debe indicar la Sala que, aunque ha transcurrido un tiempo superior al legal sin que se hubiera resuelto el recurso de apelación, la tardanza en el trámite no es imputable a la omisión en el cumplimiento de las funciones por parte de la autoridad judicial accionada (T-230/2013, reiterada en T-186/2017), pues está llevando a cabo las acciones que tiene a su disposición para resolver el recurso interpuesto, para lo cual ya le asignó un turno.”. 
+(vi) “Por tanto, la Sala encuentra razonabilidad en la justificación dada por el Tribunal, pues no puede desconocerse que existe en la administración de justicia una congestión elevada, y aunque ello no puede trasladarse a los administrados, es claro que los procesos deben ser tramitados conforme al orden de entrada al despacho tal y como lo contempla el artículo 18 de la Ley 446 de 1998.”.
+
+---
+
+# PROVIDENCIA DDP 8509
+
+**Número de Providencia (DDP 8509):** STP1518-2026
+**Radicación (DDP 8509):** 152285
+
+**Lista de Temas (DDP 8509):**
+(i) “La agente oficiosa del menor PSNB, promueve acción de tutela para la protección de sus derechos, pues los estima vulnerados con la sentencia proferida el 7 de febrero de 2025, por la Sala Especial de Asuntos Penales para Adolescentes del Tribunal Superior de Bucaramanga, que condenó al accionante por el delito de homicidio sin tener en cuenta el concepto del Ministerio Público, que realizó observaciones por la aplicación de la agravante de haber actuado por motivo fútil y la posibilidad de una legítima defensa.”. 
+(ii) La tutela y la inmediatez 
+(iii) La tutela y la subsidiariedad. 
+(iv) “Lo que en realidad diferencia la riña de la legítima defensa, no es la existencia de actividad agresiva recíproca, ya que, es de obviedad entender, ésta se da en ambas situaciones, sino además la subjetividad con que actúan los intervinientes en el hecho, que en un caso, el de la riña, corresponde a la mutua voluntariedad de los contendientes de causarse daño, y en el otro, el de la legítima defensa, obedece a la necesidad individual de defenderse de una agresión ajena, injusta, actual o inminente, es decir, no propiciada voluntariamente. (Sentencia CSJ 11676 del 26 de junio de 2002).”.
+
+---
+
+# PROVIDENCIA DDP 8510
+
+**Número de Providencia (DDP 8510):** STP1495-2026
+**Radicación (DDP 8510):** 151704
+**Decisión (DDP 8510):** SMS DEL 17.3.2026
+
+**Lista de Temas (DDP 8510):**
+(i) “En el presente asunto, NORMAN XAVIER LUNA SUÁREZ promovió acción de tutela para la protección de su derecho fundamental al habeas data, conculcado presuntamente por el auto del 8 de junio de 2022, proferido por el Juzgado Primero Penal del Circuito Especializado de Extinción de Dominio de Cúcuta, que lo calificó como “afectado”, al encontrarse uno de sus bienes dentro del proceso de extinción.”. 
+(ii) “Pues bien, debe anunciar esta Sala que se revocará el fallo de primera instancia, pues la demanda no cumple con el requisito general de subsidiariedad, esto es, «que se hayan agotado todos los medios -ordinarios y extraordinarios- de defensa judicial al alcance de la persona afectada», ya que de conformidad con lo establecido en el inciso 3º del artículo 86 de la Constitución Política, en concordancia con el numeral 1° del artículo 6° del Decreto 2591 de 1991 , la acción de tutela únicamente es procedente cuando el afectado no disponga de otro medio de defensa judicial, salvo que se utilice como mecanismo transitorio para evitar un perjuicio irremediable.”. 
+(iii) “Ahora, en relación con la subsidiariedad, es preciso recordar que la jurisprudencia  ha sostenido que en acciones contra decisiones o procedimientos judiciales, este requisito no se entiende satisfecho cuando: 
+(i) existe un proceso judicial en curso; 
+(ii) los medios de defensa judicial que el procedimiento ofrece al accionante no se han agotado; y 
+(iii) es utilizada para sustituir al funcionario judicial en la función jurisdiccional que le es propia, o para revivir etapas procesales donde no se utilizaron los mecanismos de impugnación disponibles.”. 
+(iv) “Agréguese a lo anterior, que no es razonable por parte del Tribunal a quo, crear nuevas categorías, diferentes a las establecidas en la ley, al respecto basta con citar los artículos 1°, 28 y 30 de la Ley 1708 de 2014 que reglamentó la extinción de dominio, así: …”. 
+(v) “Lo citado denota que no fue arbitraria la calificación dada a NORMAN XAVIER LUNA SUÁREZ dentro del mencionado proceso por parte del Juzgado accionado, pues la ley tiene determinada de manera sustentada la calificación que se debe dar a las partes, tarea que el fallo impugnado no desarrolló.”. 
+(vi) “Ahora, sobre la figura del Tercero de buena fe exento de culpa, el Código de Extinción de Dominio no la cataloga como una “calidad”, sino como una limitante al proceso de extinción (art. 3°), una presunción (art. 7°), una causal de archivo (art. 124) y finalmente, un elemento que debe ser demostrado por el titular del bien o desvirtuado por la Fiscalía General de la Nación (art. 152).”.
+
+---
+
+# PROVIDENCIA DDP 8511
+
+**Número de Providencia (DDP 8511):** SEP029-2026
+**Radicación (DDP 8511):** 00546
+
+**Lista de Temas (DDP 8511):**
+Sentencia condenatoria de primer nivel en el proceso adelantado contra MODESTO ENRIQUE AGUILERA VIDES, Representante a la Cámara por el departamento del Atlántico, quien fue acusado por la presunta comisión del delito de ACTO SEXUAL VIOLENTO.
+
+---
+
+# PROVIDENCIA DDP 8512
+
+**Número de Providencia (DDP 8512):** SP048-2026
+**Radicación (DDP 8512):** 59849
+
+**Lista de Temas (DDP 8512):**
+(i) “La Sala ha reiterado que el error de hecho por falso raciocinio se configura cuando el fallador, pese a haber apreciado la prueba en su integridad, la valora desconociendo las reglas del razonamiento probatorio. En consecuencia, quien alega esta clase de yerro debe identificar el medio de prueba o la inferencia en que recayó el error; las reglas de la lógica, de la experiencia y de la ciencia desconocidas por el juzgador, y explicar cómo su observancia habría evitado la conclusión equivocada. Además, cualquier error invocado en casación debe ser trascendente; esto es, de tal entidad que su corrección produzca una decisión sustancialmente diversa.”. 
+(ii) “Del delito de acceso carnal o acto sexual abusivos con incapaz de resistir.”. 
+(iii) Los trastornos mentales del sujeto pasivo del delito. 
+(iv) “… la simple constatación del padecimiento de un trastorno mental no permite concluir, sin más, que quien lo sufre se encuentra en el supuesto calificante del sujeto pasivo exigido para la configuración del delito objeto de análisis.”. 
+(v) “… habrá incapacidad para resistir cuando la víctima se encuentra en situaciones donde sus facultades y posibilidades de cognición y respuesta negativa o de oposición material, frente al acceso carnal o acto sexual estén alteradas, o no le permitan comprender la naturaleza sexual de esa actividad, o prestar su consentimiento para ello.”. 
+(vi) “De los derechos sexuales y reproductivos de las personas en situación de discapacidad o con diversidad funcional. La libertad de disponer de su sexualidad, como un derecho humano.”. 
+(vii) “De la protección superlativa a la que está obligado el Estado colombiano a favor de las mujeres y niñas con discapacidad. Enfoque diferencial interseccional.”. 
+(viii) El error de tipo invencible.
+
+---
+
+# PROVIDENCIA DDP 8513
+
+**Número de Providencia (DDP 8513):** SP255-2025
+**Radicación (DDP 8513):** 63609
+
+**Lista de Temas (DDP 8513):**
+(i) “Del delito de acto sexual violento”. 
+(ii) “No obstante, la Sala establecerá si esa acción, masturbarse y eyacular en presencia de la ofendida menor de edad y sin su consentimiento, configura la conducta punible de acto sexual violento.”. 
+(iii)  “… esta Sala de Casación, al definir que debe entenderse por actos sexuales que no constituyan acceso carnal violento, en la sentencia SP2894-2020, del 12 agosto, radicado 52024, sostuvo: …”. 
+(iv) “En cuanto a la tipología de ese componente delictivo, por violencia física se entiende cualquier vía de hecho o agresión contra la integridad física o la libertad de disposición del sujeto pasivo o de terceros. Por su parte, la violencia moral consiste en todos aquellos actos de intimidación, amenaza o constreñimiento, tendientes a obtener el resultado típico. Dichas acciones han de tener la capacidad de influir de tal manera en la víctima que esta accede a las exigencias del agresor, a cambio de que no le lesione grave y seriamente la vida, integridad personal, libertad o cualquier otro derecho fundamental propio o de sus allegados.”. 
+(v) “Además, para la estructuración del delito, no es indispensable que la conducta libidinosa deba estar acompañada de tocamientos físicos, basta que la misma sea consecuencia de la lascivia de su autor o corresponda a la finalidad de despertar la del otro.”. 
+(vi) “Tampoco podría sostenerse que lo que se materializó fue un acto de exhibicionismo, sin entidad para vulnerar el bien jurídico que protege el artículo 206 del Código Penal; en tanto, las manifestaciones objetivas del acusado, fueron más allá de un simple desnudo, pues generaron sin lugar a dudas un contexto sexual, determinado precisamente por la satisfacción de sus apetencias sexuales.”. 
+(vii) “La Sala de Casación Penal al diferenciar el acto de exhibicionismo al de un acto sexual, sostuvo: …”. 
+(viii) “La Sala ha indicado que, para que una conducta tenga connotación sexual, en el ámbito penal «no basta que excite a su autor o que satisfaga su libido desde su particular visión, pensamiento o deseo, pues será necesario también que aquella revista aptitud o idoneidad, según los criterios culturales y sociales predominantes sobre la sexualidad humana, para alcanzar esa finalidad.»”.
+
+---
+
+# PROVIDENCIA DDP 8514
+
+**Número de Providencia (DDP 8514):** SP081-2026
+**Radicación (DDP 8514):** 68308
+**Decisión (DDP 8514):** SMS DEL 18.3.2026
+
+**Lista de Temas (DDP 8514):**
+(i) “La institución jurídico procesal de las nulidades tiene como finalidad salvaguardar el debido proceso previsto en el art. 29 de la Constitución, cuando alguna actuación se ha desviado de las formas propias establecidas en las normas instrumentales. Su objetivo, tras constatar la anomalía, es restablecer los derechos y garantías de las partes e intervinientes.”. 
+(ii) “Para ello, se resalta en primer lugar que el anterior defensor de CALA LÓPEZ sostuvo que la fiscalía vulneró el debido proceso, expresado en el principio de legalidad, porque el desarrollo de la etapa de instrucción implicó una mezcla de los sistemas procesales fijados en las leyes 600 de 2000 y 906 de 2004. Adujo también que la investigación se inició bajo los parámetros del sistema penal acusatorio y estuvo a cargo de un Fiscal Delegado ante los Jueces Penales del Circuito, quien, pese a conocer que en el asunto se indagaban conductas presuntamente cometidas por un aforado constitucional, realizó actividades investigativas entre el 24 de junio de 2006 y el 6 de junio de 2007, posteriormente tenidas en cuenta cuando la actuación se continuó bajo el marco de la Ley 600 de 2000.”. 
+(iii) “Por su parte, el defensor de WHITMAN HERNEY PORRAS PÉREZ solicita la aplicación del art. 306 de la Ley 600 de 2000, por considerar que a su prohijado se le vulneró su derecho de defensa, debido a la modificación introducida por la Fiscalía en la acusación, mediante la resolución de 24 de junio de 2021. Añade que el derecho al debido proceso también se vio afectado, en razón a que la sentencia impugnada no analizó la antijuridicidad y la culpabilidad -que el defensor denomina en su escrito como “responsabilidad”- que deberían caracterizar la conducta asumida por su defendido, para ser penalizada.”. 
+(iv) “La estructura típica del delito de contrato sin cumplimiento de requisitos legales”. 
+(v) “La estructura típica del delito de peculado por apropiación, agravado por la cuantía”. 
+(vi) “Los principios que rigen la contratación estatal”. 
+(vii) “Marco normativo de los convenios de cooperación”. 
+(viii) “Por último, en atención a que el defensor de WHITMAN HERNEY PORRAS PÉREZ controvirtió el criterio utilizado por la Sala Especial de Primera Instancia para variar de un concurso homogéneo y sucesivo de delitos de contrato sin cumplimiento de requisitos, a esa misma conducta pero en la modalidad de continuado, se hace necesario establecer si le asiste razón al abogado cuando señala que no resulta más favorable.”.
+
+---
+
+# PROVIDENCIA DDP 8515
+
+**Número de Providencia (DDP 8515):** SEP032-2026
+**Radicación (DDP 8515):** 35215
+
+**Lista de Temas (DDP 8515):**
+Sentencia anticipada en el proceso adelantado en contra del ex Senador de la República, NÉSTOR IVÁN MORENO ROJAS por la comisión de los delitos de interés indebido en la celebración de contratos y peculado por apropiación a favor de terceros agravado por la cuantía.
+
+---
+
+# PROVIDENCIA DDP 8516
+
+**Número de Providencia (DDP 8516):** AP1349-2026
+**Radicación (DDP 8516):** 72007
+
+**Lista de Temas (DDP 8516):**
+(i) “Se pronuncia la Sala respecto al recurso subsidiario de apelación interpuesto por los abogados defensores de los acusados CAMILO ERNESTO ROMERO GALEANO y MARIO FERNANDO BENAVIDES JIMÉNEZ, contra la decisión proferida por la Sala Especial de Primera Instancia de la Corte Suprema de Justicia el 26 de septiembre de 2025, mediante la cual reiteró la continuación del juicio oral con la intervención de la defensora pública del primero de los citados procesados, entre otras determinaciones.”. 
+(ii) “El derecho a la defensa”. 
+(iii) “Modalidades del derecho a la defensa técnica”. 
+(iv) “El defensor de confianza”. 
+(v) “Defensoría pública”. 
+(vi) “Defensoría de oficio”. 
+(vii) “El interés de la Justicia y el derecho a una tal, pronta y cumplida, como expresiones del debido proceso”. 
+(viii) “Tensión entre garantías constitucionales y el test de ponderación como solución”. 
+(ix) “En suma, concluye la Sala de Casación Penal, que la medida tomada por la Sala Especial de Primera Instancia de esta Corporación, de designar un defensor público para la representación del acusado CAMILO ERNESTO ROMERO GALEANO para aquellos eventos en que no acuda el defensor principal o de confianza o el suplente que éste eventualmente llegue a designar, si bien constituye una injerencia en el derecho a la elección de un defensor de confianza, es conforme a la Constitución y en consecuencia encuentra legal justificación, por reunir los presupuestos de adecuación, necesidad y proporcionalidad en sentido estricto. En consecuencia, se confirmará la decisión recurrida.”.
+
+---
+
+# PROVIDENCIA DDP 8517
+
+**Número de Providencia (DDP 8517):** AP577-2026
+**Radicación (DDP 8517):** 55791
+**Decisión (DDP 8517):** SMS DEL 19.3.2026
+
+**Lista de Temas (DDP 8517):**
+(i) “Como se trata de una solicitud de nulidad que se presenta con ocasión de una actuación que ya culminó con sentencia definitiva, en principio la Sala debería rechazarla por ser improcedente.”. 
+(ii) “No obstante, la Sala dará respuesta a lo solicitado por las siguientes razones: 
+(i) la Sala de Casación Civil declaró improcedente la acción de tutela por no haberse presentado la solicitud de nulidad dentro del respectivo proceso penal; 
+(ii) el solicitante no cuestiona los fundamentos de la sentencia condenatoria que se encuentra debidamente ejecutoriada, sino lo ocurrido durante el trámite dispuesto para su comunicación; y 
+(iii) la Sala, excepcionalmente, ha estudiado con posterioridad a la providencia que pone fin a un trámite, situaciones susceptibles de ser corregidas mediante la declaratoria de nulidad, cuando a ello hay lugar por cumplimiento de sus requisitos.”. 
+(iii) “Ahora bien, se podría alegar que, para la fecha de realización de la audiencia de lectura de fallo, e incluso con anterioridad, el abogado de MIGUEL ÁNGEL TORRES WILLIAMS se encontraba inhabilitado por una suspensión reportada como vigente; sin embargo, la existencia de una sanción en contra de un profesional del derecho no genera automáticamente la invalidación de la actuación, sin perjuicio de las implicaciones disciplinarias que ello pueda tener.”. 
+(iv) “La audiencia de lectura de fallo en el trámite de los recursos de casación e impugnación especial es una vista pública en la que no existe debate alguno, ni se resuelve ningún aspecto sustancial, pues se limita a la comunicación oral de un resumen de la sentencia previamente aprobada por la Sala, en desarrollo del principio de publicidad.”.
+
+---
+
+# PROVIDENCIA DDP 8518
+
+**Número de Providencia (DDP 8518):** SP083-2026
+**Radicación (DDP 8518):** 59842
+
+**Lista de Temas (DDP 8518):**
+(i) La falsedad ideológica en documento público. 
+(ii) La fe pública. 
+(iii) La falsedad en documento privado. 
+(iv) “Circunstancia de agravación por el uso del documento público ideológicamente falso”. 
+(v) El fraude procesal. 
+(vi) El cohecho por dar u ofrecer.
+
+---
+
+# PROVIDENCIA DDP 8519
+
+**Número de Providencia (DDP 8519):** SP089-2026
+**Radicación (DDP 8519):** 60218
+
+**Lista de Temas (DDP 8519):**
+(i) “La Corte ha precisado que si la imputación o la acusación no relacionaron clara y suficientemente los hechos configurativos del delito o delitos por los cuales se vincula penalmente a una persona, la consecuencia es la nulidad del trámite. Esa omisión o falta de claridad incide en la estructura misma del proceso. De la adecuada fijación de los hechos jurídicamente relevantes depende el tema de la prueba y se fijarán los límites por los que se encausará la estrategia defensiva. En otras palabras, solo una imputación precisa permite que el procesado sepa y entienda de qué cargos debe defenderse.”. 
+(ii) “Así, el concepto de hechos jurídicamente relevantes se identifica con el presupuesto fáctico previsto por el legislador en las respectivas normas penales. En su estructura deben considerarse aspectos como los siguientes: …”. 
+(iii) “Por las particularidades de cada tipo penal —elementos normativos o subjetivos especiales, dispositivos amplificadores, o atenuantes y agravantes—, los hechos jurídicamente relevantes no obedecen a un estándar concreto ni a un catálogo fijo de contenidos. No obstante, cuando en la hipótesis fáctica se omite el elemento que define la naturaleza delictiva de la conducta, la narración pierde relevancia penal. En tal evento, lo relatado deja de ser un hecho jurídicamente relevante, y esa deficiencia no puede suplirse con criterios subjetivos o conceptos eminentemente jurídicos.”. 
+(iv) “Delimitación de los hechos jurídicamente relevantes para los delitos culposos en actividades riesgosas”. 
+(v) “Partiendo de estos supuestos, el guía que dirige una práctica como el buceo asume una función de custodia respecto de los participantes. De ese modo, en la descripción de los hechos jurídicamente relevantes debe precisarse cómo, en virtud de esa posición, se le podía exigir la observancia del deber objetivo de cuidado cuyo incumplimiento se le atribuye.”. 
+(vi) Principio de congruencia. 
+(vii) “Al acusado se le atribuyó el delito de homicidio culposo, conducta descrita en el artículo 109 del Código Penal. A través de este tipo penal se sanciona a la persona que «por culpa matare a otro». El examen de la configuración del tipo penal exige verificar si el resultado lesivo puede imputarse jurídicamente a la conducta del agente a partir de la infracción al deber objetivo de cuidado, conforme a los criterios de imputación objetiva ya desarrollados (§ 2.2).”. 
+(viii) “En ese marco, la sola constatación del nexo causal entre la conducta y el resultado no basta para fundamentar la responsabilidad penal. Como lo establece el artículo 9 ibidem, «la causalidad por sí sola no basta para la imputación jurídica del resultado». Por esa razón, en los delitos culposos es necesario verificar, además, si el riesgo creado por la infracción al deber de cuidado fue jurídicamente desaprobado y se concretó en el resultado producido.”. 
+(ix) “Para poder atribuir el fallecimiento de Beatriz Elena Bertel Gómez a la conducta de JORGE LUIS MORALES CESAR es necesario delimitar los presupuestos del juicio de imputación objetiva. Esta construcción dogmática funciona como un criterio normativo que permite determinar si un resultado típico puede atribuirse jurídicamente a una conducta, más allá de la simple causalidad fáctica. Como lo precisó la Sala en CSJ SP436-2025, «la imputación objetiva permite concluir la tipicidad de una conducta siempre que esta represente un riesgo jurídicamente desaprobado y se concrete en un resultado lesivo de bienes jurídicos protegidos».”. 
+(x) “Asimismo, en otra reciente decisión (CSJ SP3369-2024), la Corte explicó que, cuando se analiza una posible conducta culposa, el juez debe realizar una valoración en dos etapas. Primero, desde una perspectiva ex ante debe establecer si la persona creó un riesgo jurídicamente desaprobado, retrotrayéndose al momento de la realización de la acción. A partir de allí examinará si, para un observador inteligente situado en la posición del autor, el hecho era adecuado para producir el resultado típico . Segundo, desde una perspectiva ex post, tendrá que evaluar si ese peligro se concretó en el resultado.”. 
+(xi) “Ahora bien, para poder establecer cuándo se concreta la creación de un riesgo no permitido, la teoría de la imputación objetiva propone una serie de límites o filtros que impiden atribuir un resultado al agente, aunque exista causalidad natural: …”. 
+(xii) La posición de garante. 
+(xiii) “Deber objetivo de cuidado en el buceo recreativo y protocolos aplicables”. 
+(ivx) “Imputación del resultado a la infracción del deber de cuidado”. 
+(xv) “La determinación de la responsabilidad penal no se agota con la verificación del tipo culposo y de la imputación objetiva del resultado. En la dogmática penal contemporánea se enseña que, aun cuando se constate la infracción al deber objetivo de cuidado, es necesario examinar si existen circunstancias que impidan atribuir el hecho al autor en sentido personal. Estas pueden ser: …”. 
+(xvi) “Acción a propio riesgo”. 
+(xvii) “La ocurrencia de un evento externo, imprevisible e irresistible”.
+
+---
+
+# PROVIDENCIA DDP 8520
+
+**Número de Providencia (DDP 8520):** AP1233-2026
+**Radicación (DDP 8520):** 63196
+**Decisión (DDP 8520):** SMS DEL 20.3.2026
+
+**Lista de Temas (DDP 8520):**
+(i) “La Sala resuelve la solicitud presentada por el apoderado de FRANCISCO AZAEL JIMÉNEZ VENEGAS mediante memorial remitido el 19 de enero del año en curso, en el que requiere el restablecimiento del término de ejecutoria del auto AP7298, emitido por esta Sala el 5 de noviembre de 2025, por medio del cual se inadmitió la demanda de revisión que presentó en nombre de dicho sentenciado.”. 
+(ii) Las notificaciones. 
+(iii) “Bajo este contexto, destaca la Sala que, conforme con los lineamientos de la Ley 906 de 2004, la regla general es que la notificación de las providencias se realice en estrados, por cuanto el sistema penal oral acusatorio se caracteriza por su naturaleza presencial.”. 
+(iv) “Sin embargo, en lo atinente a la acción de revisión -art. 195 Ley 906 de 2004-, solamente la parte final del trámite se adelanta con la presencia de las partes, una vez se profiere el auto que admite la demanda, ya que luego de ello se debe realizar la audiencia de práctica de pruebas y presentación de alegatos, así como la de lectura de sentencia.”. 
+(v) “En relación con el inicio del trámite, la normatividad que regula esta acción solo exige que, cuando se admite la demanda, el respectivo auto se notifique personalmente a los no demandantes -sin especificar el medio-, pero no señala condición alguna para la notificación del proveído que inadmite. Por consiguiente, en la actualidad las notificaciones en ambos escenarios -admisión o inadmisión- se llevan a cabo por correo electrónico, dada la opción prevista por el art. 8 de la Ley 2213 de 2022.”. 
+(vi) “Ahora bien, el mismo artículo 8 de la Ley 2213 dispone que se debe constatar, por cualquier medio idóneo, que el destinatario del mensaje tuvo acceso al mismo. Al respecto, la Corte Constitucional, en sentencia C-420 de 2020, consideró, entre otros aspectos, que esta disposición permite el conocimiento de las providencias “en tanto los correos electrónicos ofrecen seguridad y permiten probar la recepción y envío de aquella”.”. 
+(vii) “Sin embargo, la misma Corporación determinó la exequibilidad condicionada de este inciso, con el fin de evitar la interpretación consistente en que el conteo del término derivado de la providencia notificada comenzaba con el envío de esa decisión y no cuando el destinatario la recibiera. Por esa razón, señaló que “el término de dos días allí dispuesto empezará a contarse cuando el iniciador recepcione acuse de recibo o se pueda por otro medio constatar el acceso del destinatario al mensaje”.”. 
+(viii) “Se debe resaltar, luego de una lectura cuidadosa de la norma, que en ningún momento se impone al interesado en la notificación la carga de probar el acceso del destinatario al mensaje. Lo que esta disposición procura es que no pueda iniciarse la contabilización del término de ejecutoria de la providencia a notificar si la misma no arribó a su receptor.”. 
+(ix) “Por el contrario, se observa que se configura una situación de fuerza mayor en las razones expuestas por dicho profesional, con las cuales justificó la imposibilidad de notificarse del auto que inadmitió la demanda de revisión y de contar con el término de tres días para presentar recurso contra el mismo. Para el efecto, el abogado acreditó que en una fecha anterior a la del proveído, fue internado en el Hospital Universitario Méderi de Bogotá, para la realización de un procedimiento quirúrgico, y que en virtud de tal intervención le fue otorgada una incapacidad que se extendió por 60 días.”. 
+(x) “En conclusión, considera la Sala que tal circunstancia de fuerza mayor, si bien no constituyó un obstáculo para que el mensaje remitido el 27 de noviembre de 2025 arribara a la dirección de correo electrónico, sí lo fue para que el destinatario de esa comunicación pudiera acceder al mismo y enterarse oportunamente de su contenido, que resultó contrario a sus intereses. Así, en aras de efectivizar el acceso a la administración de justicia del demandante, representado judicialmente por su abogado, se estima necesario garantizar su oportunidad de controvertir la decisión que inadmitió la demanda de revisión.”.
+
+---
+
+# PROVIDENCIA DDP 8521
+
+**Número de Providencia (DDP 8521):** SP084-2026
+**Radicación (DDP 8521):** 62658
+
+**Lista de Temas (DDP 8521):**
+(i) “La adecuada delimitación de los hechos jurídicamente relevantes en el proceso penal”. 
+(ii) “… el contenido del artículo 288 de la Ley 906 de 2004 enseña que el acto de imputación debe comprender: 
+(i) la individualización concreta de la persona contra la cual se formula; 
+(ii) la advertencia de que le es posible allanarse a ella; y 
+(iii) una «relación clara y sucinta de los hechos jurídicamente relevantes». Aquellos han sido identificados por la jurisprudencia como los presupuestos fácticos que encajan o pueden subsumirse en el supuesto jurídico previsto por el legislador en el estatuto punitivo, de ahí que la relevancia jurídica de un hecho se encuentra supeditada a su correspondencia con la norma penal.”. 
+(iii) “De igual manera, en la sentencia CSJ SP1736 – 2025 (Rad. 60926) esta Corporación ratificó su jurisprudencia en materia de la adecuada delimitación de los hechos jurídicamente relevantes y reseñó las siguientes pautas que deben tenerse en cuenta cuando se discute la inadecuada formulación de los supuestos fácticos y jurídicos que delimitarán la pretensión acusatoria. Dijo al respecto: …”. 
+(iv) “Concluyó la Corte en aquella oportunidad, que la decisión de absolución, cuando opera en segunda instancia, es admisible si se trata de una discusión dirigida de manera expresa y directa al principio de congruencia bajo una lesión directamente atribuida a la decisión de primer nivel.  Resulta admisible: …”. 
+(v) “El prevaricato por omisión”. 
+(vi) “En efecto, la condena por el delito contra la administración pública se fundó en hechos totalmente disímiles de aquellos por los cuales fuera llamado a juicio por la Fiscalía General de la Nación, contrario al entendimiento del Juez Colegiado, pues si bien el pliego contenía, en términos generales, la omisión de adelantar el trámite previsto en el artículo 81 de la Ley 1801 de 2016, no se delimitó como correspondía, la atribución fáctica y jurídica del tipo penal omisivo por el que finalmente fue condenado.”. 
+(vii) “[s]i la acusación, en concordancia con la imputación, detalla unos hechos jurídicamente relevantes que luego, en la práctica probatoria, se verifican contradichos, vale decir, las pruebas allegadas en juicio desvirtúan la teoría del caso de la Fiscalía en tanto demuestran unas circunstancias distintas, independientemente de que por sí mismas representen otro delito, la obligada solución es la absolución, habida cuenta que no es posible condenar por ilicitudes distintas, en lo fáctico y jurídico y tampoco es dable hallar una causal de invalidación de lo actuado”.
+
+---
+
+# PROVIDENCIA DDP 8522
+
+**Número de Providencia (DDP 8522):** SP086-2026
+**Radicación (DDP 8522):** 60993
+**Decisión (DDP 8522):** CASA, DISPONE LA NULIDAD Y SE PRECLUYE POR PRESCRIPCIÓN.
+
+**Lista de Temas (DDP 8522):**
+(i) “De los derechos de los menores vinculados a un proceso penal”. 
+(ii) “… la Sala de Casación Penal analizó la tendencia global de exclusión de responsabilidad de menores de edad, con patologías mentales, de la siguiente manera: …”. 
+(iii) “En suma, es la misma legislación la que impone que los adolescentes sujetos pasivos de una acción penal, del que se tenga información que pueden tener alguna discapacidad psíquica o mental, se “excluyen de ser juzgadas, declaradas penalmente responsables ni sometidas a sanciones penales”, por lo tanto, se deben extremar las medidas para la salvaguarda de las garantías que les concede el ordenamiento.”. 
+(iv) “En el anterior contexto, el juez, las partes y los intervinientes en el proceso penal tienen múltiples responsabilidades de cara a determinar que el procesado sea imputable y conozca y entienda cuáles comportamientos jurídico-penales son los que le reprocha la Fiscalía; obligaciones que tienen mayor relevancia cuando el sujeto pasivo de la acción penal es una persona con especial protección constitucional.”. 
+(v) “Por lo tanto, en los casos en los cuales el procesado sea un menor de edad (mayor de 14 años y menor de 18), la Fiscalía no podrá llevar a juicio (Ley 906 de 2004), ni correr traslado del escrito de acusación (Ley 1826 de 2017), cuando de los elementos materiales probatorios surja la posibilidad de que el implicado pueda padecer una discapacidad psíquica o mental. Ello bajo el entendido que el tema de inimputabilidad debe ser esclarecido completamente antes de la imputación y/o de la acusación.”. 
+(vi) “Aunque resulta recomendable que, en casos similares, bien la Fiscalía o la defensa, procuren la práctica de una prueba pericial sobre el estado mental del menor, lo cierto es que para la verificación de la capacidad del adolescente vinculado a un proceso penal no existe tarifa legal; por consiguiente, la determinación de ese aspecto trascendental corresponderá al Juez, y será producto de la valoración conjunta de las pruebas que le aporten.”. 
+(vii) La nulidad. 
+(viii) “Prescripción de la acción como consecuencia de la nulidad.”.
+
+---
+
+# PROVIDENCIA DDP 8523
+
+**Número de Providencia (DDP 8523):** SP079-2026
+**Radicación (DDP 8523):** 68515
+**Decisión (DDP 8523):** LA PRIMERA CONDENA EN ESTE CASO, LA ENCUENTRA EN LA DDP 7196. SMS DEL 24.3.2026
+
+**Lista de Temas (DDP 8523):**
+(i) “Lo anterior sólo evidencia el actuar célere de la Corte puesto que, entre la fecha de reparto al despacho del magistrado sustanciador y la decisión de la Sala, apenas transcurrieron seis días hábiles, lo cual, de ninguna manera compromete por sí mismo el derecho al debido proceso del implicado, sino, por el contrario, materializa esta garantía cuando en el diligenciamiento se ha observado el trámite establecido por la ley.”. 
+(ii) “Por tanto, en el presente asunto sólo se advierte el cumplimiento de lo establecido en el Código de Procedimiento Penal dado que, allegado el proceso a la Corte, el magistrado ponente registró el proyecto antes de que venciera el plazo de diez días; la Sala lo discutió y aprobó en menos de los cinco días posteriores y, finalmente, el fallo fue leído dentro del término de 10 días.”. 
+(iii) “Ahora, la crítica relacionada con la ausencia de respuesta de la Corte frente a uno de los motivos de controversia del representante judicial de la víctima, específicamente la presunta revocatoria de la absolución por el delito de abuso de función pública, merece los siguientes comentarios.”. 
+(iv) El dolo en el prevaricato por acción. 
+(v) “La Corte destaca que la estructura del dolo en el delito de prevaricato por acción no es distinta a la establecida en el artículo 23 del Código Penal. Se trata del dolo neutro o avalorado, en el sentido que implica el conocimiento de los hechos y la voluntad de su realización, mas no reclama un determinado ánimo o elemento subjetivo especial de obrar injustamente. Por ello, para acreditar el dolo basta probar que el servidor público conozca la naturaleza de la resolución, dictamen o concepto del acto que realiza, aunado al conocimiento de que es manifiestamente contrario a la ley, con lo cual, incumple su deber funcional y, al realizarlo en forma voluntaria, estructura la autoría del prevaricato por acción.”. 
+(vi) “Reitérese (Cfr. CSJ SP034–2026, 4 feb. 2026, rad. 71169) que la sola experiencia, examinada esta desde el ámbito meramente temporal, resulta elemento insuficiente para pregonar que un funcionario judicial debía conocer determinado tema o no podía llegar a confundirse frente a él, pues, en una realidad vasta y cambiante como la de la ley y el derecho, es apenas natural la existencia de fisuras, confusiones o ambigüedades.”.
+
+---
+
+# PROVIDENCIA DDP 8524
+
+**Número de Providencia (DDP 8524):** SP118-2026
+**Radicación (DDP 8524):** 60381
+
+**Lista de Temas (DDP 8524):**
+(i) “De los delitos de acceso carnal violento y acceso carnal abusivo”. 
+(ii) “… debe recordarse que el desconocimiento del principio de congruencia no solo comporta vulneración de la estructura del proceso. También afecta el derecho a la defensa, por cuanto el sujeto pasivo de la acción penal es sorprendido en la sentencia con imputaciones fácticas y/o jurídicas respecto de las cuales no ha tenido oportunidad de controversia …”. 
+(iii) “… mientras la congruencia jurídica es flexible y permite que la calificación típica de la conducta investigada y juzgada varíe en las distintas fases del proceso (con ciertas condiciones), la congruencia fáctica es estricta, por lo cual la atribución de los hechos jurídicamente relevantes debe mantenerse indemne desde su formulación en la audiencia preliminar de imputación: …”. 
+(iv) “Aunque es posible que, luego de formular la imputación, la Fiscalía se entere de hechos jurídicamente relevantes que ignoraba cuando aquélla tuvo lugar. En tal evento, lo procedente justamente para respetar el principio de congruencia, es que los comunique en una ampliación de esa diligencia: …”. 
+(v) “También tiene discernido la Corte que, aunque es en la imputación de cargos cuando se establece el marco fáctico del proceso, «jamás será posible condenar por hechos que no consten en la acusación, aunque hayan sido atribuidos en la imputación de cargos». Es decir, «aunque hayan sido formulados de manera correcta los hechos jurídicamente relevantes en la imputación, cuando estos no obren en la acusación, se violará el principio de congruencia si el juez condena por aquellos referentes de hecho».”. 
+(vi) “El principio de congruencia jurídica”. 
+(vii) “… la variación de la calificación jurídica …”. 
+(viii) “A través de la prueba de «corroboración» se puede otorgar mayor credibilidad a la versión de la víctima cuando probatoriamente se constatan datos como: 
+(i) la inexistencia de razones para que la víctima y/o sus familiares mientan con la finalidad de perjudicar al procesado; 
+(ii) el daño psíquico causado a raíz del ataque sexual; 
+(iii) el estado anímico de la víctima en los momentos posteriores a la ocurrencia de los hechos, entre otros. …”. 
+(ix) “Como se advirtió en acápite previo, la congruencia en su arista jurídica es flexible. Pese a ello, deben preverse ciertos presupuestos que aseguren las garantías de procesados y víctimas. Estos son: …”. 
+(x) “Así pues, la Sala ha reiterado que la variación de la identidad del bien jurídico de la nueva conducta no es presupuesto del principio de congruencia, por lo que la modificación de la calificación jurídica puede efectuarse dentro de todo el Código Penal, aunque la nueva calificación jurídica no corresponda al mismo título o capítulo.”.
+
+---
+
+# PROVIDENCIA DDP 8525
+
+**Número de Providencia (DDP 8525):** AHP035-2026
+**Radicación (DDP 8525):** 72145
+
+**Lista de Temas (DDP 8525):**
+(i) “En concreto, el accionante sostiene que su privación de la libertad está siendo prolongada ilegalmente, pues, a su juicio, al haber cumplido el requisito objetivo de las tres quintas partes de la pena, el Juzgado Sexto de Ejecución de Penas y Medidas de Seguridad de Cúcuta podía resolver de fondo la solicitud de libertad condicional presentada el 12 de febrero de 2026, sin supeditar la decisión a la práctica de la visita domiciliaria y al recaudo de información adicional ordenados mediante auto del 18 de febrero siguiente.”. 
+(ii) “De la subsidiariedad en la acción de habeas corpus”. 
+(iii) “Pese a lo anterior, de forma excepcional, el juez de habeas corpus está facultado para pronunciarse sobre las limitaciones a la libertad, cuando la decisión que afectó dicha garantía incurrió en una irregularidad, es decir, contenga errores objetivos y evidentes que pongan en duda la legalidad que la reviste. Como lo ha precisado la Corte, cuando la decisión judicial que restringe la libertad personal pueda catalogarse como una vía de hecho, el habeas corpus resulta procedente cuando se invoque como una garantía inmediata del derecho fundamental a la libertad, al advertirse razonablemente la ocurrencia de un perjuicio irremediable …”. 
+(iv) “El artículo 64 del Código Penal establece que la libertad condicional procede cuando concurren varios requisitos: 
+(i) el cumplimiento de las tres quintas partes de la pena; 
+(ii) un adecuado desempeño y comportamiento durante el tratamiento penitenciario que permita suponer fundadamente que no existe necesidad de continuar con la ejecución intramural; 
+(iii) la demostración de arraigo familiar y social; y 
+(iv) la reparación a la víctima o el aseguramiento de su pago, salvo demostración de insolvencia.”. 
+(v) “Nótese que la norma dispone expresamente que corresponde al juez establecer, con todos los elementos de prueba allegados a la actuación, la existencia o inexistencia del arraigo. De esta manera, el cumplimiento del requisito temporal no agota el análisis exigido por la ley, pues el juez de ejecución de penas tiene el deber de verificar integralmente los presupuestos del subrogado antes de adoptar una decisión de fondo.”. 
+(vi) “La circunstancia de que aún no se haya decidido la solicitud de libertad condicional no constituye, por sí misma, vulneración del derecho fundamental a la libertad personal, pues la procedencia o no de dicho subrogado, al igual que su eventual revocatoria, es competencia exclusiva de los jueces de ejecución de penas y medidas de seguridad. En tal sentido, el estudio de los motivos que conducen a su concesión o negativa escapa al ámbito del juez constitucional de hábeas corpus.”. 
+(vii) “Adicionalmente, la concesión de la libertad condicional no implica la extinción de la pena ni la cesación del cumplimiento de la condena, pues quien accede al subrogado continúa sometido al período de prueba y a las condiciones fijadas por la autoridad judicial …”.
+
+---
+
+# PROVIDENCIA DDP 8526
+
+**Número de Providencia (DDP 8526):** SP135-2026
+**Radicación (DDP 8526):** 69521
+
+**Lista de Temas (DDP 8526):**
+(i) El espionaje. 
+(ii) “Recuento histórico del delito de espionaje en Colombia.”. 
+(iii) “Del delito de espionaje en la Ley 599 de 2000.”. 
+(iv)  “De la información pública y militar, su clasificación y manejo.”.
+
+---
+
+# PROVIDENCIA DDP 8527
+
+**Número de Providencia (DDP 8527):** AP874-2026
+**Radicación (DDP 8527):** 63858
+
+**Lista de Temas (DDP 8527):**
+(i) “Contrario a tan elementales presupuestos de claridad, precisión y adscripción a una causal determinada, el desprolijo escrito presentado por la defensa ni siquiera alcanza el rótulo de recurso ordinario, pues, en una deshilvanada e ilógica presentación de cargos, termina apenas por reiterar lo que se alegó, como postura de parte, ante las instancias, sin siquiera ocuparse de demostrar en qué radica el yerro o postura equivocada de los fallos.”. 
+(ii) “En este sentido, el argumento que busca hacer valer el impugnante, no pasa de representar una muy interesada visión, carente de cualquier contexto, acerca de lo que, en su sentir, debe extractarse de los medios suasorios recogidos en el juicio, como si se tratase de un alegato de cierre y no de fundamentar una controversia o contradicción específica con los fundamentos que soportan la condena, mínimo que debe sustentar cualquier recurso, incluso los ordinarios.”. 
+(iii) “Es necesario precisar al demandante, que el objeto de discusión en tratándose del recurso extraordinario de casación, no lo es la prueba en sí misma, sino el examen, lectura y valoración que de ella efectuó el fallador, razón por la cual carece de sentido referirse solo a su contenido, acorde con la postura que de ella se tenga, pues, con ello se desatiende la obligación elemental de verificar un vicio o yerro atribuible al sentenciador.”. 
+(iv) “El recurrente, además, desatiende que las causales de casación poseen una naturaleza, forma de demostración y efectos diferentes e incluso contrarios, motivo por el cual emerge un completo desatino alegar que una misma forma de violación se corresponde con dos distintas causales.”. 
+(v) “Para el caso, el recurrente parte por sostener que los primeros cargos se soportan en la causal primera, que responde a la violación directa de la ley sustancial.”. 
+(vi) “Si ello es así, se espera que la alegación propuesta discurra por el campo estrictamente jurídico o dogmático, lo que obliga respetar los hechos despejados por el fallador y el examen de las pruebas que lo nutrió, como quiera que lo buscado demostrar por el recurrente debe ser, precisamente, que a esos hechos y pruebas indiscutibles, se aplicó una norma que no los cubre.”. 
+(vii) “Acerca del tópico de la investigación integral, entonces, debe señalarse que, en un proceso de partes, consustancial al trámite de Ley 906 de 2004, no impera dicho principio, en tanto, a la Fiscalía y a la defensa les compete, por sí mismos, presentar los elementos de juicio que corroboran o soportan su particular teoría del caso, sin obligación de investigar “lo favorable al procesado”, para el caso del ente investigador, como entiende el defensor.”.
+
+---
+
+# PROVIDENCIA DDP 8528
+
+**Número de Providencia (DDP 8528):** AP931-2026
+**Radicación (DDP 8528):** 66459
+**Decisión (DDP 8528):** SMS DEL 25.3.2026
+
+**Lista de Temas (DDP 8528):**
+(i) “Cuando se acude a la violación indirecta de la ley sustancial, se tiene la carga de cumplir con las exigencias argumentativas propias de la modalidad del error escogido (de hecho o de derecho). Además, desde la óptica sustancial es necesario que el impugnante desmonte los fundamentos probatorios de la unidad decisoria conformada por las sentencias de instancia”. 
+(ii) “De este modo, la Sala observa que el demandante formuló un cargo en el que, más allá de plantear una violación indirecta de la ley sustancial, no distinguió la especie de error que dio lugar a ella. A esto cabe agregar que no basta con invocar en abstracto la trascendencia del yerro con expresiones vagas como que «se violaron la sana crítica, la objetividad, la legalidad o los parámetros mínimos de la argumentación judicial, lo que ocasiona que el funcionario adopte la decisión basado en elementos fácticos o normativos que resultan incomprensibles para los sujetos procesales involucrados como ocurre en este caso concreto».”. 
+(iii) “Para ilustrar la relevancia del error, era su obligación identificar de manera concreta la prueba cuestionada, precisar el tipo de yerro cometido sobre ella —identidad, existencia o raciocinio— y demostrar que este fue determinante en la decisión. Solo así podría afirmarse y demostrarse que, de haberse valorado correctamente, el fallo habría tenido un sentido distinto.”. 
+(iv) “En definitiva, lo que la censura revela es el propósito del recurrente de enfrentar su propio criterio al del juzgador, aguardando a que sean sus deducciones sobre el valor que tienen las pruebas, las que se prefieran. Tal ejercicio está en abierto desconocimiento de la naturaleza del recurso de casación, en cuya sede se enjuicia la legalidad del fallo y no los criterios de valoración probatoria.”.
+
+---
+
+# PROVIDENCIA DDP 8529
+
+**Número de Providencia (DDP 8529):** No especificado
+**Radicación (DDP 8529):** 01515
+
+**Lista de Temas (DDP 8529):**
+(i) “El apoderado solicitó la concesión del instituto previsto en el artículo 314 de la Ley 906 de 2004, referido a la posibilidad de sustituir la ejecución de la pena intramural por la prisión domiciliaria en casos en los que el penado sea mayor de 65 años. Adujo que el condenado supera la edad prevista para acceder al subrogado en cuestión y que su personalidad, así como la naturaleza y modalidad del delito por el cual fue hallado responsable penalmente, se encuentran acreditados.”. 
+(ii) “Incidencia del parágrafo del artículo 314 del CPP4 a la hora de analizar la edad (mayor de 65 años) como causal para conceder la prisión domiciliaria.”. 
+(iii) “Nulidad por defectos de motivación de la decisión judicial”. AEP034 -2026.
+
+---
+
+# PROVIDENCIA DDP 8530
+
+**Número de Providencia (DDP 8530):** SP053-2026
+**Radicación (DDP 8530):** 67632
+
+**Lista de Temas (DDP 8530):**
+(i) “Precisamente, frente al tema vertebral que gobierna el reproche del censor, la precedente postura jurisprudencial fue modificada por la Corte, a efectos de advertir que no es factible confundir el allanamiento a cargos con los preacuerdos, en lo que respecta con la obligación de devolver el incremento patrimonial obtenido con el delito, para así acceder a la correspondiente rebaja de pena.”. 
+(ii) “En efecto, en decisión CSJ SP1901-2024, 17 jul. 2024, Rad. 64214, después de analizar la exposición de motivos que llevaron a la expedición del artículo 349 de la Ley 906 de 2004, junto con varios precedentes constitucionales y las dos posturas en las que la Sala de Casación Penal ha dado movimientos pendulares acerca de la aludida temática -la primera, cifrada en que ambas figuras son equivalentes y, por ende, es exigible el reintegro; y la segunda, consistente en que no son equiparables y, por tanto, no es exigible el reintegro-, se reinterpretó tal disposición, a través de distintos métodos, para sostener: …”. 
+(iii) “Acorde con esta concepción, en el pronunciamiento en cita (CSJ SP1901-2024, 17 jul. 2024, Rad. 64214), la Sala mayoritaria estableció que el allanamiento a cargos y el preacuerdo son figuras que permiten dar por terminado de manera anticipada el proceso, pero no son equivalentes, hasta concluir que resulta improcedente aplicar el artículo 349 de la Ley 906 de 2004, cuando se acude a la figura del allanamiento a cargos.”. 
+(iv) “Lo anterior no significa que los derechos de las víctimas queden desamparados, comoquiera que el ordenamiento jurídico ofrece múltiples alternativas para que estas logren acceder a la reparación de los daños padecidos con el delito, claramente discernidas en el pronunciamiento que viene de citarse, así: …”. 
+(v) “En la decisión jurisprudencial que sirve de base a la casación que ahora se anuncia, se definió que, si bien, en el allanamiento a cargos no se obliga el reintegro de lo apropiado, de todos modos, este sí se alza como un factor a considerar cuando se trata de determinar en concreto el porcentaje de reducción de pena a que tiene derecho la persona que acepta cargos de forma unilateral.”.
+
+---
+
+# PROVIDENCIA DDP 8531
+
+**Número de Providencia (DDP 8531):** SP115-2026
+**Radicación (DDP 8531):** 68970
+
+**Lista de Temas (DDP 8531):**
+(i) “Elementos del delito de prevaricato por acción”. 
+(ii) “En lo que respecta al elemento subjetivo de la conducta, como quiera que el delito de prevaricato por acción es de modalidad dolosa, esto implica probar que el autor sabe que actúa en contra del derecho y que, tras ese conocimiento, voluntariamente decide vulnerarlo (CSJ SP2129–2022, rad. 54153). Vale decir, que obra con conocimiento y voluntad de desconocer la normatividad legal aplicable al caso …”. 
+(iii) “Debe tenerse en cuenta que no son objeto de reproche penal las decisiones producto de la impericia, ignorancia o inexperiencia (CSJ SP2438–2019, rad. 53651 y CSJ SP1971–2020, rad. 56203), mientras que la conducta efectivamente se configura cuando no está presente la convicción de acertar, de obrar bien, de buena fe, sino la finalidad opuesta a estos propósitos”. 
+(iv) “Actos de parte de la Fiscalía como constitutivos de resoluciones manifiestamente contrarias a la ley”. 
+(v) “Si bien, como titular de la acción penal, los delegados de la Fiscalía General de la Nación están facultados para delimitar los contornos fácticos y jurídicos de la acción penal, ello debe obedecer a una lectura objetiva de los resultados de los actos de investigación. Cuando es ejercido en forma injustificada, como en el caso examinado, la actuación adquiere un carácter caprichoso, por completo alejado del ordenamiento jurídico.”.
+
+---
+
+# PROVIDENCIA DDP 8532
+
+**Número de Providencia (DDP 8532):** AP437-2026
+**Radicación (DDP 8532):** 70535
+**Decisión (DDP 8532):** SMS DEL 26.3.2026
+
+**Lista de Temas (DDP 8532):**
+(i) “Los argumentos sobre la aplicación de la Ley 890 de 2004 y la consecuente prescripción de la acción penal del delito de fraude procesal, se sintetizan en que dicha normatividad no aplica para los casos que se investigan y juzgan conforme a la Ley 600 de 2000.”. 
+(ii) “En este sentido, cabe destacar cómo, en el pronunciamiento CSJ SP379-2018, 21 feb. 2018, Rad. 50472, la Sala de Casación Penal varió la tesis que imperaba hasta ese momento, consistente en que el incremento generalizado de penas del artículo 14 de la Ley 890 de 2004, solo procedía para asuntos regidos por la Ley 906, para, en su lugar, precisar que tal aumento punitivo debía imponerse para los casos adelantados por ambos estatutos procedimentales (Ley 906 de 2004 y Ley 600 de 2000), a partir de la fecha de vigencia de la Ley 890, esto es, el 1º de enero de 2005.”. 
+(iii) “Así las cosas, los procesos tramitados contra los congresistas bajo la égida de la Ley 600 de 2000, por conductas punibles cometidas después del 1º de enero de 2005, se les aplica el incremento punitivo de que trata el artículo 14 de la Ley 890 de 2004.”. 
+(iv) “Cabe recordar que el fraude procesal es un delito de carácter permanente, por lo cual la prescripción de la acción penal inicia su conteo desde la fecha en la cual cesan los efectos del acto que indujo en error al servidor público.”. 
+(v) La prescripción del fraude procesal en este caso. 
+(vi) “De la conexidad bajo los lineamientos de la Ley 600 de 2000”. 
+(vii) La conducencia. 
+(viii) La pertinencia. 
+(ix) La utilidad.
+
+---
+
+# PROVIDENCIA DDP 8533
+
+**Número de Providencia (DDP 8533):** SP036-2026
+**Radicación (DDP 8533):** 61355
+
+**Lista de Temas (DDP 8533):**
+(i)  Las nulidades. 
+(ii) “Según dice, la parte afectada con el delito estuvo presente durante la audiencia de lectura de fallo, sin que, a su terminación, hiciera alusión a la interposición de recurso alguno; por el contrario, manifestó su insatisfacción con posterioridad, cuando la sentencia había cobrado ejecutoria. Por esa razón, el Tribunal no podía pronunciarse de fondo; en su lugar, debió declararse extemporáneo el recurso.”. 
+(iii) “Resulta evidente que la sentencia absolutoria no cobró ejecutoria material y formal en la misma fecha de su lectura, dado que la víctima y su apoderado no contaron con la posibilidad de interponer, en estrados, el recurso de apelación: de un lado, porque se demostró la desconexión del apoderado de la víctima, por fallas técnicas y, de otro, porque el juez no corrió traslado a la víctima, en curso de la audiencia, para permitirle interponer el recurso en mención.”. 
+(iv) “Cuando se alega, por la vía de vulneración de garantías de alguna de las partes, la violación del derecho de defensa, debe el impugnante demostrar objetivamente que, durante el curso del proceso, hubo evidente inactividad o negligencia del profesional del derecho y la manera en que esa omisión, propia de su encargo, afectó la condición del implicado.”. 
+(v) “Ahora, ese mismo ejercicio –demostrar que no eran testigo de los hechos-, bien pudo la defensa, igualmente, acreditarlo en el juicio, pero a través de la prueba de refutación, que tiene como finalidad controvertir la credibilidad del testigo o del perito, inmediatamente después de que éste rinde su testimonio, tal cual lo ha reconocido esta Corte: …”.
+
+---
+
+# PROVIDENCIA DDP 8534
+
+**Número de Providencia (DDP 8534):** SEP042-2026
+**Radicación (DDP 8534):** 00904
+
+**Lista de Temas (DDP 8534):**
+Sentencia condenatoria de Primer Grado en contra del senador CIRO ALEJANDRO RAMÍREZ CÓRTES por la presunta comisión de los delitos de concierto para delinquir agravado, cohecho propio e interés indebido en la celebración de contratos.
+
+---
+
+# PROVIDENCIA DDP 8535
+
+**Número de Providencia (DDP 8535):** AP1390-2026
+**Radicación (DDP 8535):** 68574
+**Decisión (DDP 8535):** SE REVOCA LA PRECLUSIÓN POR EL TIPO PENAL DE OCULTAMIENTO, ALTERACIÓN O DESTRUCCIÓN DE ELEMENTO MATERIAL PROBATORIO. SMS DEL 27.3.2026
+
+**Lista de Temas (DDP 8535):**
+(i) “En los eventos en que la Fiscalía, luego de analizar los resultados obtenidos en sus averiguaciones preliminares, concluye de las evidencias físicas, los elementos materiales de prueba, o la información acopiada legalmente, que se está frente a la realización de la conducta punible y que el indiciado es autor o partícipe de ella, en términos de inferencia razonable, debe formular la imputación ante el juez de control de garantías.”. 
+(ii) “Sin embargo, si la Fiscalía al llevar a cabo esta labor establece que se configura alguna de las causales previstas en el artículo 332 de la Ley 906 de 2004, está facultada para solicitar la preclusión de la investigación al juez de conocimiento, decisión que puede ser adoptada en la indagación, en la investigación y en el juzgamiento. En este último caso, por causales objetivas.”. 
+(iii) “El instituto de la preclusión de la investigación penal permite la terminación del proceso, cuando no existen motivos probatorios o jurídicos para avanzar en él. Implica adoptar una decisión definitiva por parte del juez de conocimiento, cuyo efecto es el de cesar la persecución penal contra el implicado respecto de los hechos objeto de investigación, por lo que está investida de la fuerza vinculante de la cosa juzgada.”. 
+(iv) “La causal prevista en el numeral 4º del artículo 332 de la Ley 906 de 2004, por la que se solicitó la preclusión en este caso, prevé como motivo de improcedencia de la acción penal la atipicidad del hecho investigado. Al respecto la Corte ha dicho  que: …”. 
+(v) “Igualmente, la Corte ha reconocido  su estructuración cuando la conducta no se adecúa a las exigencias materiales del tipo penal, o cuando concurriendo, falla la tipicidad subjetiva, veamos: …”. 
+(vi) “La Sala de Casación Penal, excepcionalmente, ha admitido la posibilidad del decreto de preclusión por causal distinta a la propuesta por el interesado; y para ello se acude al principio de economía procesal, siempre que «sus componentes estructurales (…) así lo determinen».”. 
+(vii) “Consideraciones sobre el tipo penal de ocultamiento, alteración o destrucción de elemento material probatorio”. 
+(viii) “Con respecto al valor probatorio del elemento sobre el cual recae el ilícito, esta Sala ha sostenido lo siguiente: …”. 
+(ix) “Consideraciones sobre el delito de fraude a resolución judicial o administrativa de policía.”. 
+(x) Prescripción por el tipo penal de fraude a resolución judicial o administrativa de policía.
+
+---
+
+# PROVIDENCIA DDP 8536
+
+**Número de Providencia (DDP 8536):** SP042-2026
+**Radicación (DDP 8536):** 65698
+
+**Lista de Temas (DDP 8536):**
+(i) “Con el cometido de analizar la probable violación al principio de congruencia por la condena irrogada a YEISON GIOVANNY SÁNCHEZ MEJÍA, IVÁN DANIEL SÁNCHEZ MEJÍA, CARLOS ANDRÉS ROSAS SÁNCHEZ, GERMÁN EDUARDO RESTREPO SÁNCHEZ y GERARDO GUTIÉRREZ HERNÁNDEZ por el delito de lesiones personales con perturbación psíquica permanente, la Sala delineará las aristas del principio en mención, de cara al procedimiento penal abreviado, y con sustento en ello, dirimirá el caso concreto.”. 
+(ii)  “Por lo expuesto, si después de formulada la imputación la Fiscalía advierte que pretermitió hechos jurídicamente relevantes o si, con ocasión de los actos de investigación, sobrevinieron premisas fácticas que alteran la inicial comunicación de cargos, al punto que, por afectarse el núcleo fáctico de la inicial imputación se configuran otras hipótesis delictivas, el ente acusador debe procurar su adición mediante otra audiencia preliminar ante juez de control de garantías, previo a radicar el escrito de acusación.”. 
+(iii) “Regla que aplica, también, al procedimiento especial abreviado, pues aun cuando este no prevé la audiencia de formulación de imputación, el traslado de la acusación hace las veces de esta, según el parágrafo 4º del artículo 536 del C.P.P., como se indicó líneas atrás. Luego, para incluir nuevas aristas fácticas que generen consecuencias jurídicas no conocidas por el procesado en el acto inicial de comunicación de cargos, sin afrentar el debido proceso, en el derecho de defensa y el principio de congruencia, es menester que la Fiscalía realice otro traslado de la acusación, antes de la audiencia concentrada.”. 
+(iv) “En ese orden, comoquiera que ambas instancias avalaron el preacuerdo por el delito de lesiones personales por perturbación psíquica permanente, sin advertir que este no fue imputado fáctica ni jurídicamente, para la Sala es clara la afectación al debido proceso y, en concreto, al principio de congruencia, ya que los acusados fueron declarados culpables por hechos que no constaron en el traslado de la acusación.”.
+
+---
+
+# PROVIDENCIA DDP 8537
+
+**Número de Providencia (DDP 8537):** SP117-2026
+**Radicación (DDP 8537):** 68601
+
+**Lista de Temas (DDP 8537):**
+(i) El prevaricato por acción. 
+(ii) “La decisión cuestionada como prevaricadora, fue la emitida el 10 de febrero de 2014, mediante la cual ordenó la cancelación de la orden de captura emitida por la Fiscalía 8 Delegada ante el Tribunal de Soledad contra el señor Héctor Manuel Pulgar Martínez, concediéndole la libertad. Así mismo, dejó sin efecto el oficio n.º 085 de 20 de junio de 2013, que hacía efectivas unas medidas de restablecimiento del derecho a favor de las víctimas.”. 
+(iii) “Si bien para el 2014, en relación con el fraude procesal, aún no se había emitido la resolución de acusación, ello no significaba que se pudiera cambiar el rito procesal por no haberse consolidado el llamamiento a juicio. La tesis de la razón objetiva, que también desconoció el acusado sin fundamento alguno, estaba vigente desde tiempo atrás, siendo inexcusable su desconocimiento o la hipótesis de una interpretación diferente.”. 
+(iv) “Ahora bien, de cara al delito permanente cuando en su ejecución ha mediado un cambio de sistema en el distrito judicial donde ha de adelantarse la actuación, no cavila el juicio para predicar que respecto de esa conducta punible resultan potencialmente aplicables las dos legislaciones, pues al fin y al cabo bajo el imperio de ambas se ejecutó el delito, dada la mencionada condición de permanencia. No empece lo dicho, no resulta jurídicamente aplicable tal pregón, dada la distinta caracterización de uno y otro sistemas, referida -entre otros tópicos- a la permanencia de la prueba, los funcionarios que intervienen, los términos para adelantar las actuaciones, la forma de interposición y trámite de recursos, las funciones específicas de un juez de garantías, la imposibilidad para llevar a cabo negociaciones de pena, etc., todo lo cual conduce inexorablemente a que se deba seleccionar una de las dos legislaciones para aplicarla in integrum, evitando la mezcla de procedimientos. …”. 
+(v) “El dolo no requiere prueba directa de su realización, pues exigirlo llevaría al imposible de auscultar el pensamiento de quien concurre en la realización de un delito para determinar su conocimiento de los hechos y la voluntad de ejecutarlos. Como se anticipó en líneas anteriores, para el caso del prevaricato por acción, se pueden tener en cuenta aspectos subjetivos relacionados con los criterios utilizados para sustentar la decisión manifiestamente ilegal, datos objetivos relacionados con la misma e incluso la trayectoria y experiencia del acusado (cfr. párr. 48).”. 
+(vi) “Por último, estimaron los recurrentes que se debió demostrar que los hechos estuvieran motivados por un ánimo de corrupción. Esta postura, no obstante, desconoce la tesis pacífica e invariable de la Corte, según la cual no se requiere demostrar que el servidor público actuó bajo el influjo de algún interés. En reciente decisión, ese criterio fue abordado y reiterado de la siguiente manera: …”.
+
+---
+
+# PROVIDENCIA DDP 8538
+
+**Número de Providencia (DDP 8538):** SP114-2026
+**Radicación (DDP 8538):** 59413
+**Decisión (DDP 8538):** SMS DEL 30.3.2026
+
+**Lista de Temas (DDP 8538):**
+(i) “Oportunidad para la interposición y sustentación del recurso de impugnación especial”. 
+(ii) “Los hechos jurídicamente relevantes y la alegada violación del principio de congruencia” para este caso. 
+(iii) “La formulación de imputación se constituye en un  condicionante fáctico de la acusación —o del allanamiento o del preacuerdo—, sin que los hechos puedan ser modificados, estableciéndose así una correspondencia desde la arista factual, lo cual implica respetar el núcleo de los hechos, sin que ello signifique la existencia de un nexo necesario o condicionante de índole jurídica entre tales actos.// Con esta perspectiva, la Sala más allá del principio de congruencia que se materializa desde el acto de acusación al definir los aspectos material, jurídico y personal del objeto del proceso los cuales se reflejarán en la sentencia, ha hecho énfasis en el principio de coherencia a fin que a lo largo del diligenciamiento se preserve el núcleo fáctico entre los actos de formulación de imputación y acusación, estándole vedado al ente investigador adicionar gradualmente hechos nuevos …”.  
+(iv) “La Sala ha resaltado la práctica poco recomendable que consiste en dar lectura a la denuncia penal -que solo tiene carácter informativo- o a los elementos materiales probatorios, para sustentar la imputación. En este caso se presentaron deficiencias en esa comunicación, al haberse mezclado algunos hechos indicadores con los jurídicamente relevantes, sin embargo, lo cierto es que a los procesados se les proporcionó información clara y suficiente sobre los cargos atribuidos en su contra, que fueron los mismos por los que se dictó sentencia condenatoria.”. 
+(v) ““cuando la cuestión prejudicial al proceso penal es al mismo tiempo elemento configurativo del delito investigado y el juicio civil, laboral o administrativo que pretende resolverla de manera definitiva se hubiese iniciado después de cometido el hecho punible y no antes, el juez penal goza de plena competencia para decidir cuestiones extrapenales atinentes a la tipicidad del hecho, sin necesidad de suspender la calificación del sumario a la espera de una decisión por parte de otra jurisdicción (…)” …”. 
+(vi) “De manera consistente, la jurisprudencia de esta Sala ha explicado que, para la estructuración típica del delito de estafa se deben presentar los siguientes comportamientos de manera secuencial y concatenada, así: i) despliegue de un artificio o engaño dirigido a generar o mantener en error a la víctima; ii) error o juicio falso de quien sufre el engaño, determinado por el ardid; iii) obtención, por ese medio, de un provecho ilícito; iv) perjuicio correlativo del otro y v) sucesión causal entre el artificio o engaño y el error, así como entre éste y el provecho injusto que afecta el patrimonio ajeno …”. 
+(vii) “Como lo ha explicado esta Corporación,  «de un hecho probado se puede inferir el hecho por establecer (…) Pero como todo indicio, la inferencia parte de un hecho que debe estar probado» (CSJ SP4412-2019, Rad. 54593). En otras palabras, un hecho indicador es una objetividad plenamente establecida, de la que pueden inferirse otras objetividades, a través de un riguroso proceso lógico.”. 
+(viii) “Por ejemplo, cuando se falsifica un documento para inducir en error al registrador de instrumentos públicos, puede prescribir la falsedad y quedará en la impunidad esa infracción, pero el hecho no desaparece y puede demostrarse para efecto de establecer la inducción en error del fraude procesal. En el mismo sentido, la ausencia de un fallo de condena por la falsedad documental, no hace que el hecho desaparezca de la realidad histórica y que no pueda considerarse, si es debidamente demostrado, como sustento para la configuración de otro delito, como ocurre en este caso.”. 
+(ix) “Medidas de restablecimiento del derecho”.
+
+---
