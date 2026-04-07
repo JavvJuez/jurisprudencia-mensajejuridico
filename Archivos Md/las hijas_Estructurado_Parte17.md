@@ -6855,3 +6855,249 @@ Sentencia condenatoria de Primer Grado en contra del senador CIRO ALEJANDRO RAM�
 (ix) “Medidas de restablecimiento del derecho”.
 
 ---
+# PROVIDENCIA DDP 8539
+
+**Número de Providencia (DDP 8539):** No especificado
+**Radicación (DDP 8539):** CUI 11001-6000-721-2024-00126
+
+**Lista de Temas (DDP 8539):**
+(i) “… principio de oportunidad, en modalidad de suspensión a prueba por el término de ocho (8) meses, a favor del procesado …, contra quien se adelanta el juzgamiento por el delito de acceso carnal o acto sexual abusivo con incapaz de resistir (artículo 210 del Código Penal).”. 
+(ii) “A la fecha el proceso restaurativo ha mostrado grandes avances pues la víctima ha sido escuchada, acompañada terapéuticamente y apoyada por profesionales, y además ha podido encontrar un espacio seguro donde participar activamente en la construcción de la solución, lo que dignifica su voz y garantiza la reparación integral.”. 
+(iii) “El representante del Ministerio Público, en contraposición, advirtió que la causal invocada por el fiscal delegado es jurídicamente improcedente para el delito de Acceso carnal o acto sexual con incapaz de resistir, pues la justicia restaurativa en el derecho colombiano solo puede operar mediante conciliación preprocesal, conciliación en incidente de reparación integral o mediación, mecanismos regulados en los artículos 518 a 526 del C.P.P., y sometidos a reserva legal estricta, los cuales no aplican en el caso concreto ya que la mediación solo procede cuando la pena mínima no supera los cinco años. Es así que aceptar acuerdos restaurativos fuera del marco legal rompería la estructura del sistema penal y lo convertiría en un modelo “economicista” donde incluso delitos graves podrían resolverse mediante pagos o acuerdos informales.”. 
+(iv) La mediación. 
+(v) “Finalmente, si bien la perspectiva de género constituye un mandato constitucional y convencional que debe orientar todas las decisiones judiciales, su aplicación no puede desconocer las garantías fundamentales que amparan a la persona acusada dentro del proceso penal. En el caso concreto, se advierte que la juez de primera instancia no desbordó dicho deber, sino que aplicó de manera adecuada y proporcionada el enfoque diferencial exigido por el ordenamiento jurídico, sin afectar el núcleo esencial del derecho de defensa ni alterar las reglas del debido proceso, pues fue por la voluntad de la misma victima y de los acuerdos entre ésta y el acusado que permitió corroborar los fines de la justicia restaurativa, entre ellos: i) reparar integralmente el daño a la víctima, ii) responsabilizar a los ofensores, y, iii) reconstruir el tejido social quebrantado por el delito.”.
+
+---
+
+# PROVIDENCIA DDP 8540
+
+**Número de Providencia (DDP 8540):** No especificado
+**Radicación (DDP 8540):** CUI 4 47-001-600-1018-2025-00454-00
+
+**Lista de Temas (DDP 8540):**
+(i) “Sería del caso que la Sala entrara a resolver el recurso de apelación sustentado por el abogado defensor, Pablo Lelis Romero Cruz - en representación de los intereses del procesado JAMES JAIR MEDINA - en contra del auto de fecha 3 de febrero de 2026, por el cual, el Juzgado Quinto Penal del Circuito de Santa Marta, Magdalena, en el contexto de la audiencia de formulación de acusación, no accedió a la solicitud de nulidad a partir de la audiencia de formulación de imputación, de no ser porque, de acuerdo con la ley procesal y la jurisprudencia penal, se advierte una omisión en el trámite de la primera instancia que constituyó una violación al debido proceso y en consecuencia, se deberá nulitar parcialmente la decisión recurrida y ordenar la devolución de la actuación al juzgado de origen, para que corrija el yerro, como se explicará con mayor detalle en lo sucesivo.”. 
+(ii) “La posibilidad de aclaración, adición o corrección del escrito de acusación”. 
+(iii) “El inciso 1º del artículo 339 de la Ley 906 de 2004, no debe ser interpretado exegéticamente”. 
+(iv) “El contexto normativo de la audiencia de formulación de acusación exige una interpretación con criterios lógico y sistemático”. 
+(v) “La interpretación de los artículos 337 y 339 de la Ley 906 de 2004, debe realizarse considerando los criterios teleológico y consecuencialista”. 
+(vi) “Deber del juez de consultar previamente a las partes sobre observaciones al escrito de acusación y la Fiscalía para que lo aclare, adicione o corrija, de ser necesario”. 
+(vii) “Antes de tramitar la presunta nulidad postulada, en la audiencia de acusación, las partes interesadas deben formular sus observaciones sobre los hechos jurídicamente relevantes”. 
+(viii) La nulidad. 
+
+---
+
+# PROVIDENCIA DDP 8541
+
+**Número de Providencia (DDP 8541):** No especificado
+**Radicación (DDP 8541):** CUI 11001600008820180003203
+
+**Lista de Temas (DDP 8541):**
+“La Sala decide el recurso de apelación interpuesto por el defensor de DIEGO JAVIER CADENA RAMÍREZ, el fiscal y los apoderados de las víctimas contra la sentencia del 30 de septiembre de 2025, mediante la cual el Juzgado 3º Penal del Circuito de Conocimiento de Bogotá absolvió a JUAN JOSÉ SALAZAR CRUZ y, parcialmente, a DIEGO JAVIER CADENA RAMÍREZ, pero condenó a este por el delito de soborno en la actuación penal por los hechos relacionados con JUAN GUILLERMO MONSALVE PINEDA.”.
+
+---
+
+# PROVIDENCIA DDP 8542
+
+**Número de Providencia (DDP 8542):** No especificado
+**Radicación (DDP 8542):** CUI 110016000023202001708 01
+
+**Lista de Temas (DDP 8542):**
+(i) La prueba de referencia. 
+(ii) “De cualquier manera, téngase en cuenta que, la Sala de Casación Penal de la Corte Suprema de Justicia, ha sido consistente en la tesis, según la cual, no resulta viable exigirles a las víctimas menores de edad describir con precisión exacta la fecha de los actos sexuales, debido a la edad que tenían cuando ocurrieron y a su propia condición de víctimas de tales conductas (Cfr. AP1640-2018, rad. 47161 y SP1591-2020, rad. 49323)136 y además, porque, si el evento delictivo corresponde a un concurso de agresiones sexuales perpetradas contra un menor de edad en un lapso prolongado, es irrazonable exigir idéntico nivel de precisión en la descripción de los comportamientos.”. 
+(iii) “Además, pertinente es advertir que, en los delitos cuya comprobación resulta compleja, por la reserva y ausencia de rastros visibles, casi siempre, únicamente se cuenta con la versión de las víctimas para determinar las circunstancias de tiempo, modo y lugar en que se materializó el agravio, con lo que, tal y como lo ha expresado la Sala de Casación Penal de la Corte Suprema de Justicia “el testimonio de la víctima, por tanto, constituye la pieza fundamental a partir de la cual es posible establecer la materialidad del delito y la responsabilidad del acusado”.”. 
+(iv) “Sin embargo, téngase claro que, la narración de los menores como medio de convicción arrimado al proceso, se debe apreciar en conjunto, según lo normado en el artículo 380 de la Ley 906 de 2004, por cuanto a pesar de que constituye un importante elemento probatorio para demostrar el evento incriminatorio endilgado a una persona, no se ha de apreciar aisladamente, lo que significa que, corresponde al juez que tenga a su cargo el juzgamiento, establecer según las particularidades de cada caso concreto, si lo declarado, bajo un enfoque de apreciación y valoración en conjunto y sistemático de los demás medios de prueba producidos en juicio, permite superar el umbral de conocimiento exigido para la emisión de un fallo de tipo condenatorio, es decir lo referido en el inciso final del artículo 7 de la ley adjetiva penal, concordante con lo preceptuado en la disposición 381 del mismo estatuto.”. 
+(v) “Sobre asunto, recuérdese, la ausencia de daños psicológicos o alteraciones de comportamiento no se traducen en la inexistencia del punible, pues cada caso se desarrolla de diferente forma y las víctimas reaccionan de diversas maneras; en palabras de la Sala de Casación Penal de la Corte Suprema de Justicia “el censor pretende descalificar la existencia de un daño emocional en la víctima, como consecuencia de haberse acreditado que no bajó su rendimiento académico. Sin embargo, la Corte ha tenido la oportunidad de precisar que, de acuerdo, ciertamente, con doctrina especializada, los parámetros que, por lo general, son indicativos del abuso sexual no son indefectibles, ya que «pueden verificarse algunos y otros no, sin que ello elimine de un tajo la credibilidad del testimonio»”. 
+(vi) “De lo expuesto, se concluye sin dubitación que contrario a lo afirmado por el demandante, la Sala reconoce que en el tipo penal del artículo 208 existe una presunción de derecho que no admite prueba en contrario, razón por la cual, el bien jurídico tutelado se vulnera efectivamente cuando se accede carnalmente al menor de catorce años aún con su consentimiento. …”. 
+(vii) “Ahora, en lo que atañe al concurso de conductas punibles “los actos y el acceso tienen que ser conductas perfectamente escindibles o autónomas, pues, si se trata de una misma unidad de acción, por más que se entienda que pueda ajustarse a dos o más tipos penales, siempre –o casi siempre- se llegará ante un concurso aparente que debe resolverse mediante la aplicación, no excluyente, de los principios de especialidad, consunción y subsidiaridad”.”. 
+(viii) “Así pues, es oportuno evocar las etapas que deberán agotar los funcionarios cognoscentes para fijar la pena de prisión, en los eventos en que se atribuya pluralidad de conductas punibles; al respecto, el órgano de cierre en materia penal ha precisado: …”.
+
+---
+
+# PROVIDENCIA DDP 8543
+
+**Número de Providencia (DDP 8543):** No especificado
+**Radicación (DDP 8543):** CUI 76 001 60 00678 2009 00044
+
+**Lista de Temas (DDP 8543):**
+(i) La prueba de referencia. Admisibilidad de la entrevista del menor afectado que al momento del juicio es mayor de edad. 
+(ii) “.... Esto último significa que si el menor de edad concurre al juicio y es su deseo declarar, puede hacerlo, sin perjuicio de que también puedan ser apreciadas por el fallador las declaraciones anteriores a ese escenario rendidas por el menor de edad, siempre y cuando, en virtud del principio de igualdad de armas y de lealtad entre las partes, se cumpla con las condiciones precisadas a continuación. …”. 
+(iii) “La Sala penal de la Corte (SP154-2017) ha señalado que no basta con la simple presencia formal de un abogado, si su actuación es inepta, torpe, desacertada, desconocedora de las reglas del sistema y si termina colocando al procesado en indefensión material, deviene la nulidad.”. 
+(iv) “Para la Sala de Casación Penal la fiscalía tiene el deber de agotar los actos de postulación: (CSJ, Sala Penal, SP1003-2017, 01-02-2017, rad. 45464, que no son facultativos: …”. 
+(v) “Frente a esa circunstancia, dice la Corte5 que tal normativa reguló de manera “especifica las situaciones en que los delitos sexuales contenidos en el Capítulo segundo del Título IV, del Código penal, se dan al interior del entorno familiar o habitacional, es decir que lo que permite la comisión del hecho delictivo son justamente las relaciones de parentesco o de cohabitancia, incluidas aquellas distintas a la convivencia marital…”.”.
+
+---
+
+# PROVIDENCIA DDP 8544
+
+**Número de Providencia (DDP 8544):** SP045-2026
+**Radicación (DDP 8544):** 59590
+**Decisión (DDP 8544):** CASA Y ABSUELVE.
+
+**Lista de Temas (DDP 8544):**
+(i) “Para empezar, se ofrece necesario aclarar que en la época de los hechos, y para el momento en que se concretaron los actos estructurales de imputación y acusación, las hipótesis punibles de Explotación ilícita de yacimiento minero y otros materiales y Daño en los recursos naturales de las que se ocupó esta actuación, se encontraban previstas en el Código Penal (Ley 599 de 2000), Libro Segundo, Título XI, «De los delitos contra los recursos naturales y el medio ambiente», en los siguientes artículos, así: …”. 
+(ii) “Despejado lo anterior, corresponde decantar los elementos estructurales del injusto de «Explotación ilícita de yacimiento minero y otros materiales». En esa dirección, debe señalar que, según el texto legal de cualquiera de las normas transcritas párrafos atrás, en las que estuvo y está consagrado, este es un tipo penal: …”. 
+(iii) “De esta última característica, es decir, por su consagración como delito de peligro abstracto, deriva el que la acción constitutiva del injusto, eventualmente, concurse de manera efectiva con otros comportamientos punibles de resultado que amparan el mismo bien jurídico, como, por ejemplo: daños en los recursos naturales (art. 331 original de la Ley 599 de 2000, en la actualidad, artículo 333); contaminación ambiental (art. 334 Ib.); y contaminación ambiental por explotación de yacimiento minero o hidrocarburo (art. 334A).”. 
+(iv) “Desde esa perspectiva, como en esa diligencia no se dejó constancia acerca de que al implicado le fueron puestas de presente esas prerrogativas superiores y que, cabalmente comprendidas, renunció a las mismas, las manifestaciones consignadas en el respectivo informe, cuya fuente sea el acusado, o reproducidas en el testimonio del investigador, con capacidad de sustentar una decisión de condena, carecen de validez, en razón de la cláusula de exclusión prevista en el inciso final del artículo 29 de la Constitución Política.”. 
+(v) “«... La Fiscalía tiene el deber ineludible de demostrar la realización de la conducta punible, así como la participación y la responsabilidad del procesado. En otras palabras, su obligación consiste en presentar una teoría del caso idónea para tal fin, de la cual no sea posible advertir o descubrir algún tipo de error fáctico o jurídico inmanente. Si esto último ocurre, la actividad del defensor puede reducirse a criticar las proposiciones de hecho y de derecho que integran la hipótesis acusatoria, así como las aserciones de prueba de las cuales surgió, como se indicó en precedencia… …”.
+
+---
+
+# PROVIDENCIA DDP 8545
+
+**Número de Providencia (DDP 8545):** AP1115-2026
+**Radicación (DDP 8545):** 65548
+
+**Lista de Temas (DDP 8545):**
+(i) “En este evento, la casacionista solicitó la nulidad de lo actuado, a partir de la audiencia concentrada, al estimar comprometida la imparcialidad del juez de primer grado. A su juicio, el titular del Juzgado 20 Penal Municipal de Conocimiento de esta ciudad, al resolver la solicitud de preclusión de la investigación por atipicidad de la conducta de estafa, se pronunció sobre los materiales probatorios. Por tanto, quedaba impedido para continuar con el asunto.”. 
+(ii) “El numeral 14 del artículo 56 de la Ley 906 de 2004, establece que es causal de impedimento que “el juez haya conocido de la solicitud de preclusión formulada por la Fiscalía General de la Nación y la haya negado, caso en el cual quedará impedido para conocer el juicio en su fondo”, norma que de conformidad con lo establecido en el precepto 335 de la misma ley, establece que el juez que conozca de la preclusión queda impedido para conocer del juicio.”. 
+(iii) “Ahora, esta Corte ha determinado que esa causal no opera de manera automática por el solo hecho de que el juez hubiera intervenido en la negativa de la preclusión …”. 
+(iv) “Por el contrario, esta Sala ha precisado que, no será necesario separar al funcionario de la actuación cuando no ha realizado «un análisis sustancial y vinculante del contenido de esos medios suasorios, de las circunstancias fácticas, de sus implicaciones y alcances de cara a la configuración del compromiso penal del procesado, sin ningún estudio vinculante sobre el tipo objetivo o subjetivo, la antijuridicidad, la culpabilidad o la definición de fondo de la situación del acusado …”. 
+(v) “… el manifiesto desconocimiento de las reglas de producción y apreciación de la prueba sobre la cual se ha fundado la sentencia, en la modalidad del falso raciocinio -numeral 3º del art. 183 de la Ley 906 de 2004”. 
+(vi) “La Sala ha establecido que, los errores de razonamiento, en términos de lógica formal, «se denominan falacias o silogismos aparentes, los cuales no implican cualquier yerro en el raciocinio o una idea falsa, sino errores típicos en las relaciones lógicas entre las premisas y la conclusión».”. 
+(vii) “Así mismo, ha sostenido que los principios que permiten dar una argumentación coherente en el discurso son los de: …”.
+
+---
+
+# PROVIDENCIA DDP 8546
+
+**Número de Providencia (DDP 8546):** AP1037–2026
+**Radicación (DDP 8546):** 70911
+
+**Lista de Temas (DDP 8546):**
+(i) “Violación indirecta de la ley sustancial por error de hecho consistente en falso raciocinio”. 
+(ii) “Violación indirecta de la ley sustancial por error de hecho consistente en falso juicio de existencia por omisión”. 
+(iii) “La demanda será inadmitida en su totalidad, pues, solo evidencia una pluralidad de críticas dirigidas contra la sentencia de segunda instancia que no pasan de representar una amalgama de inconformidades no acreditan alguna de las modalidades de error dispuestas por el legislador; y apenas traducen el interés del recurrente por extender el debate probatorio y jurídico finiquitado en las instancias, a través de un escrito de libre factura que, a lo sumo, refleja su desacuerdo con el fallo emitido en unidad decisoria, pero no algún cargo atendible en casación.”.
+
+---
+
+# PROVIDENCIA DDP 8547
+
+**Número de Providencia (DDP 8547):** AP908-2026
+**Radicación (DDP 8547):** 61742
+
+**Lista de Temas (DDP 8547):**
+(i) La omisión del agente retenedor o recaudador. 
+(ii) “Al respecto de lo contenido en el parágrafo citado, esta Corporación ha establecido que, cuando se acredite su ocurrencia, lo procedente no será decretar la preclusión de la actuación sino terminar el proceso decretando la cesación del procedimiento, por lo siguiente: …”. 
+(iii) “Bajo este panorama, prospera la solicitud elevada el 2 de febrero del 2026 por la representante de la DIAN y, por consiguiente, se hace imperioso decretar la cesación del procedimiento a favor de JACKELINE CASTELLANOS MATAJIRA, por concurrir la circunstancia prevista en el parágrafo del artículo 402 y el numeral 6° del artículo 82 de la Ley 599 de 2000.”.
+
+---
+
+# PROVIDENCIA DDP 8548
+
+**Número de Providencia (DDP 8548):** AP1086-2026
+**Radicación (DDP 8548):** 68503
+
+**Lista de Temas (DDP 8548):**
+(i) “Así, sobre el cargo principal, la recurrente invoca la causal tercera, por falso juicio de identidad, a causa de la aparente tergiversación de la manifestación realizada por el procesado, en sesión del juicio oral del 25 de abril de 2022, con sustento en la cual, se concluyó que renunció a la prescripción de la acción penal. No obstante, la adecuada postulación de la violación indirecta de la ley, por errores de hecho, implica que estos recaigan sobre una prueba.”. 
+(ii) “Así, prueba, según los artículos 372 y siguientes del C.P.P., es el medio de conocimiento que se refiere, directa o indirectamente, a los hechos, circunstancias materia del juicio y de la responsabilidad penal del acusado. Deben ser solicitadas en la audiencia preparatoria y practicadas en el juicio oral y público, con contradicción de las partes e inmediación del juez, quien luego las aprecia en conjunto, a la luz de la sana crítica, para establecer si, se estas han llevado a su conocimiento, la materialidad de las circunstancias relativas a la comisión de la conducta delictiva y la atribución de esta al procesado.”. 
+(iii) “Por lo expuesto, las expresiones que el procesado empleó para contestar si renunciaba al fenómeno extintivo no constituyen prueba. En su lugar, se trata de un acto procesal, de carácter oral, que proviene de un sujeto procesal y produce efectos en la continuidad del proceso penal.”. 
+(iv)  “En ese orden, aun de superarse la deficiente postulación del cargo y acometer su análisis desde la nulidad, esta carece de objeto pues las instancias no tergiversaron las manifestaciones de DÍAZ RUBIO sobre su intención de renunciar a la prescripción de la acción penal por los delitos imputados, de manera oportuna, ya que restaban siete meses para su ocurrencia, y prevalido de la asesoría de su defensor.”. 
+(v) “De otra parte, sobre el cargo subsidiario, atinente a la causal segunda de casación o de nulidad, se impone al postulante demostrar la existencia de yerros de garantía o de estructura insalvables que hacen que la actuación y la decisión de segunda instancia pierdan toda validez formal y material, motivo por el cual, el libelista debe expresar la irregularidad sustancial que afecta la actuación, determinar la forma en que ella rompe la estructura del proceso o lesiona las garantías de los intervinientes -principio de trascendencia-, así como la fase en la que se produjo.”. 
+(vi) “De lo expuesto, aunque hubo una irregularidad en el trámite del recurso extraordinario de casación, la censora no satisfizo la carga argumentativa de los principios de trascendencia y residualidad para la invalidación de lo actuado, si se quiere, desde el término para sustentar el libelo. Deficiencia que tampoco será superada por la Sala, en atención a que la incorrección no afectó las garantías debidas al acusado, dada la síntesis probatoria de las pruebas mencionadas en las sentencias y otras piezas procesales, a las que sí tuvo acceso la recurrente.”.
+
+---
+
+# PROVIDENCIA DDP 8549
+
+**Número de Providencia (DDP 8549):** AP1081-2026
+**Radicación (DDP 8549):** 63844
+
+**Lista de Temas (DDP 8549):**
+(i) “Cuando en casación se invoca un error de hecho por falso raciocinio –causal tercera, artículo 181 numeral 3 de la Ley 906 de 2004–, es preciso demostrar que la judicatura al momento de asignarle mérito persuasivo a determinado elemento de juicio, transgredió los principios que gobiernan la sana crítica como método de valoración probatoria, esto es, los postulados de la lógica, las leyes de la ciencia y/o las reglas de experiencia.”. 
+(ii) “En tal supuesto, la correcta sustentación del error impone al demandante: 
+(i) identificar el medio probatorio indebidamente valorado; 
+(ii) precisar: lo que la prueba dice, el mérito persuasivo otorgado por el juzgador y, el postulado lógico, la ley científica o la máxima de experiencia desconocida en el fallo; y, 
+(iii) acreditar la trascendencia del error, expresando con claridad cuál debe ser la adecuada inferencia de la prueba, con la exigencia de justificar, a través del examen conjunto de los medios suasorios, que la enmienda del yerro daría lugar a una declaración de derecho esencialmente diversa y favorable a los intereses del procesado.”. 
+(iii) “La legitimidad procesal la tienen las partes o intervinientes reconocidos en el aludido Estatuto Procesal Penal (Libro I, Títulos III y IV).”. 
+(iv) “Por su parte, en la legitimación en la causa se desprende el interés jurídico para recurrir, lo que supone que la decisión objeto de ataque haya causado un perjuicio real y material al sujeto procesal, lo cual se soporta en la demostración del efectivo ejercicio de los principios de contradicción y doble instancia. Por tanto, se exige al demandante que haya apelado el fallo de primera instancia y que sus reparos cumplan el presupuesto de unidad o identidad temática –coherencia o correspondencia entre los motivos de la apelación y los que se exponen en casación– …”. 
+(v) “En este acápite, ningún esfuerzo realiza el libelista para postular un cargo en casación, más allá de la invitación a que la Sala asuma la «casación oficiosa» de la sentencia impugnada con la finalidad de dar aplicación al artículo 269 del Código Penal pues, en su decir, entre víctima y victimaria se produjo un «acuerdo de reparación integral» de los daños causados con la conducta punible.”. 
+(vi) “… lo anterior impide aplicar el artículo 269 del Código Penal reclamado, en tanto su tenor literal dispone que el juez disminuirá la pena en la proporción allí prevista, «si antes de dictarse sentencia de primera… instancia, el responsable restituyere el objeto material del delito o su valor, e indemnizare los perjuicios ocasionados al ofendido o perjudicado» [subrayado fuera de texto]; y,”. 
+(vii) “por último, en virtud de la expedición de la Ley 2477 de 2025, dígase que la misma no resulta aplicable al caso concreto, habida cuenta que el delito de hurto calificado por la violencia sobre las personas es uno de aquellos punibles excluidos del beneficio de reparación integral como forma de extinción de la acción penal –artículo 4° de la Ley 2477 de 2025, que adicionó a la Ley 906 de 2004 el artículo 78A– …”.
+
+---
+
+# PROVIDENCIA DDP 8550
+
+**Número de Providencia (DDP 8550):** AP1032-2026
+**Radicación (DDP 8550):** 69440
+
+**Lista de Temas (DDP 8550):**
+(i) La defensa técnica dizque deficiente. 
+(ii) “Al respecto, el demandante se limita a sostener que su antecesor no actuó durante la fase de la investigación, pero nada hace para demostrar una tal falencia -que implicaría advertirlo ajeno, cuando menos, a las audiencias preliminares, esto es, por ejemplo, que no concurrió a la formulación de imputación o no intervino en esta- y en lugar de ello funda su crítica en que, supuestamente, no se comunicó con el procesado o no adelantó ciertas tareas privadas, como parte, de investigación, entre ellas, verificar los registros de la Fundación Maná respecto de la tarea adelantada allí con la afectada, o examinar si la segunda declaración rendida por fuera del juicio pudo ser inducida o no contó con la previa amonestación respecto de la posibilidad de guardar silencio para no incriminar a su padre.”. 
+(iii) “Dígase, para culminar, que la Corte examinó la actuación de la defensa y pudo verificar que se ejerció una adecuada y suficiente actividad, dado que acudió a todas las diligencias e intervino de forma activa en la diligencia preparatoria -pidió pruebas- y en el juicio -practicó pruebas, se opuso a que la Fiscalía introdujera la intervención anterior de la afectada y presentó alegatos finales- cuando lo consideró necesario. Además, impugnó la sentencia de primer grado.”.
+
+---
+
+# PROVIDENCIA DDP 8551
+
+**Número de Providencia (DDP 8551):** STC3491-2026
+**Radicación (DDP 8551):** No especificado
+
+**Lista de Temas (DDP 8551):**
+(i) “En cuanto a la protección reforzada de la mujer frente a la violencia intrafamiliar.”. 
+(ii) “Se ha reiterado que la violencia psicológica -por su naturaleza insidiosa y progresiva- puede resultar tan o más destructiva que la violencia física, pues socava la estabilidad emocional de la víctima, afecta su capacidad de autodeterminación y reproduce patrones de dominación incompatibles con el orden constitucional. Como lo expresó la Corte Constitucional, ese tipo de violencia se genera con acciones u omisiones dirigidas intencionalmente a producir sentimientos de desvalorización e inferioridad sobre la misma víctima, …”. 
+(iii) “En concordancia con los compromisos internacionales, la Ley 294 de 1996 -modificada por las leyes 575 de 2000, 1257 de 2008 y 2126 de 2021- y, en desarrollo del inciso 5º del artículo 42 de la Constitución, estableció mecanismos para proteger a las personas víctimas de violencia en la familia, independientemente de las consecuencias penales a que haya lugar. …”. 
+(iv) “De los discursos prohibidos y la violencia simbólica en redes sociales.”.
+
+---
+
+# PROVIDENCIA DDP 8552
+
+**Número de Providencia (DDP 8552):** STP2736-2026
+**Radicación (DDP 8552):** 152762
+
+**Lista de Temas (DDP 8552):**
+(i) “Como punto de partida, importa aclarar que el accionante más allá de cuestionar la manera poco convencional en cómo el Tribunal a través de una misma providencia resolvió coetáneamente los recursos de queja y de apelación, al versar acerca de una temática inescindible en el caso particular, el interesado se muestra realmente inconforme es frente a la negativa de las instancias frente a la posibilidad de que GUILLERMO EDUARDO CARMONA MOLANO pueda ejercer su propia defensa técnica y de las coprocesadas, LUZ MARÍA ESCOBAR PINEDA e ISABEL CRISTINA ESCOBAR PINEDA.”. 
+(ii) “En esa medida, la Sala limitará su análisis en torno a si las autoridades judiciales demandadas vulneran el derecho fundamental al debido proceso, defensa técnica y contradicción de los accionantes, al negar la posibilidad de que uno de los implicados asuma su propia defensa.”. 
+(iii) “(…) la defensa técnica se materializa a través de actos de contradicción, impugnación, solicitud probatoria y alegación, es necesario que el jurista que represente al procesado dentro del proceso no se limite a una mera presencialidad, sino que despliegue acciones -cuando ello sea posible, dadas las particularidades de cada caso-, orientadas a llevar al juez la verdad de lo acontecido, así como a evitar arbitrariedades e impedir una condena injusta.”. 
+(iv) “El Tribunal expuso que si bien la Ley 600 de 2000 permite a quien tenga la calidad de abogado ejercer su propia defensa en algunos eventos (no en la totalidad de actuaciones procesales), el Art. 127 Inciso 2° dispone: “En todo caso si el sindicado fuere abogado titulado y estuviere autorizado legalmente para ejercer la profesión, podrá de manera expresa aceptar y ejercer su propia defensa sin necesidad de apoderado. Sin embargo, en la versión libre y en la indagatoria deberá estar acompañado por un abogado.””. 
+(v) “Mientras que lo establecido en la Ley 906 de 2004, concretamente el Art. 118, se infiere que, en todo caso, se requiere estar asistido por un defensor. La norma en cita dispone: “La defensa estará a cargo del abogado principal que libremente designe el imputado o, en su defecto, por el que le sea asignado por el Sistema Nacional de Defensoría Pública”.”. 
+(vi) “La Corte Constitucional estudió la exequibilidad del Art. 118 de la Ley 906 de 2004 en la sentencia C-210 de 2007, concluyendo que la norma, al no contemplar la propia defensa del acusado, no vulneraba la Constitución, sino que propendía por el desarrollo tanto de la defensa técnica como material, pues esta última siempre estaría garantizada en cabeza del procesado y, la intención del legislador fue darle mayor relevancia a la defensa técnica.”. 
+(vii)  “Bajo esos derroteros el Tribunal estimó que aun cuando el implicado «ostenta la calidad de abogado en ejercicio y, que es una profesión que puede ejercerse libremente, pero en este caso ello no lo faculta para que asuma su propia defensa en el proceso penal que se adelanta en su contra, y mucho menos, asumir la defensa técnica de las otras dos coprocesadas, porque como bien lo indicaron la representación de víctimas y la delegada del Ministerio Público, habría conflicto de intereses en las resultas del proceso, aunado que, conforme lo indicó la Corte Constitucional en la declaratoria de exequibilidad del Art. 118».”.
+
+---
+
+# PROVIDENCIA DDP 8553
+
+**Número de Providencia (DDP 8553):** STP2727-2026
+**Radicación (DDP 8553):** 152233
+
+**Lista de Temas (DDP 8553):**
+(i) “En el marco de la impugnación formulada, corresponde determinar si el juez constitucional de primera instancia erró al negar el amparo solicitado, al estimar que la providencia judicial cuestionada no adolecía de defectos específicos que habilitaran la intervención excepcional del juez de tutela.”. 
+(ii) “Para resolver dicha controversia, se examinará si el juzgado ejecutor accionado incurrió en algún defecto al ordenar el traslado inmediato de JUAN PABLO ZULETA VILLEGAS a un establecimiento del INPEC, como consecuencia de la revocatoria del mecanismo sustitutivo de prisión domiciliaria.”. 
+(iii) “En el presente asunto, JUAN PABLO ZULETA VILLEGAS sostiene que el Juzgado 3º de Ejecución de Penas y Medidas de Seguridad de Medellín incurrió en una vía de hecho al ordenar su traslado inmediato a establecimiento carcelario, pese a que contra el auto que revocó la prisión domiciliaria interpuso recurso de reposición y, en subsidio, apelación. A su juicio, la decisión no podía ejecutarse mientras el recurso de apelación no fuera resuelto, pues estima que este debía concederse en efecto suspensivo. En consecuencia, considera vulnerados sus derechos al debido proceso, a la doble instancia y al acceso a la administración de justicia.”. 
+(iv) “Como lo señaló el a quo, la jurisprudencia de esta Corporación ha precisado que el recurso de apelación contra la decisión que revoca la prisión domiciliaria se concede en el efecto devolutivo , de manera que su interposición no suspende la ejecución de lo resuelto.”. 
+(v) “En ese contexto, la orden de traslado inmediato al establecimiento penitenciario no constituye una actuación arbitraria ni caprichosa, sino la consecuencia jurídica propia de la revocatoria del beneficio, cuya ejecutoriedad no queda supeditada a la resolución del recurso de apelación.”.
+
+---
+
+# PROVIDENCIA DDP 8554
+
+**Número de Providencia (DDP 8554):** STP2780-2026
+**Radicación (DDP 8554):** 152825
+
+**Lista de Temas (DDP 8554):**
+(i) “De los requisitos generales de procedencia de la acción de tutela.” 
+(ii) “Del derecho de petición.”. 
+(iii) “En relación con la formulación de la petición, se tiene decantado que cualquier persona está facultada para remitir solicitudes respetuosas a las autoridades públicas, ya sea de forma verbal, escrita o por cualquier otro medio apto para ese fin . Peticiones que también podrán dirigirse a particulares, con o sin personería jurídica, cuando se trate de garantizar derechos fundamentales.”. 
+(iv) “Del hecho superado.”. 
+(v) “De la carrera judicial.”. 
+(vi) “Del derecho de acceso a cargos públicos.”. 
+(vii) “De las competencias del Consejo Superior de la Judicatura en el concurso de méritos.”. 
+(viii) “Del estudio del reordenamiento judicial.”. 
+(ix) “En ese orden, a juicio de la Sala, sin desconocer la importancia y trascendencia del proceso de reordenamiento judicial de cara al acceso efectivo a la administración de justicia y optimización de la eficiencia en la prestación del servicio ni las competencias del Consejo Superior de la Judicatura en los procesos de selección, el lapso superior a un año que ha transcurrido desde la iniciación del trámite de reorganización resulta excesivo, desproporcionado y alejado de la razonabilidad.”.
+
+---
+
+# PROVIDENCIA DDP 8555
+
+**Número de Providencia (DDP 8555):** STP2746-2026
+**Radicación (DDP 8555):** 152853
+
+**Lista de Temas (DDP 8555):**
+(i) “En atención a las pretensiones del accionante, consistentes en dejar sin efecto las decisiones emitidas el 15 de octubre y 27 de noviembre de 2025 por el Juzgado 6° Penal del Circuito Especializado de Cali y el Tribunal Superior del Distrito Judicial de la misma ciudad -Sala Penal-, respectivamente, y en consecuencia, se conceda el recurso de apelación interpuesto; es necesario acotar que la tutela es un mecanismo de protección excepcional frente a providencias judiciales, por lo que su prosperidad va ligada al cumplimiento de estrictos requisitos de procedibilidad (generales y específicos), que implican una carga para el demandante, tanto en su planteamiento, como en su demostración.”. 
+(ii) “«Mientras el proceso se encuentre en curso, es decir, no se haya agotado la actuación del juez ordinario, el afectado tendrá la posibilidad de reclamar, al interior del trámite, el respeto de las garantías constitucionales, sin que sea admisible acudir para tal fin a la tutela.»”. 
+(iii) “En el mismo sentido, la Corte Constitucional, a través de la sentencia T-529 de 2023, estableció que la acción de tutela es improcedente cuando se instaura contra procesos judiciales en curso; concretamente, indicó que: …”. 
+(iv) “Así, de acuerdo con la jurisprudencia expuesta, al estar aún en trámite la actuación penal no es posible solicitar la protección constitucional, ya que ello atenta contra los principios de residualidad y subsidiariedad que caracterizan este instrumento, según los cuales «esta acción solo procederá cuando el afectado no disponga de otro medio de defensa judicial» (artículo 86 Constitucional), precepto que es reafirmado por el artículo 6º del Decreto 2591 de 1991, al indicar que «la acción de tutela no procederá: 1. Cuando existan otros recursos o medios de defensa judiciales».”.
+
+---
